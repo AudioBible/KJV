@@ -11,6 +11,7 @@ King James Version Audio Bible
 
     Old Testament                 |   ###   | New Testament                 |   ##
     ------------------------------|---------|-------------------------------|--------
+    
     GENESIS                       |   50    | MATTHEW                       |   28
     EXODUS                        |   40    | MARK                          |   16
     LEVITICUS                     |   27    | LUKE                          |   24
@@ -38,5 +39,16 @@ King James Version Audio Bible
     LAMENTATIONS                  |   5     | 3_JOHN                        |   1
     EZEKIEL                       |   48    | JUDE                          |   1
     DANIEL                        |   12    | REVELATION                    |   22
- 
+    HOSEA                         |   14    |
+    JOEL                          |   3     |
+    AMOS                          |   9     |
+    OBADIAH                       |   1     |
+    JONAH                         |   4     |
+    MICAH                         |   7     |
+    NAHUM                         |   3     |
+    HABAKKUK                      |   3     |
+    ZEPHANIAH                     |   3     |
+    HAGGAI                        |   2     |
+    ZECHARIAH                     |   14    |
+    MALACHI                       |   4     | 
  
