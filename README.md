@@ -164,6 +164,7 @@ King James Version Audio Bible for Mac, Windows and Unix/Linux
 - [TELEVISION Will Kill you. PATENT to PROVE it..](https://www.youtube.com/watch?v=15GtRc7ViBk)
 - [You Won't Believe What They Admitted on the News in 1971...](https://www.youtube.com/watch?v=yfaAtdTgBGk)
 - [Mass Hypnosis and Trigger Words](https://www.youtube.com/watch?v=fznpRaM1wIg)
+- [Society Is Being Programmed By A Black Box](https://www.youtube.com/watch?v=rQmIPK7DQh8)
 
 
 ## God is so kind that it is impossible to imagine His unbounded kindness
