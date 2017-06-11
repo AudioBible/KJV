@@ -120,6 +120,10 @@ King James Version Audio Bible for Mac, Windows and Unix/Linux
 
 # THIS IS POSITIVE INFO! IT'S A MATTER OF PERSPECTIVE!
 
+# THE WAR ON TERROR IS A WAR ON YOU!
+
+# RETARDS - Round Earth Taught Analed Retention Disorder Syndrome
+
 
 - [Under The Dome - Full Documentary](https://www.youtube.com/watch?v=fk4YqPtvJao)
 - [A History Of Flat Earth - Eric Dubay](https://www.youtube.com/watch?v=pGl8I3l-5ac)
