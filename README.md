@@ -46,7 +46,7 @@ King James Version Audio Bible for Mac, Windows and Unix/Linux
     audiobible hear -b 1_john -c 3                              # to hear the book of "1 John" chapter 3
     audiobible hear psalms 71                                   # to hear a Prayer for God's Protection, praying is left up to the hearer
     
-    audiobible read mark 4                                      # to read Mark 4, (use params like with hear operation)
+    audiobible read mark 4                                      # to read Mark 4, (use params like with hear operation), please disable your hearing protection
     audiobible read psalms 71                                   # to read a Prayer for God's Protection, praying is left up to the reader
     
     audiobible find                                             # to output the whole Bible
@@ -186,6 +186,8 @@ o   o   o o---oOO   O-o      |   | O--o      | \ | O-o  |   |
 ![56f6b029eb00d9b24cc7470fd0a68468](56f6b029eb00d9b24cc7470fd0a68468.jpg)
 
 ![Globe](globe_1.jpg)
+
+# AUDIOBIBLE HEAR PSALMS 71
 
 ## WARNING! DEMONIC SIGILS OF SUMMONING! FOR EDUCATIONAL PURPOSES!
 
