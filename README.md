@@ -151,6 +151,9 @@ King James Version Audio Bible for Mac, Windows and Unix/Linux
 - [ARCODEAUS - The Noahide Laws - May 20, 2017](https://www.youtube.com/watch?v=oETRa_ExfXA)
 - [CHRISTIANS MUST WATCH we are being LIED TO ISRAELITES](https://www.youtube.com/watch?v=xNTdajfE14Y)
 - [The TRUE Hebrew Israelites defined by Scripture and history. WARNING you will be shocked!!!](https://www.youtube.com/watch?v=bEDfrBBPZzg)
+- [A History of the True Hebrews (Documentary)](https://www.youtube.com/watch?v=biPDp8pGqGg)
+- [WHO ARE THE REAL BIBLICAL ISRAELITES?](https://www.youtube.com/watch?v=HuUAnpIPK5E)
+- [EUROPEAN CONFESSIONS-AFRICAN AMERICANS ARE THE TRUE ISRAELITES AND THE CHOSEN PEOPLE OF GOD](https://www.youtube.com/watch?v=ja93FjyCSfo)
 
 
 ![flat-earth-isaiah40-22](flat-earth-isaiah40-22.jpg)
