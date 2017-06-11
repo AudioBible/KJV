@@ -141,6 +141,8 @@ o   o   o o---oOO   O-o      |   | O--o      | \ | O-o  |   |
 
 ![flat-earth-model](flat-earth-model.gif)
 
+![SunAnimation](SunAnimation.gif)
+
 # BE KIND TO EACH OTHER
 
 ![56f6b029eb00d9b24cc7470fd0a68468](56f6b029eb00d9b24cc7470fd0a68468.jpg)
