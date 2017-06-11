@@ -11,6 +11,8 @@ King James Version Audio Bible for Mac, Windows and Unix/Linux
 - [Russian Audio Bible Download for MP3 or iPod devices](http://www.audiobible.com/download-russian-audio-bible-mp3-and-ipod/)
 - [Mandarin Chinese Audio Bible Download for MP3, iPhone or iPod](http://www.audiobible.com/mandarin-chinese-audio-bible-download-mp3-ipod-devices/)
 
+# I pray God helps you to see, hear, read and understand! God Bless You!
+
 ## Install On Mac
 
     brew install python libxml2                                 # install dependencies
