@@ -1,6 +1,8 @@
 King James Version Audio Bible
 ==============================
 
+# AudioBible
+
 King James Version Audio Bible for Mac, Windows and Unix/Linux
 
 **Note:** Tested and created on a Mac, should work on Windows and Unix/Linux and other OSes.
@@ -12,8 +14,6 @@ King James Version Audio Bible for Mac, Windows and Unix/Linux
 - [Mandarin Chinese Audio Bible Download for MP3, iPhone or iPod](http://www.audiobible.com/mandarin-chinese-audio-bible-download-mp3-ipod-devices/)
 
 # I pray God helps you to see, hear, read and understand and most importantly do something right about it! God bless you on your journey!
-
-# God bless you on your journey!
 
 ## Install On Mac
 
@@ -118,6 +118,8 @@ King James Version Audio Bible for Mac, Windows and Unix/Linux
 
 # THE EARTH IS FLAT! [RESEARCH IT ON YOUTUBE](https://www.youtube.com/results?search_query=flat+earth&page=&utm_source=opensearch)!
 
+# THIS IS POSITIVE INFO! IT'S A MATTER OF PERSPECTIVE!
+
 
 - [Under The Dome - Full Documentary](https://www.youtube.com/watch?v=fk4YqPtvJao)
 - [A History Of Flat Earth - Eric Dubay](https://www.youtube.com/watch?v=pGl8I3l-5ac)
@@ -167,6 +169,23 @@ King James Version Audio Bible for Mac, Windows and Unix/Linux
 - [Society Is Being Programmed By A Black Box](https://www.youtube.com/watch?v=rQmIPK7DQh8)
 - [The Privacyless, Freedomless Smart City of 2030 the Elite Are Engineering](https://www.youtube.com/watch?v=GRybM76qx6I)
 - [Obsolete — Full Documentary Official (2016)](https://www.youtube.com/watch?v=jPmUGq25KBk)
+- [Rosa Koire : Smart Cities are Future Agenda 21 Hi-Tech Monitored Concentration](https://www.youtube.com/watch?v=p3XuSo03N7s)
+- [Why Are We Literally Eating Demon-Shaped Dead Food in This Society?](https://www.youtube.com/watch?v=EeK_iampjjg)
+- [We Are Being Groomed for the Next Big War](https://www.youtube.com/watch?v=poQPBppFyWM)
+- [Elon Musk: 'We Must Hack Our Brains or Be Destroyed by AI'](https://www.youtube.com/watch?v=MOs-ib5STPE)
+- [NASA's Future of War 2025 Is Already Here! (HD)](https://www.youtube.com/watch?v=aDpGB9J27_g)
+- [What Bilderberg Really Wants In 2017](https://www.youtube.com/watch?v=EbFMnrPbAmU)
+- [AGENDA 21 THE MOVIE: THE MEGACITIES ARE COMING.](https://www.youtube.com/watch?v=mZhI9vvZ2Wo)
+- [This Creepy Patent Proves They Can Remotely Hijack Your Nervous System](https://www.youtube.com/watch?v=yf_EdKxfDiY)
+- [Trump's New World Order](https://www.youtube.com/watch?v=eLS5h1ZDKvE)
+- [Agenda 21 Smart Cities: Orwell's Dystopic Nightmare Comes True](https://www.youtube.com/watch?v=T9DK0JThOio)
+- [Bill Gates Just Warned a New Bioweapon Will Wipe Out 30 Million](https://www.youtube.com/watch?v=sErgwyD2KR0)
+- [WOLVES IN SHEEP'S CLOTHING: How the public was duped into socialism, but got totalitarianism](https://www.youtube.com/watch?v=cYgyDjl2nCU)
+- [Psywar - Full Documentary](https://www.youtube.com/watch?v=2eB046f998U)
+- [We Are Becoming the Internet, the Internet Is Becoming Us](https://www.youtube.com/watch?v=GnLyjsO7mZc)
+- [The Real Secrets Hidden in Antarctica... Revealed](https://www.youtube.com/watch?v=237F1_aLXZ8)
+- [6 Secret Cities That Prove We Don't Know What's Really Going On](https://www.youtube.com/watch?v=wYyBcOLq8bs)
+- [Two Top Secret Missions Disguised As Historic Moments You Thought Were Real](https://www.youtube.com/watch?v=1ZiQUngMhr4)
 
 
 ## God is so kind that it is impossible to imagine His unbounded kindness
@@ -202,3 +221,6 @@ o   o   o o---oOO   O-o      |   | O--o      | \ | O-o  |   |
 ## WARNING! DEMONIC SIGILS OF SUMMONING! FOR EDUCATIONAL PURPOSES!
 
 ![Demons](demons.png)
+
+## OPEN YOUR MIND! BREAK FREE FROM THE LIES AND SATANIC PROGRAMMING!
+
