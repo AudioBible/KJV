@@ -141,6 +141,14 @@ King James Version Audio Bible for Mac, Windows and Unix/Linux
 - [BEST FLAT EARTH PROOF 2017 - YOU CANT DENY THIS EVIDENCE](https://www.youtube.com/watch?v=awl8Eel7fgg)
 - [How to Quit Your Slave Job (and Live Your Dream Life!)](https://www.youtube.com/watch?v=HLwNG5l0Yoo)
 - [The Most Important Thing in Your Life](https://www.youtube.com/watch?v=sKH-NmLFDH4)
+- [Satan's Computer; What you Where Not Taught In School, This Will Blow Your Mind - Flat Earth Stream](https://www.youtube.com/watch?v=jwK6aUfTrvQ)
+- [ANONYMOUS. URGENT MESSAGE: SOCIAL MEDIA AND THE MARK OF THE BEAST. NWO AGENDA ARRIVES](https://www.youtube.com/watch?v=X6plO9aABeQ)
+- [The MARK of The BEAST Identified](https://www.youtube.com/watch?v=13RzjyhKz3M)
+- [Trump Declares "One World Currency" Sooner than most think (bloomberg)](https://www.youtube.com/watch?v=PuH_wCwxBhw)
+- [Devils tower and Pagan rituals](https://www.youtube.com/watch?v=y2dBpiS_Aik)
+- [Donald Trump's Saudi Arabia Visit "Orb Ritual" - Melania & Ivanka Are Men!](https://www.youtube.com/watch?v=ktFzCnMn6_Y)
+- [Trump will usher in the 7 Noahide Laws ONE WORLD RELIGION](https://www.youtube.com/watch?v=sPEQO-3UqkM)
+- [ARCODEAUS - The Noahide Laws - May 20, 2017](https://www.youtube.com/watch?v=oETRa_ExfXA)
 
 
 ![flat-earth-isaiah40-22](flat-earth-isaiah40-22.jpg)
