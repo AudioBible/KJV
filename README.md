@@ -155,6 +155,7 @@ King James Version Audio Bible for Mac, Windows and Unix/Linux
 - [WHO ARE THE REAL BIBLICAL ISRAELITES?](https://www.youtube.com/watch?v=HuUAnpIPK5E)
 - [EUROPEAN CONFESSIONS-AFRICAN AMERICANS ARE THE TRUE ISRAELITES AND THE CHOSEN PEOPLE OF GOD](https://www.youtube.com/watch?v=ja93FjyCSfo)
 
+## God is so kind that it is impossible to imagine His unbounded kindness
 
 ![flat-earth-isaiah40-22](flat-earth-isaiah40-22.jpg)
 
@@ -182,6 +183,6 @@ o   o   o o---oOO   O-o      |   | O--o      | \ | O-o  |   |
 
 ![Globe](globe_1.jpg)
 
-# WARNING! DEMONIC SIGILS OF SUMMONING! FOR EDUCATIONAL PURPOSES!
+## WARNING! DEMONIC SIGILS OF SUMMONING! FOR EDUCATIONAL PURPOSES!
 
 ![Demons](demons.png)
