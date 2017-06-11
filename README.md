@@ -112,9 +112,6 @@ King James Version Audio Bible for Mac, Windows and Unix/Linux
 
 # THE EARTH IS FLAT! [RESEARCH IT ON YOUTUBE](https://www.youtube.com/results?search_query=flat+earth&page=&utm_source=opensearch)!
 
-![flat-earth-isaiah40-22](flat-earth-isaiah40-22.jpg)
-
-![Flat Earth; Exposing the Jesuit Agenda! 4](Flat-Earth-Exposing-the-Jesuit-Agenda-4.png)
 
 - [Under The Dome - Full Documentary](https://www.youtube.com/watch?v=fk4YqPtvJao)
 - [A History Of Flat Earth - Eric Dubay](https://www.youtube.com/watch?v=pGl8I3l-5ac)
@@ -126,6 +123,16 @@ King James Version Audio Bible for Mac, Windows and Unix/Linux
 - [THE BEST Flat Earth VIDEO | 1000% Proof The Earth Is Flat | Lets See You Debunk This!!!!](https://www.youtube.com/watch?v=p7lDq4dOlIk)
 
 
+![flat-earth-isaiah40-22](flat-earth-isaiah40-22.jpg)
+
+# WHAT DOES THE REAL WORLD LOOK LIKE?
+
+![Flat Earth; Exposing the Jesuit Agenda! 4](Flat-Earth-Exposing-the-Jesuit-Agenda-4.png)
+
+# PRAISE GOD FOR THE FLAT EARTH TRUTH! JESUS LIVES!
+
+![Gleasons-New-Standard-Map](Gleasons-New-Standard-Map.jpg)
+
 o       o   O  o  o o--o     o   o o--o      o   o o--o  o-o  
 |       |  / \ | /  |        |   | |   |     |\  | |    o   o 
 o   o   o o---oOO   O-o      |   | O--o      | \ | O-o  |   | 
@@ -134,3 +141,6 @@ o   o   o o---oOO   O-o      |   | O--o      | \ | O-o  |   |
 
 
 # BE KIND TO EACH OTHER
+
+![56f6b029eb00d9b24cc7470fd0a68468](56f6b029eb00d9b24cc7470fd0a68468.jpg)
+
