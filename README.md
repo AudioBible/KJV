@@ -11,7 +11,7 @@ King James Version Audio Bible for Mac, Windows and Unix/Linux
 - [Russian Audio Bible Download for MP3 or iPod devices](http://www.audiobible.com/download-russian-audio-bible-mp3-and-ipod/)
 - [Mandarin Chinese Audio Bible Download for MP3, iPhone or iPod](http://www.audiobible.com/mandarin-chinese-audio-bible-download-mp3-ipod-devices/)
 
-# I pray God helps you to see, hear, read and understand and most importantly do something about it!
+# I pray God helps you to see, hear, read and understand and most importantly do something right about it! God bless you on your journey!
 
 # God bless you on your journey!
 
@@ -165,6 +165,8 @@ King James Version Audio Bible for Mac, Windows and Unix/Linux
 - [You Won't Believe What They Admitted on the News in 1971...](https://www.youtube.com/watch?v=yfaAtdTgBGk)
 - [Mass Hypnosis and Trigger Words](https://www.youtube.com/watch?v=fznpRaM1wIg)
 - [Society Is Being Programmed By A Black Box](https://www.youtube.com/watch?v=rQmIPK7DQh8)
+- [The Privacyless, Freedomless Smart City of 2030 the Elite Are Engineering](https://www.youtube.com/watch?v=GRybM76qx6I)
+- [Obsolete — Full Documentary Official (2016)](https://www.youtube.com/watch?v=jPmUGq25KBk)
 
 
 ## God is so kind that it is impossible to imagine His unbounded kindness
