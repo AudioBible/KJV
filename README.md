@@ -52,3 +52,7 @@ King James Version Audio Bible
     ZECHARIAH                     |   14    |
     MALACHI                       |   4     | 
  
+
+# THE EARTH IS FLAT! [RESEARCH IT ON YOUTUBE](https://www.youtube.com/results?search_query=flat+earth&page=&utm_source=opensearch)!
+
+![flat-earth-isaiah40-22](flat-earth-isaiah40-22.jpg)
