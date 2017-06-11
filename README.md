@@ -176,3 +176,5 @@ o   o   o o---oOO   O-o      |   | O--o      | \ | O-o  |   |
 
 ![56f6b029eb00d9b24cc7470fd0a68468](56f6b029eb00d9b24cc7470fd0a68468.jpg)
 
+![Globe](globe_1.jpg)
+
