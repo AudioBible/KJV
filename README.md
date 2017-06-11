@@ -149,6 +149,7 @@ King James Version Audio Bible for Mac, Windows and Unix/Linux
 - [Donald Trump's Saudi Arabia Visit "Orb Ritual" - Melania & Ivanka Are Men!](https://www.youtube.com/watch?v=ktFzCnMn6_Y)
 - [Trump will usher in the 7 Noahide Laws ONE WORLD RELIGION](https://www.youtube.com/watch?v=sPEQO-3UqkM)
 - [ARCODEAUS - The Noahide Laws - May 20, 2017](https://www.youtube.com/watch?v=oETRa_ExfXA)
+- [CHRISTIANS MUST WATCH we are being LIED TO ISRAELITES](https://www.youtube.com/watch?v=xNTdajfE14Y)
 
 
 ![flat-earth-isaiah40-22](flat-earth-isaiah40-22.jpg)
