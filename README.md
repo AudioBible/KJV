@@ -154,6 +154,8 @@ King James Version Audio Bible for Mac, Windows and Unix/Linux
 - [A History of the True Hebrews (Documentary)](https://www.youtube.com/watch?v=biPDp8pGqGg)
 - [WHO ARE THE REAL BIBLICAL ISRAELITES?](https://www.youtube.com/watch?v=HuUAnpIPK5E)
 - [EUROPEAN CONFESSIONS-AFRICAN AMERICANS ARE THE TRUE ISRAELITES AND THE CHOSEN PEOPLE OF GOD](https://www.youtube.com/watch?v=ja93FjyCSfo)
+- [Demonic Sigils and Eyes in the Skies](https://www.youtube.com/watch?v=N-kdx5IhIoc)
+
 
 ## God is so kind that it is impossible to imagine His unbounded kindness
 
