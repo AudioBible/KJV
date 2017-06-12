@@ -13,7 +13,13 @@ King James Version Audio Bible for Mac, Windows and Unix/Linux
 - [Russian Audio Bible Download for MP3 or iPod devices](http://www.audiobible.com/download-russian-audio-bible-mp3-and-ipod/)
 - [Mandarin Chinese Audio Bible Download for MP3, iPhone or iPod](http://www.audiobible.com/mandarin-chinese-audio-bible-download-mp3-ipod-devices/)
 
-# I pray God helps you to see, hear, read and understand and most importantly do something right about it! God bless you on your journey!
+**ISAIAH 40:22:** It is he that sitteth upon the circle of the earth, and the inhabitants thereof are as grasshoppers; that stretcheth out the heavens as a curtain, and spreadeth them out as a tent to dwell in:
+
+**ISAIAH 40:23:** That bringeth the princes to nothing; he maketh the judges of the earth as vanity.
+
+**ISAIAH 40:24:** Yea, they shall not be planted; yea, they shall not be sown: yea, their stock shall not take root in the earth: and he shall also blow upon them, and they shall wither, and the whirlwind shall take them away as stubble.
+
+# I pray God helps you to see, hear, read and understand and most importantly do something right about it! God bless you on your journey! Thank you for reading.
 
 ## Install On Mac
 
@@ -191,6 +197,9 @@ King James Version Audio Bible for Mac, Windows and Unix/Linux
 - [6 Secret Cities That Prove We Don't Know What's Really Going On](https://www.youtube.com/watch?v=wYyBcOLq8bs)
 - [Two Top Secret Missions Disguised As Historic Moments You Thought Were Real](https://www.youtube.com/watch?v=1ZiQUngMhr4)
 - [AGENDA 21 THE MOVIE: THE MEGACITIES ARE COMING.](https://www.youtube.com/watch?v=mZhI9vvZ2Wo)
+- [POWERUL TESTIMONY!! THIS MAN SAW HITLER AND OTHER EVIL PEOPLE IN HELL DURING A NEAR DEATH EXPERIENCE](https://www.youtube.com/watch?v=xt9xodhZ5KI)
+- [Aaliyah, Lefteye,Biggie,Eazy E,Whitney Houston, Amy Winehouse Are All N Hell](https://www.youtube.com/watch?v=wwUffrMRDqE)
+- [CELEBRITIES SEEN IN HELL (TUPAC, ROBIN WILLIAMS, ELVIS, HEATH LEDGER, AND MORE)](https://www.youtube.com/watch?v=_gNw4SGGwDU)
 
 
 ## God is so kind that it is impossible to imagine His unbounded kindness
@@ -228,4 +237,6 @@ o   o   o o---oOO   O-o      |   | O--o      | \ | O-o  |   |
 ![Demons](demons.png)
 
 ## OPEN YOUR MIND! BREAK FREE FROM THE LIES AND SATANIC PROGRAMMING!
+
+![youtube-search-flat-earth-letter](youtube-search-flat-earth-letter.jpg)
 
