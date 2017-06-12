@@ -35,6 +35,8 @@ King James Version Audio Bible for Mac, Windows and Unix/Linux
 ## How to use
 
     pip install --upgrade audiobible                            # update AudioBible to the latest version
+
+    audiobible update                                           # update AudioBible using pip command internally
     
     audiobible -h | --help                                      # show help
     audiobible help                                             # show help
@@ -42,21 +44,27 @@ King James Version Audio Bible for Mac, Windows and Unix/Linux
     audiobible version                                          # show version number and exit
     
     audiobible init                                             # download data about all books and chapters in the KJV
+    
     audiobible load                                             # download all books' and chapters' text and audio mp3 files
     
     audiobible list                                             # to list all books and the number of chapters each book has
     
-    audiobible hear                                             # to hear the book of "Genesis" chapter 1
+    audiobible praise                                           # open a browser to a youtube playlist with hymns for praising God
+    
+    audiobible path daniel                                      # show the path on the hard drive to the book of "Daniel"
+    
+    audiobible quote                                            # to output a quote
+    
     audiobible hear mark                                        # to hear the book of "Mark" chapter 1
     audiobible hear -b mark                                     # to hear the book of "Mark" chapter 1
     audiobible hear mark 4                                      # to hear the book of "Mark" chapter 4
     audiobible hear -b mark -c 4                                # to hear the book of "Mark" chapter 4
     audiobible hear 1_john 3                                    # to hear the book of "1 John" chapter 3
     audiobible hear -b 1_john -c 3                              # to hear the book of "1 John" chapter 3
-    audiobible hear psalms 71                                   # to hear a Prayer for God's Protection, praying is left up to the hearer
     
-    audiobible read mark 4                                      # to read Mark 4, (use params like with hear operation), please disable your hearing protection
-    audiobible read psalms 71                                   # to read a Prayer for God's Protection, praying is left up to the reader
+    audiobible read mark 4                                      # to read Mark 4, (use params like with hear operation)
+    
+    audiobible show mark 4                                      # to show the book of "Mark" chapter 4 text in the terminal
     
     audiobible find                                             # to output the whole Bible
     audiobible find -b 2_john                                   # to output the whole book of "2 John"
