@@ -232,11 +232,10 @@ o   o   o o---oOO   O-o      |   | O--o      | \ | O-o  |   |
 
 # AUDIOBIBLE HEAR PSALMS 71
 
-## WARNING! DEMONIC SIGILS OF SUMMONING! FOR EDUCATIONAL PURPOSES!
-
-![Demons](demons.png)
-
 ## OPEN YOUR MIND! BREAK FREE FROM THE LIES AND SATANIC PROGRAMMING!
 
 ![youtube-search-flat-earth-letter](youtube-search-flat-earth-letter.jpg)
 
+## WARNING! DEMONIC SIGILS OF SUMMONING! FOR EDUCATIONAL PURPOSES!
+
+![Demons](demons.png)
