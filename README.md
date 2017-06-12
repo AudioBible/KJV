@@ -214,12 +214,6 @@ King James Version Audio Bible for Mac, Windows and Unix/Linux
 
 ![Gleasons-New-Standard-Map](Gleasons-New-Standard-Map.jpg)
 
-o       o   O  o  o o--o     o   o o--o      o   o o--o  o-o  
-|       |  / \ | /  |        |   | |   |     |\  | |    o   o 
-o   o   o o---oOO   O-o      |   | O--o      | \ | O-o  |   | 
- \ / \ /  |   || \  |        |   | |         |  \| |    o   o 
-  o   o   o   oo  o o--o      o-o  o         o   o o--o  o-o  
-
 ![flat-earth-model](flat-earth-model.gif)
 
 ![SunAnimation](SunAnimation.gif)
