@@ -208,7 +208,34 @@ King James Version Audio Bible for Mac, Windows and Unix/Linux
 - 68: [Aaliyah, Lefteye,Biggie,Eazy E,Whitney Houston, Amy Winehouse Are All N Hell](https://www.youtube.com/watch?v=wwUffrMRDqE)
 - 69: [CELEBRITIES SEEN IN HELL (TUPAC, ROBIN WILLIAMS, ELVIS, HEATH LEDGER, AND MORE)](https://www.youtube.com/watch?v=_gNw4SGGwDU)
 - 70: [INDIA IMPLEMENTING THE BEAST SYSTEM. CAN'T BUY OR SELL UNLESS YOU TAKE A 12 DIGIT NUMBER](https://www.youtube.com/watch?v=ppEDMsnMfJw)
+- 71: [HITLER: Negroes are The True Jews](https://www.youtube.com/watch?v=NE-X985_prM)
+- 72: [Blacks are in fact the true jews of the bible](https://www.youtube.com/watch?v=FaqCyBlwCxQ&list=PLA3OCbJL135SGuahCKhuQ20eKMiSdXm2t)
+- 73: [THE TRUTH ON THE REAL HEBREW ISRAELITES IS OUT AND THE NATIONS ARE TERRIFIED !!!!!!](https://www.youtube.com/watch?v=mP2ivfkfHVM)
+- 74: [Video 10- Testimonies of Edomites/Gentiles Telling Blacks They Are the True Hebrew Israelites](https://www.youtube.com/watch?v=qhjajMbTX1Y)
+- 75: [Pt 1 Even the Syrian Refugees Know the Real Hebrew Israelites are Black](https://www.youtube.com/watch?v=YWjd36NOGBg)
+- 76: [The Real Hebrews](https://www.youtube.com/watch?v=WvqvteApUGQ)
+- 77: [The Real Hebrews 2](https://www.youtube.com/watch?v=IgGXD5nqWXQ&spfreload=1)
+- 78: [Adolf Hitler The greatest story Never told Full 6 hours Documentary](https://www.youtube.com/watch?v=7XExjrZxTdk)
+- 79: [World Defeated The Wrong Enemy](https://www.youtube.com/watch?v=bm34sj65MkA)
+- 80: [Become a Holocaust Denier in 14 Minutes](https://www.youtube.com/watch?v=XEZkvsK7nfo)
+- 81: [David Irving Exposes The Holocaust Legend](https://www.youtube.com/watch?v=mYCwaIt-GUM)
+- 82: [Celebrities speaking about Zionist Jews](https://www.youtube.com/watch?v=_xchaB_JcAY)
+- 83: [EVERYONE NEEDS TO WATCH THIS!! The Protocols of Zion Full Movie](https://www.youtube.com/watch?v=sWjWGVYCMvg)
+- 84: [David Irving - Jailed and Beaten For Telling Truth of 2nd World War](https://www.youtube.com/watch?v=8cAFpi4tHMM)
+- 85: [The Deleted Interview that George Soros Tried to Ban!](https://www.youtube.com/watch?v=SUdosc33eSE)
+- 86: [The Illustrated Protocols of Zion by David Duke](https://www.youtube.com/watch?v=d-xjLa9xrOo)
+- 87: [Protocols of Zion The Roadway to destroy America (RichieFromBoston)](https://www.youtube.com/watch?v=848o93RAJtA)
+- 88: [Why the Jewish Elite Hates Donald Trump](https://www.youtube.com/watch?v=HV2GhOkQ1yY)
+- 89: [Do Zionists Control Wall Street? The Shocking Facts!](https://www.youtube.com/watch?v=pUY7o7pX6vk)
+- 90: [Ahmadinejad: They're finished, the Zionist regime is finished.](https://www.youtube.com/watch?v=oLkiM4CHAJo)
+- 91: [Israelis Are Not Jews and American Leaders Are Not Christian](https://www.youtube.com/watch?v=PrWguVsEih0)
+- 92: [Ahmadinejad on Jews - Larry King](https://www.youtube.com/watch?v=_vYXcna8Pxw)
+- 93: [Charlie Rose - Dr. Mahmoud Ahmadinejad, President of Islamic Republic of Iran | Sept. 20, 2010](https://www.youtube.com/watch?v=Im_bRb8CKDk)
+- 94: [Mein Kampf - Audio Book](https://www.youtube.com/watch?v=xDOPHZC936c)
+- 95: [08/08/2006 President Ahmadinejad Interview](https://www.youtube.com/watch?v=bFCUX5JSA14)
 
+
+**Note:** If some of the youtube video links above don't work, search for the video by name in the youtube search
 
 ## God is so kind that it is impossible to imagine His unbounded kindness
 
@@ -235,6 +262,72 @@ King James Version Audio Bible for Mac, Windows and Unix/Linux
 # AUDIOBIBLE HEAR PSALMS 71
 
 ## OPEN YOUR MIND! BREAK FREE FROM THE LIES AND SATANIC PROGRAMMING!
+
+# HISTORY REPEATS ITSELF
+
+![holocaust-is-a-hoax](holocaust-is-a-hoax.png)
+
+![hitler-facts](hitler-facts.png)
+
+# THE WAR ON THE PEOPLE NEVER ENDED
+
+![jews-declare-war-on-germany](jews-declare-war-on-germany.png)
+
+![germany1](germany1.png)
+
+![germany2](germany2.png)
+
+![american-genocide](american-genocide.png)
+
+![last-indian-massacre](last-indian-massacre.png)
+
+![red-indians-wiped-out-and-re-educated](red-indians-wiped-out-and-re-educated.png)
+
+![usa-mexican-repatriation-act1](usa-mexican-repatriation-act1.png)
+
+![usa-mexican-repatriation-act2](usa-mexican-repatriation-act2.png)
+
+![jesse-owens-story](jesse-owens-story.png)
+
+![german-troops](german-troops.png)
+
+![western-powers-are-liars](western-powers-are-liars.png)
+
+![he-didnt-want-war-he-only-wanted-peace](he-didnt-want-war-he-only-wanted-peace.png)
+
+![roosevelt-churchill](roosevelt-churchill.png)
+
+![roosevelt-churchill-stalin-war-criminals](roosevelt-churchill-stalin-war-criminals.png)
+
+![false-witness-rudolf-hoss](false-witness-rudolf-hoss.png)
+
+![german-atrocities-misleading](german-atrocities-misleading.png)
+
+![no-proof-hitler-ordered-killing-of-jews](no-proof-hitler-ordered-killing-of-jews.png)
+
+![no-witnesses-no-pohotos-nothing-of-gassed-victims](no-witnesses-no-pohotos-nothing-of-gassed-victims.png)
+
+![hitler-on-zionists](hitler-on-zionists.png)
+
+![protocol-of-zion1](protocol-of-zion1.png)
+
+![protocol-of-zion2](protocol-of-zion2.png)
+
+![protocol-of-zion3](protocol-of-zion3.png)
+
+![protocol-of-zion4](protocol-of-zion4.png)
+
+![protocol-of-zion5](protocol-of-zion5.png)
+
+![protocol-of-zion6](protocol-of-zion6.png)
+
+![henry-ford-on-protocols-of-zion](henry-ford-on-protocols-of-zion.png)
+
+# THEY ARE THE SAME ONES WHO CRUCIFIED JESUS
+
+![INRI](INRI.png)
+
+## HERE IS A FLIER YOU CAN PRINT AND GIVE OUT TO PEOPLE
 
 ![youtube-search-flat-earth-letter](youtube-search-flat-earth-letter.jpg)
 
