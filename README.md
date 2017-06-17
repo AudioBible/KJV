@@ -412,7 +412,11 @@
 - 215: [JOEL OSTEEN DENIES JESUS CHRIST & OPRAH WINFREY EXPOSED! Joel Osteen hoax ](https://www.youtube.com/watch?v=weEWl52wevI)
 - 216: [Beware: The Greatest Deception of All - Billions will be Deceived](https://www.youtube.com/watch?v=8Gsj9Ed8qkU)
 - 217: [528 HZ Healing Frequency Of Satan & Vibes New Age Belief Breakdowns Part 4](https://www.youtube.com/watch?v=1OQ-2faooKw)
-
+- 218: [The Secret Satanic Law of Attraction EXPOSED !!! Illuminati Spirituality !!!](https://www.youtube.com/watch?v=Ri2zfQCoTGc)
+- 219: [Yoga is a Satanic Spiritual Practice BEWARE !!! X Yoga Instructor Speaks Out !!!](https://www.youtube.com/watch?v=wKwEkXcmEUQ)
+- 220: [Did The Illuminati Change or Write The Bible !?!?!](https://www.youtube.com/watch?v=dOMFbsTZVlc)
+- 221: [The Third Eye = Satanic Portal to The Demonic Realm](https://www.youtube.com/watch?v=WbnhIL77tPA)
+- 222: [Joel Osteen, Oprah, "The Secret," New Age Occultism & Christianity](https://www.youtube.com/watch?v=u0iXw3WnRq8)
 
 ## [StopLookThink.com](http://stoplookthink.com)
 
