@@ -422,7 +422,10 @@
 - 210: [THE TIME HAS COME! THE NAKED TRUTH ABOUT JEWS](https://www.youtube.com/watch?v=dTrrHtcdES0)
 - 211: [Leonard Horowitz speaks about 528 HZ Healing Frequency in Vancouver, Washington (2008)](https://www.youtube.com/watch?v=A8SMtbQ7mfk)
 - 212: [IN LIES WE TRUST - The Secret Pharmaceutical Drug Conspiracy](https://www.youtube.com/watch?v=NkHcEGZ8oVs)
-
+- 213: [ILLUMINATI PASTORS EXPOSED !!!!](https://www.youtube.com/watch?v=k5azmloxpCw)
+- 214: [Joel Osteen Exposed - Reptilian False Prophets](https://www.youtube.com/watch?v=Gba8BtJAOqg)
+- 215: [JOEL OSTEEN DENIES JESUS CHRIST & OPRAH WINFREY EXPOSED! Joel Osteen hoax ](https://www.youtube.com/watch?v=weEWl52wevI)
+- 216: [Beware: The Greatest Deception of All - Billions will be Deceived](https://www.youtube.com/watch?v=8Gsj9Ed8qkU)
 
 ## [StopLookThink.com](http://stoplookthink.com)
 
