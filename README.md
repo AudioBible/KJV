@@ -6,6 +6,7 @@
 - [Illumination of the Third Eye - Pastor Charles Lawson](https://www.youtube.com/watch?v=8B-KT94bWHg)
 - [The Fruits Of The Holy Spirit](https://www.youtube.com/watch?v=AFNAriKobp8)
 - [Beware the Emerging Church Movement (Pastor Charles Lawson)](https://www.youtube.com/watch?v=3QJ226sGfNI)
+- [Great Deception Is Settling In (Pastor Charles Lawson)](https://www.youtube.com/watch?v=WZMf5l9SG9I)
 - [http://pastorcharleslawson.org/](http://pastorcharleslawson.org/)
 
 # Install On Mac
