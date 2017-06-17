@@ -7,6 +7,7 @@
 - [The Fruits Of The Holy Spirit](https://www.youtube.com/watch?v=AFNAriKobp8)
 - [Beware the Emerging Church Movement (Pastor Charles Lawson)](https://www.youtube.com/watch?v=3QJ226sGfNI)
 - [Great Deception Is Settling In (Pastor Charles Lawson)](https://www.youtube.com/watch?v=WZMf5l9SG9I)
+- [What Must I Do To Be Saved? (Pastor Charles Lawson)](https://www.youtube.com/watch?v=EDOeS0fNIJc)
 - [http://pastorcharleslawson.org/](http://pastorcharleslawson.org/)
 
 # Install On Mac
