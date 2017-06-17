@@ -417,6 +417,12 @@
 - 220: [Did The Illuminati Change or Write The Bible !?!?!](https://www.youtube.com/watch?v=dOMFbsTZVlc)
 - 221: [The Third Eye = Satanic Portal to The Demonic Realm](https://www.youtube.com/watch?v=WbnhIL77tPA)
 - 222: [Joel Osteen, Oprah, "The Secret," New Age Occultism & Christianity](https://www.youtube.com/watch?v=u0iXw3WnRq8)
+- 223: [Yoga and the Occult: Ex Witch Tells All](https://www.youtube.com/watch?v=uoxs8ixsmrk)
+- 224: [Think you can be Christian and do Yoga? PLS LISTEN TO THIS!](https://www.youtube.com/watch?v=6DZ7oz_fIq8)
+- 225: [Occult Objects In Your House Give Demons Legal Ground](https://www.youtube.com/watch?v=fC6TVczb8Uc)
+- 226: [The Secret Dangers Behind Martial Arts !](https://www.youtube.com/watch?v=ZiC8JWoxhqs)
+- 227: [High Level Occult Yoga - Woman Experiences a Glimpse of Hell!](https://www.youtube.com/watch?v=uYq7UP25A7g)
+- 228: [Recognizing Demonic Activity in your Life](https://www.youtube.com/watch?v=4_ZdKN_MHd0)
 
 ## [StopLookThink.com](http://stoplookthink.com)
 
