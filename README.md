@@ -2,6 +2,8 @@
 
 ## King James Version Audio Bible for Mac, Windows and Unix/Linux
 
+### [http://sermonaudio.com](http://sermonaudio.com)
+
 - [Are You Serious? Flat Earth?](https://www.youtube.com/watch?v=VkGm0rcxCBU)
 - [Illumination of the Third Eye - Pastor Charles Lawson](https://www.youtube.com/watch?v=8B-KT94bWHg)
 - [The Fruits Of The Holy Spirit](https://www.youtube.com/watch?v=AFNAriKobp8)
@@ -423,6 +425,8 @@
 - 226: [The Secret Dangers Behind Martial Arts !](https://www.youtube.com/watch?v=ZiC8JWoxhqs)
 - 227: [High Level Occult Yoga - Woman Experiences a Glimpse of Hell!](https://www.youtube.com/watch?v=uYq7UP25A7g)
 - 228: [Recognizing Demonic Activity in your Life](https://www.youtube.com/watch?v=4_ZdKN_MHd0)
+- 229: [I Believe In God, Not Jesus](https://www.youtube.com/watch?v=eJVKFZoy2Lk)
+- 230: [Tattoos and Blood Rituals](https://www.youtube.com/watch?v=5ynavOLejrc)
 
 ## [StopLookThink.com](http://stoplookthink.com)
 
