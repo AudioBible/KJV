@@ -27,6 +27,7 @@
 - [INTRODUCING THE NEW MEN'S FASHION OFFICE ATTIRE OF 2017!](https://www.youtube.com/watch?v=cesCNxWGJbI)
 - [THE LAKE OF FIRE IS GETTING HOTTER BY THE SECOND!](https://www.youtube.com/watch?v=dNqrYiV3j-0)
 - [THIS WILL MAKE YOU WANT TO PULL YOUR HAIR OUT!](https://www.youtube.com/watch?v=LjOJj34k_Gs)
+- [Gone at 33: YouTube Star Stevie Ryan - Dark Industry Revealed](https://www.youtube.com/watch?v=ips1pAqwaFE)
 
 ### [Space may be the final frontier, but it's made in a hollywood basement](audiobible/space.m4a) [download song/remix]
 
