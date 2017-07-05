@@ -26,6 +26,7 @@
 - [they found noah's ark in 1968, they had keep hidden from us all this time](https://www.youtube.com/watch?v=ARltPIRR76U)
 - [INTRODUCING THE NEW MEN'S FASHION OFFICE ATTIRE OF 2017!](https://www.youtube.com/watch?v=cesCNxWGJbI)
 - [THE LAKE OF FIRE IS GETTING HOTTER BY THE SECOND!](https://www.youtube.com/watch?v=dNqrYiV3j-0)
+- [THIS WILL MAKE YOU WANT TO PULL YOUR HAIR OUT!](https://www.youtube.com/watch?v=LjOJj34k_Gs)
 
 ### [Space may be the final frontier, but it's made in a hollywood basement](audiobible/space.m4a) [download song/remix]
 
