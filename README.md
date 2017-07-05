@@ -57,6 +57,9 @@
 - [What Must I Do To Be Saved? (Pastor Charles Lawson)](https://www.youtube.com/watch?v=EDOeS0fNIJc)
 - [What To Do When You Mess Up (Pastor Charles Lawson)](https://www.youtube.com/watch?v=7qsV_wKsCtk)
 - [They Will Take Your Children Jun 28 2017](https://www.youtube.com/watch?v=Qz1ISvHLl_g)
+- [The Rapture is at Hand](https://www.youtube.com/watch?v=3vQ3PMYqrRw)
+- [Rapture Part 2](https://www.youtube.com/watch?v=j5-xXFgiyXg)
+- [The Rapture Explained April 9 2017 Sunday School](https://www.youtube.com/watch?v=ChFAhcaUD0Y)
 - [http://pastorcharleslawson.org/](http://pastorcharleslawson.org/)
 
 **Note:** Watch more on youtube [The Mind of God (Pastor Charles Lawson)](https://www.youtube.com/watch?v=RoF9iBRyLAI&list=PLHjf9oqszTVaOR3XenoMOBHKY1SrBFYFu) [playlist]
