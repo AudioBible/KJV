@@ -60,6 +60,8 @@
 - [The Rapture is at Hand](https://www.youtube.com/watch?v=3vQ3PMYqrRw)
 - [Rapture Part 2](https://www.youtube.com/watch?v=j5-xXFgiyXg)
 - [The Rapture Explained April 9 2017 Sunday School](https://www.youtube.com/watch?v=ChFAhcaUD0Y)
+- [The Elite Conjure up Lucifer](https://www.youtube.com/watch?v=4WBu91fjAJE)
+- [Lucifer Infects The Movers & Shakers](https://www.youtube.com/watch?v=gg7DwbUDLRg)
 - [http://pastorcharleslawson.org/](http://pastorcharleslawson.org/)
 
 **Note:** Watch more on youtube [The Mind of God (Pastor Charles Lawson)](https://www.youtube.com/watch?v=RoF9iBRyLAI&list=PLHjf9oqszTVaOR3XenoMOBHKY1SrBFYFu) [playlist]
