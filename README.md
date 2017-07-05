@@ -1,7 +1,8 @@
-
 # YouTube Search "[Flat Earth](https://www.youtube.com/results?search_query=flat+earth)" - [KJV](https://github.com/AudioBible/KJV) [AudioBible](https://github.com/AudioBible/AudioBible)
 
 ## What I know is that I don't know anything, so I keep looking for the truth/answers and realize how little I actually know, but the more I keep looking for the truth the more I know that I have a chance to be saved!
+
+## One thing if for sure, this has taught me how to put my ego to the side
 
 - [Flat Earth Anonymous Message for all Citizens of the World](https://www.youtube.com/watch?v=b6czH8EsOP0) [youtube]
 - [WORDS OF WISDOM FLAT EARTH](https://www.youtube.com/watch?v=IfdCPCsrxS4) [youtube]
@@ -13,12 +14,20 @@
 - [Russianvids Responds To Daniel Tosh - Flat Earth Mocked On Tosh.0](https://www.youtube.com/watch?v=kKMI354O4YQ) [youtube]
 - [We Never Have and Will Never Go To The Moon. NASA: You Suck! (fix)](https://www.youtube.com/watch?v=Xt0RW6qMbLw) [youtube]
 - [✅ FLAT EARTH & The BIBLE 24/7 ✞ GOD's Truth vs SCIENTISM 🔬 NASA 🚀 | Christians Unite FE LIVE!](https://www.youtube.com/watch?v=ZQ7I4Pzdm4w) [youtube]
+- [The Flat Earth Last Video From Aaron Dover Before they Killed Him](https://www.youtube.com/watch?v=nhoQSee-5h0) [youtube]
+- [CHURCH GONE WILD ILLUMINATI SATANIST PASTORS EXPOSED!!](https://www.youtube.com/watch?v=uRHahaoPk34) [youtube]
+- [Enoch's Bible says the Lucifer lives in Antarctica !!!](https://www.youtube.com/watch?v=YA1hYIpQcys) [youtube]
+- [Jesuits Erasing our Flat Earth - Documentary](https://www.youtube.com/watch?v=olbyJDou4qQ)
+- [The Jesuit Conspiracy - Flat Earth](https://www.youtube.com/watch?v=6lSgsOU9OiI)
+- [Flat Earth: Bible Truth in an Unstable World](https://www.youtube.com/watch?v=v5onXxxITqo)
 
 ### [Space may be the final frontier, but it's made in a hollywood basement](audiobible/space.m4a) [download song/remix]
 
+- [K-Rino - The Debate (Lyric Video)](https://www.youtube.com/watch?v=MDT_MKUVgLI&list=RDMDT_MKUVgLI) [music on youtube]
+
 ## King James Version Audio Bible for Mac, Windows and Unix/Linux
 
-### [http://sermonaudio.com](http://sermonaudio.com) [church online]
+### [http://sermonaudio.com](http://sermonaudio.com) [church online with real pastors]
 
 - [Are You Serious? Flat Earth?](https://www.youtube.com/watch?v=VkGm0rcxCBU)
 - [Illumination of the Third Eye - Pastor Charles Lawson](https://www.youtube.com/watch?v=8B-KT94bWHg)
@@ -26,9 +35,18 @@
 - [Beware the Emerging Church Movement (Pastor Charles Lawson)](https://www.youtube.com/watch?v=3QJ226sGfNI)
 - [Great Deception Is Settling In (Pastor Charles Lawson)](https://www.youtube.com/watch?v=WZMf5l9SG9I)
 - [What Must I Do To Be Saved? (Pastor Charles Lawson)](https://www.youtube.com/watch?v=EDOeS0fNIJc)
+- [What To Do When You Mess Up (Pastor Charles Lawson)](https://www.youtube.com/watch?v=7qsV_wKsCtk)
 - [http://pastorcharleslawson.org/](http://pastorcharleslawson.org/)
 
-# Why? Because God can speak through people! 
+**Note:** Watch more on youtube [The Mind of God (Pastor Charles Lawson)](https://www.youtube.com/watch?v=RoF9iBRyLAI&list=PLHjf9oqszTVaOR3XenoMOBHKY1SrBFYFu) [playlist]
+
+### [Scriptural Truth Free MP3](http://www.scriptural-truth.com/mp3free.html)
+
+# Why? Because God speaks through people!
+
+# [1611 King James Version Bible Online](https://www.kingjamesbibleonline.org/1611-Bible/)
+
+# It has a psychological affect on your brain and how you live your life if you think it's Flat or a Globe!
 
 # It is, as it was and it will be, in Jesus name, forever and ever. Amen.
 
@@ -172,32 +190,35 @@
 ## I pray God helps you to see, hear, read and understand and most importantly do something right about it! God bless you on your journey! Thank you for reading.
 
 
-### [The Visual Bible - The Gospel Of Matthew](https://www.youtube.com/watch?v=woAhReBytBk) [MOVIE]
-### [The Gospel of Luke](https://www.youtube.com/watch?v=auL-ebjH-xo) [MOVIE]
-### [The Gospel of Luke - Film - Visual Bible in HD Very Rare Version](https://www.youtube.com/watch?v=2PHPLApTt7Y) [MOVIE]
-### [The Acts of the Apostles - Film - High Quality! HD](https://www.youtube.com/watch?v=tRXNp6K5-JI) [MOVIE]
-### [Paul the Apostle Full Movie](https://www.youtube.com/watch?v=t5FhLQhDsk0) [MOVIE]
-### [The Book Of Revelation (Full Movie)](https://www.youtube.com/watch?v=NAb2hdQneBY) [MOVIE]
-### [The Ruth Story](https://www.youtube.com/watch?v=slEmSyJi81g) [MOVIE]
-### [Esther and the King](https://www.youtube.com/watch?v=SQ6qYypfmIo) [MOVIE]
-### [Samson and Delilah - full movie - full movie](https://www.youtube.com/watch?v=a9968bcrywY) [MOVIE]
-### [David and Goliath...Orson Welles as King Saul](https://www.youtube.com/watch?v=GpVf6JII-VM) [MOVIE]
-### [Sodom & Gomorrah FULL VIDEO](https://www.youtube.com/watch?v=WWpknxvxLpk) [MOVIE]
-### [The Story of Joseph and His Brethren (1962)](https://www.youtube.com/watch?v=u2dM_kW-SOI) [MOVIE]
-### [Abraham, Sarah, Isaac, Jacob ( Full Movie )](https://www.youtube.com/watch?v=V5WNbtj3gZs) [MOVIE]
-### [The Ten Commandments.Full Movie HD.](https://www.youtube.com/watch?v=4s320VeVUQA) [MOVIE]
-### [Jesus Of Nazareth (Original Bible Movie) 1977](https://www.youtube.com/watch?v=pG6Y88iQhCE) [MOVIE]
-### [Jesus is Coming Full Movie](https://www.youtube.com/watch?v=Gi0eW2BEOXM) [MOVIE]
+- [The Visual Bible - The Gospel Of Matthew](https://www.youtube.com/watch?v=woAhReBytBk) [MOVIE]
+- [The Gospel of Luke](https://www.youtube.com/watch?v=auL-ebjH-xo) [MOVIE]
+- [The Gospel of Luke - Film - Visual Bible in HD Very Rare Version](https://www.youtube.com/watch?v=2PHPLApTt7Y) [MOVIE]
+- [The Acts of the Apostles - Film - High Quality! HD](https://www.youtube.com/watch?v=tRXNp6K5-JI) [MOVIE]
+- [Paul the Apostle Full Movie](https://www.youtube.com/watch?v=t5FhLQhDsk0) [MOVIE]
+- [The Book Of Revelation (Full Movie)](https://www.youtube.com/watch?v=NAb2hdQneBY) [MOVIE]
+- [The Ruth Story](https://www.youtube.com/watch?v=slEmSyJi81g) [MOVIE]
+- [Esther and the King](https://www.youtube.com/watch?v=SQ6qYypfmIo) [MOVIE]
+- [Samson and Delilah - full movie - full movie](https://www.youtube.com/watch?v=a9968bcrywY) [MOVIE]
+- [David and Goliath...Orson Welles as King Saul](https://www.youtube.com/watch?v=GpVf6JII-VM) [MOVIE]
+- [Sodom & Gomorrah FULL VIDEO](https://www.youtube.com/watch?v=WWpknxvxLpk) [MOVIE]
+- [The Story of Joseph and His Brethren (1962)](https://www.youtube.com/watch?v=u2dM_kW-SOI) [MOVIE]
+- [Abraham, Sarah, Isaac, Jacob ( Full Movie )](https://www.youtube.com/watch?v=V5WNbtj3gZs) [MOVIE]
+- [The Ten Commandments.Full Movie HD.](https://www.youtube.com/watch?v=4s320VeVUQA) [MOVIE]
+- [Jesus Of Nazareth (Original Bible Movie) 1977](https://www.youtube.com/watch?v=pG6Y88iQhCE) [MOVIE]
+- [Jesus is Coming Full Movie](https://www.youtube.com/watch?v=Gi0eW2BEOXM) [MOVIE]
+- [The Books Of Enoch: COMPLETE EDITION, All 3 Books - Flat Earth](https://www.youtube.com/watch?v=s7TynhdCPI4)
+- [The Book of Enoch - Entire Book, R. H. Charles Version (Synchronized Text)](https://www.youtube.com/watch?v=5wbdjo7xnUg)
+- [The Second Book of Enoch (Human Voice, Read-Along Version)](https://www.youtube.com/watch?v=60Bp0qJvvqA)
 
 
 **Note:** These are old movies, you can trust these more than the new ones having new actors and brainwashing tactics.
 
 
-### [Paganism Surviving In Christianity](https://www.forgottenbooks.com/en/readbook/PaganismSurvivinginChristianity_10066362) [BOOK]
-### [How We Got Our Bible](https://www.forgottenbooks.com/en/readbook/HowWeGotOurBible_10038867) [BOOK]
-### [The Negro In Our History](https://www.forgottenbooks.com/en/readbook/TheNegroinOurHistory_10101622) [BOOK]
-### [Kings Dethroned](https://www.forgottenbooks.com/en/readbook/KingsDethroned_10031911) [BOOK]
-### [The Book of Enoch](https://www.forgottenbooks.com/en/readbook/TheBookofEnoch_10152066) [BOOK]
+- [Paganism Surviving In Christianity](https://www.forgottenbooks.com/en/readbook/PaganismSurvivinginChristianity_10066362) [BOOK]
+- [How We Got Our Bible](https://www.forgottenbooks.com/en/readbook/HowWeGotOurBible_10038867) [BOOK]
+- [The Negro In Our History](https://www.forgottenbooks.com/en/readbook/TheNegroinOurHistory_10101622) [BOOK]
+- [Kings Dethroned](https://www.forgottenbooks.com/en/readbook/KingsDethroned_10031911) [BOOK]
+- [The Book of Enoch](https://www.forgottenbooks.com/en/readbook/TheBookofEnoch_10152066) [BOOK]
 
 ## THE EARTH IS FLAT, IN CASE YOU DIDN'T KNOW, NASA LIES!
 
@@ -314,7 +335,7 @@
 - 70: [CELEBRITIES SEEN IN HELL (TUPAC, ROBIN WILLIAMS, ELVIS, HEATH LEDGER, AND MORE)](https://www.youtube.com/watch?v=_gNw4SGGwDU)
 - 71: [INDIA IMPLEMENTING THE BEAST SYSTEM. CAN'T BUY OR SELL UNLESS YOU TAKE A 12 DIGIT NUMBER](https://www.youtube.com/watch?v=ppEDMsnMfJw)
 - 72: [HITLER: Negroes are The True Jews](https://www.youtube.com/watch?v=NE-X985_prM)
-- 73: [Blacks are in fact the true jews of the bible](https://www.youtube.com/watch?v=FaqCyBlwCxQ&list=PLA3OCbJL135SGuahCKhuQ20eKMiSdXm2t)
+- 73: [Blacks are in fact the true jews of the bible](https://www.youtube.com/watch?v=FaqCyBlwCxQ&list=PLA3OCbJL135SGuahCKhuQ20eKMiSdXm2t) [playlist]
 - 74: [THE TRUTH ON THE REAL HEBREW ISRAELITES IS OUT AND THE NATIONS ARE TERRIFIED !!!!!!](https://www.youtube.com/watch?v=mP2ivfkfHVM)
 - 75: [Video 10- Testimonies of Edomites/Gentiles Telling Blacks They Are the True Hebrew Israelites](https://www.youtube.com/watch?v=qhjajMbTX1Y)
 - 76: [Pt 1 Even the Syrian Refugees Know the Real Hebrew Israelites are Black](https://www.youtube.com/watch?v=YWjd36NOGBg)
@@ -353,7 +374,7 @@
 - 109: [Berlin Christmas Market Truck Massacre Hoax](https://www.youtube.com/watch?v=A3aoIenOgdM)
 - 110: [Nice France Terror Attack Staged 100% FAKE](https://www.youtube.com/watch?v=SrbNtFfMQ4A)
 - 111: [7 CONFIRMED False Flag Attacks](https://www.youtube.com/watch?v=Gst2pwtzz1w)
-- 112: [Steve Hughes on war on terror, global warming and X-factor.](https://www.youtube.com/watch?v=Nea-MpVgRL0&list=RDhMcS82DpjSU)
+- 112: [Steve Hughes on war on terror, global warming and X-factor.](https://www.youtube.com/watch?v=Nea-MpVgRL0&list=RDhMcS82DpjSU) [playlist]
 - 113: [Jim Jeffries on America's "freedom"](https://www.youtube.com/watch?v=bjeq3NYUw2M)
 - 114: [Donald Trump False Flag Assassination](https://www.youtube.com/watch?v=f9zUeCztKCA)
 - 115: [The Untold Story of Adolf Hitler - RFG Chosen 1 & Bro. Sanchez](https://www.youtube.com/watch?v=Q7HhLS7584g)
@@ -367,7 +388,7 @@
 - 123: [This is why Scalia was Murdered](https://www.youtube.com/watch?v=wyPFbDP8W6I)
 - 124: [SGTreport: The Paris False Flag of "TRUTH" -- Dr. Paul Craig Roberts](https://www.youtube.com/watch?v=6kSugZtgXsc)
 - 125: [Donald Trump - Illuminati Puppet Exposed - Part 1](https://www.youtube.com/watch?v=SL_uAY63IWo)
-- 126: [Donald Trump - Illuminati Puppet Exposed - Part 2](https://www.youtube.com/watch?v=7vRHwTZCt7Q&list=RD7vRHwTZCt7Q#t=29)
+- 126: [Donald Trump - Illuminati Puppet Exposed - Part 2](https://www.youtube.com/watch?v=7vRHwTZCt7Q&list=RD7vRHwTZCt7Q) [playlist]
 - 127: [Donald Trump - Controlled by the Illuminati? New World Order MUST WATCH](https://www.youtube.com/watch?v=TXpOiB2kdIM)
 - 128: [GISELE TOM BRADY ILLUMINATI TRANNY COUPLE EXPOSED!](https://www.youtube.com/watch?v=FMG4GUgnlMo)
 - 129: [MEGYN KELLY ILLUMINATI TRANNY EXPOSED!](https://www.youtube.com/watch?v=t5j1CPUf9RI)
@@ -396,7 +417,7 @@
 - 152: [NOT Advertiser Friendly- "Glitches or Reptilians Caught On Tape - Shape Shifter Species"](https://www.youtube.com/watch?v=XTx9LmR2RjU)
 - 153: [The 'Forbidden Fruit 'Was NOT An Apple'](https://www.youtube.com/watch?v=-tSCe2RQPmM)
 - 154: [Illuminati, Reptilians & The Manipulation of Reality - David Icke](https://www.youtube.com/watch?v=G2Ta5uAlqgM)
-- 155: [David Icke, Revelations of a Mother Goddess - Full Video](https://www.youtube.com/watch?v=ASJou7DvtQE&list=PL4iMnclOjmBfGgkIraEgBZaN32fX5BYNi)
+- 155: [David Icke, Revelations of a Mother Goddess - Full Video](https://www.youtube.com/watch?v=ASJou7DvtQE&list=PL4iMnclOjmBfGgkIraEgBZaN32fX5BYNi) [playlist]
 - 156: [Rabbi Weiss Rips the Ideology of Zionism, Controlling ZIONIST are REPTILE ILLUMINATI BANKERS](https://www.youtube.com/watch?v=xt6i6drvGTo)
 - 157: [Jews Against Zionism And Rothschilds](https://www.youtube.com/watch?v=awCOSRg-gks)
 - 158: [A Jew speaks truth about Hitler and Nazi Germany - Full Video](https://www.youtube.com/watch?v=jFDvtzwT-TU)
@@ -446,7 +467,7 @@
 - 203: [Tesla 369 Law of Attraction, Energy Frequency Vibration](https://www.youtube.com/watch?v=G1gceUefXBc)
 - 204: [Magnetism & Frequency (Knowledge is literally POWER !!!)](https://www.youtube.com/watch?v=JQ7ekeTPBWk)
 - 205: [The Secrets Of Vibration 528hz) Hidden truths of sound! Law Of Attraction Part 1](https://www.youtube.com/watch?v=cUiSMPHRrhc)
-- 206: [Healing Codes for the Biological Apocalypse - Clip 1 of 3](https://www.youtube.com/watch?v=rtZB9zeKDCM&list=PLD6DAFB7B2FE2C9BF)
+- 206: [Healing Codes for the Biological Apocalypse - Clip 1 of 3](https://www.youtube.com/watch?v=rtZB9zeKDCM&list=PLD6DAFB7B2FE2C9BF) [playlist]
 - 207: [Adolf Hitler vs The Jew World Order](https://www.youtube.com/watch?v=ssCkc8t9sho)
 - 208: [Hitler didn't hate Jews. He hated zionism](https://www.youtube.com/watch?v=bYYTp29xA3o)
 - 209: [Why Did Adolf Hitler Hate Jews?](https://www.youtube.com/watch?v=PtEzozK9_Ww)
@@ -489,7 +510,7 @@
 - 246: [Ex Satan Worshipper John Ramirez Testimony](https://www.youtube.com/watch?v=I11L71PD3Lw)
 - 247: [Divided States of Zombieland | Are You a Zombie?](https://www.youtube.com/watch?v=_urOCJ78Sg4)
 - 248: [Trump Programming | Destroy America from the Inside](https://www.youtube.com/watch?v=4lt001r7xxs)
-- 249: [A Stranger's Guide to Flat Earth | 21 Questions ▶️️ Research Flat Earth](https://www.youtube.com/watch?v=k0xClWgidZU&list=PLm6Vq0bTTCDj8fuDVfqcytiuxbVj_Lyq4)
+- 249: [A Stranger's Guide to Flat Earth | 21 Questions ▶️️ Research Flat Earth](https://www.youtube.com/watch?v=k0xClWgidZU&list=PLm6Vq0bTTCDj8fuDVfqcytiuxbVj_Lyq4) [playlist]
 - 250: [ODD Reality talks Flat Earth on AMTV ✅](https://www.youtube.com/watch?v=v5nsewcK42s)
 - 251: [Hiding the Truth of God Creating This Enclosed Flat Earth](https://www.youtube.com/watch?v=mYuVI-GoucI)
 - 252: [Satan's Global Lie - The Truth of God's Enclosed Flat Earth](https://www.youtube.com/watch?v=CGZcBdarJ8E)
@@ -577,7 +598,7 @@
 - [Mark of the beast will be demanded, not forced upon us.](https://www.youtube.com/watch?v=Q1a5zSOWw6k)
 - [Talmud, Baphomet and The Days of Noah](https://www.youtube.com/watch?v=sP2EcsR92EU)
 - [Katy Perry sells her soul, and buys a church instead.](https://www.youtube.com/watch?v=NXyqfJfT97s)
-- [PURELY SATANIC AMERICA](https://www.youtube.com/watch?v=hLo2D15PHNM&list=PLGM8cMxIO1ggKg510POVV5wqAWJ9jL-TN)
+- [PURELY SATANIC AMERICA](https://www.youtube.com/watch?v=hLo2D15PHNM&list=PLGM8cMxIO1ggKg510POVV5wqAWJ9jL-TN) [playlist]
 - [Black magik Alter Discovered KNIGHTS TEMPLAR](https://www.youtube.com/watch?v=7heVwpVM5mw)
 - [SHOCKING 2017 CERN TUNNEL OPENING RITUAL DELETED SCENES OPENING THE PORTAL](https://www.youtube.com/watch?v=OIazxDwj-m8)
 - [CERN discovers 5 new STATES](https://www.youtube.com/watch?v=DsjoiuwRLkU)
@@ -671,7 +692,7 @@
 
 ## [http://answering-christianity.com/earth_flat.htm](http://answering-christianity.com/earth_flat.htm)
 
-### [Lesson in Psychology](https://www.youtube.com/watch?v=vo4pMVb0R6M&list=PL8dPuuaLjXtOPRKzVLY0jJY-uHOH9KVU6)
+### [Lesson in Psychology](https://www.youtube.com/watch?v=vo4pMVb0R6M&list=PL8dPuuaLjXtOPRKzVLY0jJY-uHOH9KVU6) [playlist]
 
 ## God is so kind that it is impossible to imagine His unbounded kindness
 
@@ -886,7 +907,11 @@ If you work for the Govern(control)-Ment(mind), hospitals, schools or corporatio
 
 ### 2. Print the "youtube search flat earth" flier and give it out to people or put it on their cars in parking lots
 
-**Note:** When you see a person, ask them. "Do you watch videos on youtube?", doesn't matter what they say to the question, just say to them "Well if you do a search on youtube for Flaat Earth, you will find some info about how they been lying to us all these years" and give them the flier. If they ask questions, just tell them that you don't want to pull things out of thin air, that you don't have pictures to show them, but if they go to youtube, and do a search for Flat Earth they will see pictures and videos of people talking about it. Pray for the people who accept this flier to understand the word of God better! Tell them to just watch the videos, so they know the truth and about how the government been lying to us all these years!
+- [Life.Church Review - Flat Earth Project](https://youtu.be/LZOU6QOctLc)
+
+I got kicked out of a church yesterday, First time in my life! I told them I was exercising my freedom of speech, trying to tell them about how in the bible it says the earth is flat and the pastor didn't want to hear it, told me I’m soliciting and then the police rushed me like I’m a criminal told me I'm trespassing, told me if I go to there again I will be arrested! I left yelling satanic church at the top of my lungs, how can I be trespassing it's a church, but this proves this is a satanic church because they don't want to know truth! They support the mafia government! It's not about how it makes you feel its about the truth! The devil knows the Bible better than you do! Satan is father of lies, don't be deceived people!!! They are a bunch of clowns, are you a clown too? github.com/youtube-search/flat-earth CHECK IT OUT! also StopLookThink.com
+
+**Note:** When you see a person, ask them. "Do you watch videos on youtube?", doesn't matter what they say to the question, just say to them "Check it out! search on youtube, you will find some info about how they been lying to us all these years" and give them the flier. If they ask questions, just tell them that you don't want to pull things out of thin air, that you don't have pictures to show them, but if they go to youtube, and do a search for Flat Earth they will see pictures and videos of people talking about it. Pray for the people who accept this flier to understand the word of God better! Tell them to just watch the videos, so they know the truth and about how the government been lying to us all these years!
 
 ![youtube-search-flat-earth-letter](youtube-search-flat-earth-letter.jpg)
 
@@ -894,7 +919,7 @@ If you work for the Govern(control)-Ment(mind), hospitals, schools or corporatio
 
 **tip:** you may want to have multiple tabs open and mute the tabs and switch back and forth between the tabs to to more commenting with your time. Copy and paste this comment all over the internets. Formulate the message payload to fit within the message length limits, and translate to your native language or other languages, if you like.
 
-The Earth is Flat! YouTube search Flat Earth! Aliens are fallen angels/demons. Santa Clause is the devil! If we live on a spinning ball, the Centrifugal Force would make all the continents to merge to the center! Globe is a lie from satan indoctrinating false gods into your every day life! Christmas is a pagan holiday, like all other holidays. You are more special than you are led to believe! github.com/AudioBible/AudioBible
+There was a good reason why you hated school! The Earth is Flat! YouTube search Flat Earth! Aliens are fallen angels/demons. Santa Clause is the devil! If we live on a spinning ball, the Centrifugal Force would make all the continents to merge to the center! Globe is a lie from satan indoctrinating false gods into your every day life! Christmas is a pagan holiday, like all other holidays. You are more special than you are led to believe! github.com/youtube-search/flat-earth
 
 Our life is like that of a fetus inside the womb, the womb determines the sex male/female, features and the person is born into life, same with life, determines heaven or hell﻿ in the afterlife based not only on how good of a person you are, but if you keep Gods Law and worship Jesus Christ as your one and only Savior. Jesus determines if you can go to heaven! If you don't know him now, how will you expect to know him then? Please get to know him! Let the word of God and the Holy Spirit and the collection of information on AudioBible github project help you along the way!
 
@@ -908,6 +933,12 @@ Our life is like that of a fetus inside the womb, the womb determines the sex ma
     
     git clone git@github.com:{USERNAME}/AudioBible.git
     
+### install python package from git cloned project directory
+
+    cd AudioBible
+    pip install .
+    audiobible
+
 ### change into the project directory and run the program during development
     
     cd AudioBible
@@ -929,4 +960,3 @@ Our life is like that of a fetus inside the womb, the womb determines the sex ma
 
 
 # Praised be Jesus name! Amen.
-
