@@ -28,6 +28,14 @@
 
 ### [Space may be the final frontier, but it's made in a hollywood basement](audiobible/space.m4a) [download song/remix]
 
+# audiobible find "thy brother's ass" -A1
+
+    
+    DEUT 22:4 Thou shalt not see thy brother's ass or his ox fall down by the way, and hide thyself from them: thou shalt surely help him to lift them up again.
+
+    DEUT 22:5 The woman shall not wear that which pertaineth unto a man, neither shall a man put on a woman's garment: for all that do so are abomination unto the LORD thy God.
+
+
 - [K-Rino - The Debate (Lyric Video)](https://www.youtube.com/watch?v=MDT_MKUVgLI&list=RDMDT_MKUVgLI) [music on youtube]
 
 ## King James Version Audio Bible for Mac, Windows and Unix/Linux
