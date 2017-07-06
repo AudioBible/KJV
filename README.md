@@ -35,6 +35,7 @@
 - [WOW: You Won't Believe What They Can Do With Your TV, Home Electronics!](https://www.youtube.com/watch?v=XRtx1bb0bk4)
 - [U.S. Underground Cities and Tunnels Map - MUST SEE!](https://www.youtube.com/watch?v=RoQek7b0ACg)
 - [Masonic KJV Family Bible](https://www.youtube.com/watch?v=zDkO446AtpQ)
+- [Masonic Lodge Number 666 and Lancaster County Paganism](https://www.youtube.com/watch?v=RjXo_oGBBV0)
 
 ### [Space may be the final frontier, but it's made in a hollywood basement](audiobible/space.m4a) [download song/remix]
 
