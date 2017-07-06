@@ -89,6 +89,11 @@
 - [Howard Pittman / Satan's Plan / How Demons Operate / How to Fight Demons](https://www.youtube.com/watch?v=lBwsGDCGQFE&list=PLKDemYz7H5WdDQ7l1l__lDP2VAghKqEzm)
 - [HOWARD PITTMAN END TIME WARNING - PLUS HIS AMAZING LIFE-AFTER-DEATH-ENCOUNTER](https://www.youtube.com/watch?v=UWSCJ5vSus8)
 - [ONCE SAVED ALWAYS SAVED?](https://www.youtube.com/watch?v=DGfg0PUMImk)
+- [BELIEVING ONCE SAVED ALWAYS SAVED SENT ME TO HELL!](https://www.youtube.com/watch?v=9tspaGtBnrs)
+- [Why Can't Lost People Understand The Bible?](https://www.youtube.com/watch?v=zYMfd0_ViZs)
+- [What Does The Bible Say About Smoking? Part 1](https://www.youtube.com/watch?v=7fK7a4jggp4)
+- [What Does The Bible Say About Smoking? Part 2](https://www.youtube.com/watch?v=njd3HUWrmaM)
+- [How to QUIT SMOKING - QUITTING Smoking SUCKS - It's all in your HEAD - Nicotine Addiction](https://www.youtube.com/watch?v=xAtib-EsODY)
 
 ### [Space may be the final frontier, but it's made in a hollywood basement](audiobible/space.m4a) [download song/remix]
 
