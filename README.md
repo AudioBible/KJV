@@ -8,50 +8,7 @@
 
 ## [Biblical Flat Earth 24/7 LIVE! ✞ Discussing Creation From The Word of God - Christian Flat Earth](https://www.youtube.com/watch?v=iA1VWt8f_Ec)
 
-# [https://christianflatearthministry.org/](https://christianflatearthministry.org/)
-
-## Flat Earth Matters If Truth Matters
-
-
-    JN 14:6 Jesus saith unto him, I am the way, the truth, and the life: no man cometh unto the Father, but by me.
-
-
-- [This Is What Satan Would Preach In A "Church"!](https://www.youtube.com/watch?v=EpZ7chF4TT0)
-
-# audiobible find "false apostles" -A2
-
-
-    2COR 11:13 For such are false apostles, deceitful workers, transforming themselves into the apostles of Christ.
-    
-    2COR 11:14 And no marvel; for Satan himself is transformed into an angel of light.
-    
-    2COR 11:15 Therefore it is no great thing if his ministers also be transformed as the ministers of righteousness; whose end shall be according to their works.
-
-
-# audiobible find dwelleth not in temples made with hands -A4
-    
-    
-    ACTS 7:48 Howbeit the most High dwelleth not in temples made with hands; as saith the prophet,
-    
-    ACTS 7:49 Heaven is my throne, and earth is my footstool: what house will ye build me? saith the Lord: or what is the place of my rest?
-    
-    ACTS 7:50 Hath not my hand made all these things?
-    
-    ACTS 7:51 Ye stiffnecked and uncircumcised in heart and ears, ye do always resist the Holy Ghost: as your fathers did, so do ye.
-    
-    ACTS 7:52 Which of the prophets have not your fathers persecuted? and they have slain them which shewed before of the coming of the Just One; of whom ye have been now the betrayers and murderers:
-    
-    ACTS 17:24 God that made the world and all things therein, seeing that he is Lord of heaven and earth, dwelleth not in temples made with hands;
-    
-    ACTS 17:25 Neither is worshipped with men's hands, as though he needed any thing, seeing he giveth to all life, and breath, and all things;
-    
-    ACTS 17:26 And hath made of one blood all nations of men for to dwell on all the face of the earth, and hath determined the times before appointed, and the bounds of their habitation;
-    
-    ACTS 17:27 That they should seek the Lord, if haply they might feel after him, and find him, though he be not far from every one of us:
-    
-    ACTS 17:28 For in him we live, and move, and have our being; as certain also of your own poets have said, For we are also his offspring.
-    
-
+- [This Is What Satan Would Preach In A "Church"!](https://www.youtube.com/watch?v=EpZ7chF4TT0) [youtube]
 - [Flat Earth Anonymous Message for all Citizens of the World](https://www.youtube.com/watch?v=b6czH8EsOP0) [youtube]
 - [WORDS OF WISDOM FLAT EARTH](https://www.youtube.com/watch?v=IfdCPCsrxS4) [youtube]
 - [So Why Does Flat Earth Matter ? "A▶️️MUST WATCH"](https://www.youtube.com/watch?v=CDISd94Uhps) [youtube]
@@ -84,14 +41,6 @@
 - [Masonic Lodge Number 666 and Lancaster County Paganism](https://www.youtube.com/watch?v=RjXo_oGBBV0)
 
 ### [Space may be the final frontier, but it's made in a hollywood basement](audiobible/space.m4a) [download song/remix]
-
-# audiobible find "thy brother's ass" -A1
-
-    
-    DEUT 22:4 Thou shalt not see thy brother's ass or his ox fall down by the way, and hide thyself from them: thou shalt surely help him to lift them up again.
-
-    DEUT 22:5 The woman shall not wear that which pertaineth unto a man, neither shall a man put on a woman's garment: for all that do so are abomination unto the LORD thy God.
-
 
 - [K-Rino - The Debate (Lyric Video)](https://www.youtube.com/watch?v=MDT_MKUVgLI&list=RDMDT_MKUVgLI) [music on youtube]
 
@@ -1050,6 +999,62 @@ Our life is like that of a fetus inside the womb, the womb determines the sex ma
     MAL 3:16 Then they that feared the LORD spake often one to another: and the LORD hearkened, and heard it, and a book of remembrance was written before him for them that feared the LORD, and that thought upon his name.
     
     MAL 3:17 And they shall be mine, saith the LORD of hosts, in that day when I make up my jewels; and I will spare them, as a man spareth his own son that serveth him.
+
+
+## multitasking multiplied by infinity
+
+
+    PS 147:5 Great is our Lord, and of great power: his understanding is infinite.
+
+
+# [https://christianflatearthministry.org/](https://christianflatearthministry.org/)
+
+## Flat Earth Matters If Truth Matters, Up is Up and Down is Down, no matter where in the world you are!
+
+
+    JN 14:6 Jesus saith unto him, I am the way, the truth, and the life: no man cometh unto the Father, but by me.
+
+
+# audiobible find "false apostles" -A2
+
+
+    2COR 11:13 For such are false apostles, deceitful workers, transforming themselves into the apostles of Christ.
+    
+    2COR 11:14 And no marvel; for Satan himself is transformed into an angel of light.
+    
+    2COR 11:15 Therefore it is no great thing if his ministers also be transformed as the ministers of righteousness; whose end shall be according to their works.
+
+
+# audiobible find dwelleth not in temples made with hands -A4
+    
+    
+    ACTS 7:48 Howbeit the most High dwelleth not in temples made with hands; as saith the prophet,
+    
+    ACTS 7:49 Heaven is my throne, and earth is my footstool: what house will ye build me? saith the Lord: or what is the place of my rest?
+    
+    ACTS 7:50 Hath not my hand made all these things?
+    
+    ACTS 7:51 Ye stiffnecked and uncircumcised in heart and ears, ye do always resist the Holy Ghost: as your fathers did, so do ye.
+    
+    ACTS 7:52 Which of the prophets have not your fathers persecuted? and they have slain them which shewed before of the coming of the Just One; of whom ye have been now the betrayers and murderers:
+    
+    ACTS 17:24 God that made the world and all things therein, seeing that he is Lord of heaven and earth, dwelleth not in temples made with hands;
+    
+    ACTS 17:25 Neither is worshipped with men's hands, as though he needed any thing, seeing he giveth to all life, and breath, and all things;
+    
+    ACTS 17:26 And hath made of one blood all nations of men for to dwell on all the face of the earth, and hath determined the times before appointed, and the bounds of their habitation;
+    
+    ACTS 17:27 That they should seek the Lord, if haply they might feel after him, and find him, though he be not far from every one of us:
+    
+    ACTS 17:28 For in him we live, and move, and have our being; as certain also of your own poets have said, For we are also his offspring.
+    
+
+# audiobible find "thy brother's ass" -A1
+
+    
+    DEUT 22:4 Thou shalt not see thy brother's ass or his ox fall down by the way, and hide thyself from them: thou shalt surely help him to lift them up again.
+
+    DEUT 22:5 The woman shall not wear that which pertaineth unto a man, neither shall a man put on a woman's garment: for all that do so are abomination unto the LORD thy God.
 
 
 # Praised be Jesus Christ name! Praise Jesus for the Flat Earth Truth! Amen.
