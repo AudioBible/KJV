@@ -716,6 +716,8 @@
 - [The Truth About the Stars and Flat Earth](https://www.youtube.com/watch?v=e5MkEn02rSQ)
 - [Epitome of Evil - Who was behind Hitler - Flat Earth Research - Short Documentary](https://www.youtube.com/watch?v=v5snjGAxLuI)
 - [Flat Earth : What are stars really?](https://www.youtube.com/watch?v=q1x0v3NBhEw)
+- [Natural Free Birthing For Bible Believers](https://www.youtube.com/watch?v=jZ4GuLTLBF4)
+- [Masonic KJV Family Bible](https://www.youtube.com/watch?v=zDkO446AtpQ)
 
 **Note:** Not all videos made it to this list, so do your research and watch out for disinformation. After a while you will be able to tell what is the truth, by the message content. Be smart! Don't trust "Credentials" and don't put faith into humanity, technology or science, only put your faith in the Trinity(God, Jesus and the Holy Spirit) and Prayer!
 
