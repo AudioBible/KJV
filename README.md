@@ -10,6 +10,26 @@
 
 ## [https://celebratetruth.org/](https://celebratetruth.org/)
 
+## audiobible show ps 101
+
+
+    PS 101:1 I will sing of mercy and judgment: unto thee, O LORD, will I sing.
+    
+    PS 101:2 I will behave myself wisely in a perfect way. O when wilt thou come unto me? I will walk within my house with a perfect heart.
+    
+    PS 101:3 I will set no wicked thing before mine eyes: I hate the work of them that turn aside; it shall not cleave to me.
+    
+    PS 101:4 A froward heart shall depart from me: I will not know a wicked person.
+    
+    PS 101:5 Whoso privily slandereth his neighbour, him will I cut off: him that hath an high look and a proud heart will not I suffer.
+    
+    PS 101:6 Mine eyes shall be upon the faithful of the land, that they may dwell with me: he that walketh in a perfect way, he shall serve me.
+    
+    PS 101:7 He that worketh deceit shall not dwell within my house: he that telleth lies shall not tarry in my sight.
+    
+    PS 101:8 I will early destroy all the wicked of the land; that I may cut off all wicked doers from the city of the LORD.
+    
+
 - [This Is What Satan Would Preach In A "Church"!](https://www.youtube.com/watch?v=EpZ7chF4TT0) [youtube]
 - [Flat Earth Anonymous Message for all Citizens of the World](https://www.youtube.com/watch?v=b6czH8EsOP0) [youtube]
 - [WORDS OF WISDOM FLAT EARTH](https://www.youtube.com/watch?v=IfdCPCsrxS4) [youtube]
