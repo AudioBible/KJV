@@ -766,8 +766,6 @@
 
 ![HkAHHM3c](images/HkAHHM3c.png)
 
-# LOVE YOU, BREAK FREE
-
 # audiobible find many things to say
 
     JN 8:26 I have many things to say and to judge of you: but he that sent me is true; and I speak to the world those things which I have heard of him.
@@ -1060,3 +1058,5 @@ Our life is like that of a fetus inside the womb, the womb determines the sex ma
 
 
 # Praised be Jesus Christ name! Praise Jesus for the Flat Earth Truth! Amen.
+
+# LOVE YOU, BREAK FREE
