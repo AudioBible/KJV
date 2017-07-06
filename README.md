@@ -709,6 +709,11 @@
 - [Vision of Hell by a Korean Painting artist (ENGLISH)](https://www.youtube.com/watch?v=aBD9opwFKo4)
 - [7 MINUTES IN HELL!!! MUST WATCH!!!](https://www.youtube.com/watch?v=XR3Qd2iJiVk)
 - [DISNEY IS SATANIC PROPAGANDA !!!](https://www.youtube.com/watch?v=rxXg5JyXq58)
+- [TRUTH #32 - The Glass Firmament Spinning with All Stars Is a Powerful Generator of Energy](https://www.youtube.com/watch?v=PiG2HborsqI)
+- [FLAT EARTH Southern Hemisphere Stars MODEL!](https://www.youtube.com/watch?v=p0vFKhgTkOY)
+- [The Truth About the Stars and Flat Earth](https://www.youtube.com/watch?v=e5MkEn02rSQ)
+- [Epitome of Evil - Who was behind Hitler - Flat Earth Research - Short Documentary](https://www.youtube.com/watch?v=v5snjGAxLuI)
+
 
 **Note:** Not all videos made it to this list, so do your research and watch out for disinformation. After a while you will be able to tell what is the truth, by the message content. Be smart! Don't trust "Credentials" and don't put faith into humanity, technology or science, only put your faith in the Trinity(God, Jesus and the Holy Spirit) and Prayer!
 
