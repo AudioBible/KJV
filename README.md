@@ -8,7 +8,7 @@
 
 ## [Biblical Flat Earth 24/7 LIVE! ✞ Discussing Creation From The Word of God - Christian Flat Earth](https://www.youtube.com/CelebrateTruth/live)
 
-## [https://celebratetruth.org/](https://celebratetruth.org/)
+## [https://celebratetruth.org](https://celebratetruth.org)
 
 ## audiobible show ps 101
 
@@ -48,7 +48,7 @@
     FRO'WARDNESS, noun Perverseness; reluctance to yield or comply; disobedience; peevishness.
 
 
-## [http://www.theprinciplemovie.com/](http://www.theprinciplemovie.com/)
+## [http://theprinciplemovie.com](http://theprinciplemovie.com)
 
 
 - [This Is What Satan Would Preach In A "Church"!](https://www.youtube.com/watch?v=EpZ7chF4TT0) [youtube]
