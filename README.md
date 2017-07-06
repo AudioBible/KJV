@@ -2,8 +2,6 @@
 
 ## King James Version Audio Bible for Mac, Windows and Unix/Linux
 
-- [Masonic KJV Family Bible](https://www.youtube.com/watch?v=zDkO446AtpQ)
-
 ## What I know is that I don't know anything, so I keep looking for the truth/answers and realize how little I actually know, but the more I keep looking for the truth the more I know that I have a chance to be saved!
 
 ## One thing if for sure, this has taught me how to put my ego to the side
@@ -36,6 +34,7 @@
 - [AMAZING! You Won't Believe Which Business Owns Entire Industry!](https://www.youtube.com/watch?v=fCYIG_Q8oHs)
 - [WOW: You Won't Believe What They Can Do With Your TV, Home Electronics!](https://www.youtube.com/watch?v=XRtx1bb0bk4)
 - [U.S. Underground Cities and Tunnels Map - MUST SEE!](https://www.youtube.com/watch?v=RoQek7b0ACg)
+- [Masonic KJV Family Bible](https://www.youtube.com/watch?v=zDkO446AtpQ)
 
 ### [Space may be the final frontier, but it's made in a hollywood basement](audiobible/space.m4a) [download song/remix]
 
