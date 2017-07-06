@@ -8,6 +8,8 @@
 
 ## [Biblical Flat Earth 24/7 LIVE! ✞ Discussing Creation From The Word of God - Christian Flat Earth](https://www.youtube.com/watch?v=iA1VWt8f_Ec)
 
+# [https://christianflatearthministry.org/](https://christianflatearthministry.org/)
+
 ## Flat Earth Matters If Truth Matters
 
 
