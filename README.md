@@ -318,7 +318,7 @@
 
 # THERE IS NO GRAVITY! WAKE UP NEO!
 
-![ImpulsiveNeo](ImpulsiveNeo.jpg)
+![ImpulsiveNeo](images/ImpulsiveNeo.jpg)
 
 # THE EARTH IS FLAT! [RESEARCH IT ON YOUTUBE](https://www.youtube.com/results?search_query=flat+earth&page=&utm_source=opensearch)!
 
@@ -789,31 +789,31 @@
 
 ## God is so kind that it is impossible to imagine His unbounded kindness
 
-![flat-earth-isaiah40-22](flat-earth-isaiah40-22.jpg)
+![flat-earth-isaiah40-22](images/flat-earth-isaiah40-22.jpg)
 
-![the-firmament](the-firmament.jpeg)
+![the-firmament](images/the-firmament.jpeg)
 
-![firmament](firmament.jpg)
+![firmament](images/firmament.jpg)
 
-![flat-earth-maps](flat-earth-maps.jpg)
+![flat-earth-maps](images/flat-earth-maps.jpg)
 
-![AncientFirmament](AncientFirmament.jpg)
+![AncientFirmament](images/AncientFirmament.jpg)
 
-![flat-earth-firmament-2c](flat-earth-firmament-2c.png)
+![flat-earth-firmament-2c](images/flat-earth-firmament-2c.png)
 
-![e83e3141866d8a5c082b646ed52bcf53](e83e3141866d8a5c082b646ed52bcf53.jpg)
+![e83e3141866d8a5c082b646ed52bcf53](images/e83e3141866d8a5c082b646ed52bcf53.jpg)
 
-![FlatEarthModel1](FlatEarthModel1.jpg)
+![FlatEarthModel1](images/FlatEarthModel1.jpg)
 
-![MJ_2014_Firmament_Realm_of_God](MJ_2014_Firmament_Realm_of_God.jpg)
+![MJ_2014_Firmament_Realm_of_God](images/MJ_2014_Firmament_Realm_of_God.jpg)
 
-![mqdefault](mqdefault.jpg)
+![mqdefault](images/mqdefault.jpg)
 
-![jtot_genesis_cosmology](jtot_genesis_cosmology.jpg)
+![jtot_genesis_cosmology](images/jtot_genesis_cosmology.jpg)
 
-![NASA_Serpent](NASA_Serpent.jpg)
+![NASA_Serpent](images/NASA_Serpent.jpg)
 
-![HkAHHM3c](HkAHHM3c.png)
+![HkAHHM3c](images/HkAHHM3c.png)
 
 # LOVE YOU, BREAK FREE
 
@@ -969,9 +969,9 @@
     
     1JN 5:21 Little children, keep yourselves from idols. Amen.
 
-![atheism](atheism.png)
+![atheism](images/atheism.png)
 
-![closed-minded-open-minded](closed-minded-open-minded.png)
+![closed-minded-open-minded](images/closed-minded-open-minded.png)
 
 If you work for the Govern(control)-Ment(mind), hospitals, schools or corporations, then you are 100% doing the will of the devil. We're all caught up in it, one way or another. Support your local mom-and-pop shop or small business or community! Be like Jesus Christ, he set a perfect example of how to live life!
 
@@ -1006,7 +1006,7 @@ I got kicked out of a church yesterday, First time in my life! I told them I was
 
 **Note:** When you see a person, ask them. "Do you watch videos on youtube?", doesn't matter what they say to the question, just say to them "Check it out! search on youtube, you will find some info about how they been lying to us all these years" and give them the flier. If they ask questions, just tell them that you don't want to pull things out of thin air, that you don't have pictures to show them, but if they go to youtube, and do a search for Flat Earth they will see pictures and videos of people talking about it. Pray for the people who accept this flier to understand the word of God better! Tell them to just watch the videos, so they know the truth and about how the government been lying to us all these years!
 
-![youtube-search-flat-earth-letter](youtube-search-flat-earth-letter.jpg)
+![youtube-search-flat-earth-letter](images/youtube-search-flat-earth-letter.jpg)
 
 ### 3. Leave this comment all over the internet, on youtube, twitter, facebook, etc; on all posts and/or videos you can get your hands on, trending, new, old, on all content. make sure the link can lead people back here to watch the videos and share this with others. 
 
