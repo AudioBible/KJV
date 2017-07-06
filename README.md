@@ -734,8 +734,6 @@
 
 ## [http://answering-christianity.com/earth_flat.htm](http://answering-christianity.com/earth_flat.htm)
 
-### [Lesson in Psychology](https://www.youtube.com/watch?v=vo4pMVb0R6M&list=PL8dPuuaLjXtOPRKzVLY0jJY-uHOH9KVU6) [playlist]
-
 ## God is so kind that it is impossible to imagine His unbounded kindness
 
 ![flat-earth-isaiah40-22](images/flat-earth-isaiah40-22.jpg)
