@@ -1,5 +1,9 @@
 # YouTube Search "[Flat Earth](https://www.youtube.com/results?search_query=flat+earth)" - [KJV](https://github.com/AudioBible/KJV) [AudioBible](https://github.com/AudioBible/AudioBible)
 
+## King James Version Audio Bible for Mac, Windows and Unix/Linux
+
+- [Masonic KJV Family Bible](https://www.youtube.com/watch?v=zDkO446AtpQ)
+
 ## What I know is that I don't know anything, so I keep looking for the truth/answers and realize how little I actually know, but the more I keep looking for the truth the more I know that I have a chance to be saved!
 
 ## One thing if for sure, this has taught me how to put my ego to the side
@@ -45,7 +49,6 @@
 
 - [K-Rino - The Debate (Lyric Video)](https://www.youtube.com/watch?v=MDT_MKUVgLI&list=RDMDT_MKUVgLI) [music on youtube]
 
-## King James Version Audio Bible for Mac, Windows and Unix/Linux
 
 ### [http://sermonaudio.com](http://sermonaudio.com) [church online with real pastors]
 
@@ -717,7 +720,6 @@
 - [Epitome of Evil - Who was behind Hitler - Flat Earth Research - Short Documentary](https://www.youtube.com/watch?v=v5snjGAxLuI)
 - [Flat Earth : What are stars really?](https://www.youtube.com/watch?v=q1x0v3NBhEw)
 - [Natural Free Birthing For Bible Believers](https://www.youtube.com/watch?v=jZ4GuLTLBF4)
-- [Masonic KJV Family Bible](https://www.youtube.com/watch?v=zDkO446AtpQ)
 
 **Note:** Not all videos made it to this list, so do your research and watch out for disinformation. After a while you will be able to tell what is the truth, by the message content. Be smart! Don't trust "Credentials" and don't put faith into humanity, technology or science, only put your faith in the Trinity(God, Jesus and the Holy Spirit) and Prayer!
 
