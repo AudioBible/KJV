@@ -1050,4 +1050,4 @@ Our life is like that of a fetus inside the womb, the womb determines the sex ma
     MAL 3:17 And they shall be mine, saith the LORD of hosts, in that day when I make up my jewels; and I will spare them, as a man spareth his own son that serveth him.
 
 
-# Praised be Jesus name! Amen.
+# Praised be Jesus Christ name! Praise Jesus for the Flat Earth Truth! Amen.
