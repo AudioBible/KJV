@@ -295,7 +295,7 @@
 
 ## These videos are here, to help you understand the word of God better!
 
-## Don't believe a word of what you learned in school or from television, etc
+## Don't believe a word of what you learned in school or from television, etc they like their balls and its nonsense!
 
 **Note:** You may want to rewind/fast-forward and watch the video again, while your mind is processing the information you won't consume all of it at once, do what you need to make sure you understand the message. Be investigator, architect, scientist, doctor, professor like how God made all of us and intended it to be, we are all equal! This world, creation and your life isn't all random! Be wise! Get interested, your life depends on it! Teach your children the truth, I beg you! Think about eugenics before you think about how we are not equal!
 
