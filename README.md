@@ -291,7 +291,7 @@
 
 ## Because that's what they(who do the will of the devil) make you out to be, a fool!
 
-## WAKE UP! Don't let them trick you! You are special!
+## WAKE UP! Don't let them trick you! You are special! Don't be some clown!
 
 ## These videos are here, to help you understand the word of God better!
 
