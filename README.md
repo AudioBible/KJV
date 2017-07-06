@@ -29,6 +29,23 @@
     
     PS 101:8 I will early destroy all the wicked of the land; that I may cut off all wicked doers from the city of the LORD.
     
+## audiobible dict froward
+
+
+    Froward
+    FRO'WARD, adjective [Latin versus:turned or looking from.]
+    
+    Perverse, that is, turning from, with aversion or reluctance; not willing to yield or comply with what is required; unyielding; ungovernable; refractory; disobedient; peevish; as a froward child.
+    
+    They are a very froward generation, children in whom is no faith. Deuteronomy 32:20.
+    
+    
+    Frowardly
+    FRO'WARDLY, adverb Perversely; in a peevish manner.
+    
+    Frowardness
+    FRO'WARDNESS, noun Perverseness; reluctance to yield or comply; disobedience; peevishness.
+
 
 - [This Is What Satan Would Preach In A "Church"!](https://www.youtube.com/watch?v=EpZ7chF4TT0) [youtube]
 - [Flat Earth Anonymous Message for all Citizens of the World](https://www.youtube.com/watch?v=b6czH8EsOP0) [youtube]
