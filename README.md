@@ -85,6 +85,7 @@
 - [The Jesuitical Doctrines Of Hovind And Anderson](https://www.youtube.com/watch?v=7QqEVRUp0Lk)
 - [How To Spot Jesuit Infiltrators!](https://www.youtube.com/watch?v=bqqkHOACOUg)
 - [Jesuits Have Seized The White House.](https://www.youtube.com/watch?v=YtRBexcpFTA)
+- [Learn how Demons Operate in the Spirit Realm](https://www.youtube.com/watch?v=F9L9_1qBbEo)
 
 ### [Space may be the final frontier, but it's made in a hollywood basement](audiobible/space.m4a) [download song/remix]
 
