@@ -210,7 +210,7 @@
     JN 14:6 Jesus saith unto him, I am the way, the truth, and the life: no man cometh unto the Father, but by me.
 
 
-## Praised be Jesus Christ name! Praise Jesus for the Flat Earth Truth! Amen.
+## Praised be Jesus Christ, Lord of Lords, King of Kings' name! Praise Jesus for the Flat Earth Truth! Amen.
 
 # LOVE YOU, BREAK FREE
 
