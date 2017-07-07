@@ -8,6 +8,8 @@
 
 #### [Biblical Flat Earth 24/7 LIVE! ✞ Discussing Creation From The Word of God - Christian Flat Earth](https://www.youtube.com/CelebrateTruth/live)
 
+## [MUST SEE TESTIMONY](https://www.youtube.com/watch?v=UWSCJ5vSus8&index=3&list=PLKDemYz7H5WdDQ7l1l__lDP2VAghKqEzm)
+
 ## [USAGE](USAGE.md)
 
 ## [OLD BOOKS](BOOKS.md)
