@@ -269,7 +269,7 @@
     GAL 3:28 There is neither Jew nor Greek, there is neither bond nor free, there is neither male nor female: for ye are all one in Christ Jesus.
     
 
-# audiobible find have well spoken -A5
+# audiobible find well spoken -A5
 
 
     DEUT 18:17 And the LORD said unto me, They have well spoken that which they have spoken.
