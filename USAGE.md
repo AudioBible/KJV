@@ -251,3 +251,9 @@
     DEUT 22:5 The woman shall not wear that which pertaineth unto a man, neither shall a man put on a woman's garment: for all that do so are abomination unto the LORD thy God.
 
 
+# audiobible find third heaven
+
+
+    2COR 12:2 I knew a man in Christ above fourteen years ago, (whether in the body, I cannot tell; or whether out of the body, I cannot tell: God knoweth;) such an one caught up to the third heaven.
+    
+
