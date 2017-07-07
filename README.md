@@ -202,7 +202,7 @@
 ![closed-minded-open-minded](images/closed-minded-open-minded.png)
 
 
-## Flat Earth Matters If Truth Matters, Up is Up and Down is Down, no matter where in the world you are!
+#### Flat Earth Matters If Truth Matters, Up is Up and Down is Down, no matter where in the world you are!
 
 
     JN 14:6 Jesus saith unto him, I am the way, the truth, and the life: no man cometh unto the Father, but by me.
