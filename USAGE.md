@@ -269,3 +269,19 @@
     GAL 3:28 There is neither Jew nor Greek, there is neither bond nor free, there is neither male nor female: for ye are all one in Christ Jesus.
     
 
+# audiobible find have well spoken -A5
+
+
+    DEUT 18:17 And the LORD said unto me, They have well spoken that which they have spoken.
+    
+    DEUT 18:18 I will raise them up a Prophet from among their brethren, like unto thee, and will put my words in his mouth; and he shall speak unto them all that I shall command him.
+    
+    DEUT 18:19 And it shall come to pass, that whosoever will not hearken unto my words which he shall speak in my name, I will require it of him.
+    
+    DEUT 18:20 But the prophet, which shall presume to speak a word in my name, which I have not commanded him to speak, or that shall speak in the name of other gods, even that prophet shall die.
+    
+    DEUT 18:21 And if thou say in thine heart, How shall we know the word which the LORD hath not spoken?
+    
+    DEUT 18:22 When a prophet speaketh in the name of the LORD, if the thing follow not, nor come to pass, that is the thing which the LORD hath not spoken, but the prophet hath spoken it presumptuously: thou shalt not be afraid of him.
+    
+
