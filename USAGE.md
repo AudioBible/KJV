@@ -263,3 +263,9 @@
     2COR 12:2 I knew a man in Christ above fourteen years ago, (whether in the body, I cannot tell; or whether out of the body, I cannot tell: God knoweth;) such an one caught up to the third heaven.
     
 
+# audiobible find one in Christ Jesus
+
+
+    GAL 3:28 There is neither Jew nor Greek, there is neither bond nor free, there is neither male nor female: for ye are all one in Christ Jesus.
+    
+
