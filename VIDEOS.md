@@ -48,20 +48,26 @@ VIDEOS ON YOUTUBE
 
 **Note:** You may want to rewind/fast-forward and watch the video again, while your mind is processing the information you won't consume all of it at once, do what you need to make sure you understand the message. Be investigator, architect, scientist, doctor, professor like how God made all of us and intended it to be, we are all equal! This world, creation and your life isn't all random! Be wise! Get interested, your life depends on it! Teach your children the truth, I beg you! Think about eugenics before you think about how we are not equal!
 
-- [This Is What Satan Would Preach In A "Church"!](https://www.youtube.com/watch?v=EpZ7chF4TT0) [youtube]
-- [Flat Earth Anonymous Message for all Citizens of the World](https://www.youtube.com/watch?v=b6czH8EsOP0) [youtube]
-- [WORDS OF WISDOM FLAT EARTH](https://www.youtube.com/watch?v=IfdCPCsrxS4) [youtube]
-- [So Why Does Flat Earth Matter ? "A▶️️MUST WATCH"](https://www.youtube.com/watch?v=CDISd94Uhps) [youtube]
-- [TOP RATED 2017 FLAT EARTH DOCUMENTARY](https://www.youtube.com/watch?v=N2ZHb5WJcys) [youtube]
-- [SANTA IS THE DEVIL -- THIS WILL SHOCK YOU](https://www.youtube.com/watch?v=rPbB1Er0v5k) [youtube]
-- [Doctors Oath Watch This Before Your Next Visit](https://www.youtube.com/watch?v=aCkHgqDYdQ4) [youtube]
-- [The Flat Earth : Free energy forever no wind no solar no gas "power your home get off the grid"](https://www.youtube.com/watch?v=IJDo-SEAkno) [youtube]
-- [Russianvids Responds To Daniel Tosh - Flat Earth Mocked On Tosh.0](https://www.youtube.com/watch?v=kKMI354O4YQ) [youtube]
-- [We Never Have and Will Never Go To The Moon. NASA: You Suck! (fix)](https://www.youtube.com/watch?v=Xt0RW6qMbLw) [youtube]
-- [✅ FLAT EARTH & The BIBLE 24/7 ✞ GOD's Truth vs SCIENTISM 🔬 NASA 🚀 | Christians Unite FE LIVE!](https://www.youtube.com/watch?v=ZQ7I4Pzdm4w) [youtube]
-- [The Flat Earth Last Video From Aaron Dover Before they Killed Him](https://www.youtube.com/watch?v=nhoQSee-5h0) [youtube]
-- [CHURCH GONE WILD ILLUMINATI SATANIST PASTORS EXPOSED!!](https://www.youtube.com/watch?v=uRHahaoPk34) [youtube]
-- [Enoch's Bible says the Lucifer lives in Antarctica !!!](https://www.youtube.com/watch?v=YA1hYIpQcys) [youtube]
+
+- [Placebo - Howard Pittman.mp4](https://www.youtube.com/watch?v=lBwsGDCGQFE)
+- [ONCE SAVED ALWAYS SAVED?](https://www.youtube.com/watch?v=DGfg0PUMImk)
+- [This Is What Satan Would Preach In A "Church"!](https://www.youtube.com/watch?v=EpZ7chF4TT0)
+- [Learn how Demons Operate in the Spirit Realm](https://www.youtube.com/watch?v=F9L9_1qBbEo)
+- [Howard Pittman / Satan's Plan / How Demons Operate / How to Fight Demons](https://www.youtube.com/watch?v=lBwsGDCGQFE&list=PLKDemYz7H5WdDQ7l1l__lDP2VAghKqEzm)
+- [HOWARD PITTMAN END TIME WARNING - PLUS HIS AMAZING LIFE-AFTER-DEATH-ENCOUNTER](https://www.youtube.com/watch?v=UWSCJ5vSus8)
+- [BELIEVING ONCE SAVED ALWAYS SAVED SENT ME TO HELL!](https://www.youtube.com/watch?v=9tspaGtBnrs)
+- [WORDS OF WISDOM FLAT EARTH](https://www.youtube.com/watch?v=IfdCPCsrxS4)
+- [So Why Does Flat Earth Matter ? "A▶️️MUST WATCH"](https://www.youtube.com/watch?v=CDISd94Uhps)
+- [TOP RATED 2017 FLAT EARTH DOCUMENTARY](https://www.youtube.com/watch?v=N2ZHb5WJcys)
+- [Flat Earth Anonymous Message for all Citizens of the World](https://www.youtube.com/watch?v=b6czH8EsOP0)
+- [SANTA IS THE DEVIL -- THIS WILL SHOCK YOU](https://www.youtube.com/watch?v=rPbB1Er0v5k)
+- [Doctors Oath Watch This Before Your Next Visit](https://www.youtube.com/watch?v=aCkHgqDYdQ4)
+- [The Flat Earth : Free energy forever no wind no solar no gas "power your home get off the grid"](https://www.youtube.com/watch?v=IJDo-SEAkno)
+- [Russianvids Responds To Daniel Tosh - Flat Earth Mocked On Tosh.0](https://www.youtube.com/watch?v=kKMI354O4YQ)
+- [We Never Have and Will Never Go To The Moon. NASA: You Suck! (fix)](https://www.youtube.com/watch?v=Xt0RW6qMbLw)
+- [The Flat Earth Last Video From Aaron Dover Before they Killed Him](https://www.youtube.com/watch?v=nhoQSee-5h0)
+- [CHURCH GONE WILD ILLUMINATI SATANIST PASTORS EXPOSED!!](https://www.youtube.com/watch?v=uRHahaoPk34)
+- [Enoch's Bible says the Lucifer lives in Antarctica !!!](https://www.youtube.com/watch?v=YA1hYIpQcys)
 - [Jesuits Erasing our Flat Earth - Documentary](https://www.youtube.com/watch?v=olbyJDou4qQ)
 - [The Jesuit Conspiracy - Flat Earth](https://www.youtube.com/watch?v=6lSgsOU9OiI)
 - [Flat Earth: Bible Truth in an Unstable World](https://www.youtube.com/watch?v=v5onXxxITqo)
@@ -82,11 +88,6 @@ VIDEOS ON YOUTUBE
 - [The Jesuitical Doctrines Of Hovind And Anderson](https://www.youtube.com/watch?v=7QqEVRUp0Lk)
 - [How To Spot Jesuit Infiltrators!](https://www.youtube.com/watch?v=bqqkHOACOUg)
 - [Jesuits Have Seized The White House.](https://www.youtube.com/watch?v=YtRBexcpFTA)
-- [Learn how Demons Operate in the Spirit Realm](https://www.youtube.com/watch?v=F9L9_1qBbEo)
-- [Howard Pittman / Satan's Plan / How Demons Operate / How to Fight Demons](https://www.youtube.com/watch?v=lBwsGDCGQFE&list=PLKDemYz7H5WdDQ7l1l__lDP2VAghKqEzm)
-- [HOWARD PITTMAN END TIME WARNING - PLUS HIS AMAZING LIFE-AFTER-DEATH-ENCOUNTER](https://www.youtube.com/watch?v=UWSCJ5vSus8)
-- [ONCE SAVED ALWAYS SAVED?](https://www.youtube.com/watch?v=DGfg0PUMImk)
-- [BELIEVING ONCE SAVED ALWAYS SAVED SENT ME TO HELL!](https://www.youtube.com/watch?v=9tspaGtBnrs)
 - [Why Can't Lost People Understand The Bible?](https://www.youtube.com/watch?v=zYMfd0_ViZs)
 - [What Does The Bible Say About Smoking? Part 1](https://www.youtube.com/watch?v=7fK7a4jggp4)
 - [What Does The Bible Say About Smoking? Part 2](https://www.youtube.com/watch?v=njd3HUWrmaM)
@@ -516,6 +517,7 @@ VIDEOS ON YOUTUBE
 - [Epitome of Evil - Who was behind Hitler - Flat Earth Research - Short Documentary](https://www.youtube.com/watch?v=v5snjGAxLuI)
 - [Flat Earth : What are stars really?](https://www.youtube.com/watch?v=q1x0v3NBhEw)
 - [Natural Free Birthing For Bible Believers](https://www.youtube.com/watch?v=jZ4GuLTLBF4)
+
 
 **Note:** Not all videos made it to this list, so do your research and watch out for disinformation. After a while you will be able to tell what is the truth, by the message content. Be smart! Don't trust "Credentials" and don't put faith into humanity, technology or science, only put your faith in the Trinity(God, Jesus and the Holy Spirit) and Prayer!
 
