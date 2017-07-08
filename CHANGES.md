@@ -221,3 +221,9 @@
 =====
 
 - fixed dict operation
+
+0.7.5
+=====
+
+- fix valid_book function and added chapters count to output
+- refactor dictionary spider
