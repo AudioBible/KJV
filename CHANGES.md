@@ -228,3 +228,8 @@
 - fix valid_book function and added chapters count to output
 - refactor dictionary spider
 - fix find operation to take book and chapter:verse
+
+0.7.6
+=====
+
+- fix book_name refactor added in 0.7.5
