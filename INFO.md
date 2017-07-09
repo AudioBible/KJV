@@ -35,3 +35,8 @@
 #### It is, as it was and it will be, in Jesus name, forever and ever. Amen.
 
 If you work for the Govern(control)-Ment(mind), hospitals, schools or corporations, then you are 100% doing the will of the devil. We're all caught up in it, one way or another. Be like Jesus Christ, he set a perfect example of how to live life!
+
+- [Silent Weapons for Quiet Wars Part 1 of 4](https://www.youtube.com/watch?v=eSjtQiZJGT0)
+- [Silent Weapons for Quiet Wars Part 2 of 4](https://www.youtube.com/watch?v=D4H9xcQryUU)
+- [Silent Weapons for Quiet Wars Part 3 of 4](https://www.youtube.com/watch?v=iib1N5nVSws)
+- [Silent Weapons for Quiet Wars Conclusion](https://www.youtube.com/watch?v=Af4pIsJTT3Y)
