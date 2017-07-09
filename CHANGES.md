@@ -227,3 +227,4 @@
 
 - fix valid_book function and added chapters count to output
 - refactor dictionary spider
+- fix find operation to take book and chapter:verse
