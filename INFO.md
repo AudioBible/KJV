@@ -36,7 +36,7 @@
 
 #### Makes you think on a different level than the creator! If you are not with him, you're against him! Satan is a father of lies!
 
-#### There is an ongoing war! You are either on the winning side or you are a prisoner of war!
+#### There is an ongoing war! You are either on the winning side or you are a prisoner of war! Don't be afraid to fight and don't believe just anyone!
 
 #### It is, as it was and it always will be, in Jesus Christ, The King of Kings, The Lord of Lords name, forever and ever. Amen.
 
