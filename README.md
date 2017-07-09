@@ -56,7 +56,10 @@
     audiobible init                                             # download data about all books and chapters in the KJV
     audiobible init speaker                                     # download all the names of speakers from sermonaudio.com
     audiobible init topics                                      # download all the topics from sermonaudio.com
-    audiobible init words                                       # download all the words from biblestudytools.com
+    audiobible init words                                       # download all the words from kingjamesbibledictionary.com
+    
+    audiobible dict                                             # open browser to http://www.kingjamesbibledictionary.com
+    audiobible dict Amen                                        # open browser to "Amen" in the online dictionary
     
     audiobible load                                             # download all books' and chapters' text and audio mp3 files
     
@@ -64,7 +67,10 @@
     audiobible list speakers                                    # to list all speakers found on sermonaudio.com
     audiobible list speakers this                               # to list all speakers which have this in there name
     audiobible list topics                                      # to list all topics found on sermonaudio.com
-    audiobible list words                                       # to list all words found on biblestudytools.com
+    audiobible list words                                       # to list all words found on kingjamesbibledictionary.com
+    audiobible list words this                                  # to list all words which have this in the word
+    
+    audiobible word this                                        # show definition and other data for the word "this"
     
     audiobible praise                                           # open a browser to a youtube playlist with hymns for praising God
     
