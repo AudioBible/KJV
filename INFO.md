@@ -1,4 +1,6 @@
-# THERE IS NO GRAVITY! WAKE UP NEO!
+# INFO
+
+## THERE IS NO GRAVITY! WAKE UP NEO!
 
 ![ImpulsiveNeo](images/ImpulsiveNeo.jpg)
 
@@ -30,9 +32,19 @@
 
 ## Don't believe a word of what you learned in school or from television, etc they like their balls and its nonsense!
 
-#### It has a psychological affect on your brain and how you live your life if you think it's Flat or a Globe!
+#### It has a psychological affect on your brain and how you live your life if you think it's Flat or a Globe! 
 
-#### It is, as it was and it will be, in Jesus name, forever and ever. Amen.
+#### Makes you think on a different level than the creator! If you are not with him, you're against him! Satan is a father of lies!
+
+#### There is an ongoing war! You are either on the winning side or you are a prisoner of war!
+
+#### It is, as it was and it always will be, in Jesus Christ, The King of Kings, The Lord of Lords name, forever and ever. Amen.
+
+- If you say "I believe in a different truth! Not the same truth you believe."
+- I would have to tell you to listen to yourself.
+- There is not such thing as a different truth! There is only truth and lies!
+- You must understand that its important not to believe in lies!
+
 
 If you work for the Govern(control)-Ment(mind), hospitals, schools or corporations, then you are 100% doing the will of the devil. We're all caught up in it, one way or another. Be like Jesus Christ, he set a perfect example of how to live life!
 

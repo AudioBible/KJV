@@ -1,6 +1,17 @@
 VIDEOS ON YOUTUBE
 =================
 
+## Legal
+
+- [IRS Part One](https://www.youtube.com/watch?v=cwwPNzDFW0A)
+- [Ex IRS agent tells it like it is](https://www.youtube.com/watch?v=s1UT2Ms5E2k)
+- [The Truth Behind The Income Tax-A](https://www.youtube.com/watch?v=OcE5qLtiQLU)
+- [How You Can Legally Avoid Paying US Income Tax (Aaron Russo)](https://www.youtube.com/watch?v=AcdNCz_7Qo0)
+- [Why I Stopped Paying Taxes](https://www.youtube.com/watch?v=dqqksUEWAW8)
+- [HOW TO LEGALLY NEVER PAY INCOME TAXES IN THE UNITED STATES](https://www.youtube.com/watch?v=W6uNodEVr-4)
+- [Why Does the IRS Keep Telling Everyone that Income Tax is VOLUNTARY - Steve Hempfling - 2010](https://www.youtube.com/watch?v=1TCBanwM8X4)
+- [Most Americans Do Not Owe Income Tax](https://www.youtube.com/watch?v=66ZK0p21re0)
+
 ## Movies from The Books
 
 - [The Visual Bible - The Gospel Of Matthew](https://www.youtube.com/watch?v=woAhReBytBk) [MOVIE]
