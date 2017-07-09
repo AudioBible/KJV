@@ -12,6 +12,7 @@ VIDEOS ON YOUTUBE
 - [Why Does the IRS Keep Telling Everyone that Income Tax is VOLUNTARY - Steve Hempfling - 2010](https://www.youtube.com/watch?v=1TCBanwM8X4)
 - [Most Americans Do Not Owe Income Tax](https://www.youtube.com/watch?v=66ZK0p21re0)
 - [Sherry Peel Jackson speaks on Being put in Federal Prison for Misdemeanor by IRS](https://www.youtube.com/watch?v=HEatg71BQtk)
+- [IRS Director Admits Taxes Are Voluntary 2013](https://www.youtube.com/watch?v=XNICz9CZOgw)
 
 ## Movies from The Books
 
