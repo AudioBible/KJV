@@ -233,3 +233,9 @@
 =====
 
 - fix book_name refactor added in 0.7.5
+
+0.7.7
+=====
+
+- fix dictionary spider
+- added exit operation
