@@ -57,6 +57,11 @@ VIDEOS ON YOUTUBE
 - [The Rapture Explained April 9 2017 Sunday School](https://www.youtube.com/watch?v=ChFAhcaUD0Y)
 - [The Elite Conjure up Lucifer](https://www.youtube.com/watch?v=4WBu91fjAJE)
 - [Lucifer Infects The Movers & Shakers](https://www.youtube.com/watch?v=gg7DwbUDLRg)
+- [Who Can Go To Heaven? (Pastor Charles Lawson](https://www.youtube.com/watch?v=ktAbEvovVb0)
+- [Battle For Your Soul (Pastor Charles Lawson)](https://www.youtube.com/watch?v=1jAbMgAi-H0)
+- [Battle for Your Mind (Pastor Charles Lawson)](https://www.youtube.com/watch?v=VSiX0KhPLWY)
+- [Characteristics of Evil (Pastor Charles Lawson)](https://www.youtube.com/watch?v=hkxA1QMfiY4)
+- [Charles Lawson - Arm Yourselves!!! FULL SERMON](https://www.youtube.com/watch?v=SGfzGOAiOQo)
 
 ## Informative videos about different topics
 
