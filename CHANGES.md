@@ -247,3 +247,8 @@
 - fixed "list words" operations, display strong's number and translated word
 - remove load operation since "init bible" operation, or "init" twice does the same thing
 - fix list topics operation filter topics
+
+0.7.8
+=====
+
+- added hub operation to open browser to biblehub.com interlinear tool
