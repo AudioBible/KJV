@@ -47,7 +47,7 @@
     pip install --upgrade audiobible                            # update AudioBible to the latest version
 
     audiobible update                                           # update AudioBible using pip command internally
-    
+
     audiobible -h | --help                                      # show help
     audiobible help                                             # show help
     
@@ -63,6 +63,8 @@
     audiobible dict                                             # open browser to http://www.kingjamesbibledictionary.com
     audiobible dict Amen                                        # open browser to "Amen" in the online dictionary
     audiobible dict H2                                          # open browser to Strong's number definition online
+    
+    audiobible hub mark 4                                       # open browser to interlinear biblehub.com book of "Mark" 
     
     audiobible list                                             # to list all books and the number of chapters each book has
     audiobible list speakers                                    # to list all speakers found on sermonaudio.com
