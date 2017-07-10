@@ -53,30 +53,37 @@
     
     audiobible version                                          # show version number and exit
     
-    audiobible init                                             # download data about all books and chapters in the KJV
-    audiobible init speaker                                     # download all the names of speakers from sermonaudio.com
-    audiobible init topics                                      # download all the topics from sermonaudio.com
-    audiobible init words                                       # download all the words from kingjamesbibledictionary.com
+    audiobible init git                                         # git clone all books and data from git repo instead of using spiders in steps
+    audiobible init                                             # download data about all books and chapters in the KJV, step 1
+    audiobible init bible                                       # download all books and mp3 audiofiles, step 2
+    audiobible init speaker                                     # download all the names of speakers from sermonaudio.com, step 3
+    audiobible init topics                                      # download all the topics from sermonaudio.com, step 4
+    audiobible init words                                       # download all the words from kingjamesbibledictionary.com, step 5
     
     audiobible dict                                             # open browser to http://www.kingjamesbibledictionary.com
     audiobible dict Amen                                        # open browser to "Amen" in the online dictionary
-    
-    audiobible load                                             # download all books' and chapters' text and audio mp3 files
+    audiobible dict H2                                          # open browser to Strong's number definition online
     
     audiobible list                                             # to list all books and the number of chapters each book has
     audiobible list speakers                                    # to list all speakers found on sermonaudio.com
     audiobible list speakers this                               # to list all speakers which have this in there name
     audiobible list topics                                      # to list all topics found on sermonaudio.com
     audiobible list words                                       # to list all words found on kingjamesbibledictionary.com
-    audiobible list words this                                  # to list all words which have this in the word
+    audiobible list words this                                  # to list all words and strong's numbers, which have "this" in the word
+    audiobible list words H2                                    # to list all words which are associated with the strong's number "H2"
     
-    audiobible word this                                        # show definition and other data for the word "this"
+    audiobible words this                                       # show definition/s and other data for the word "this"
+    audiobible words H2                                         # show definition/s and other data for the strong's number "H2"
     
     audiobible praise                                           # open a browser to a youtube playlist with hymns for praising God
     
     audiobible path daniel                                      # show the path on the hard drive to the book of "Daniel"
     
+    audiobible sermons                                          # opens the default browser to http://sermonaudio.com
+    audiobible sermons -b mark -s "Charles Lawson"              # open browser to sermon "Charles Lawson" preaching the book of "Mark"
+    
     audiobible quote                                            # to output a quote
+    audiobible quote -A2 -B1                                    # to output a quote having four verses, two after and one before the random selected quote
     
     audiobible hear mark                                        # to hear the book of "Mark" chapter 1
     audiobible hear mark all                                    # to hear all chapters from the book of "Mark"
@@ -85,14 +92,14 @@
     audiobible hear -b mark -c 4                                # to hear the book of "Mark" chapter 4
     audiobible hear 1_john 3                                    # to hear the book of "1 John" chapter 3
     audiobible hear -b 1_john -c 3                              # to hear the book of "1 John" chapter 3
-    audiobible hear -b mark -c all                              # same as hear mark all, there is a bug i can't fix where it starts to play from the last file,
-                                                                #   just double click on the first one and it will start from the beginning playing the rest
+    audiobible hear -b mark -c all                              # same as hear mark all
     
     audiobible read mark 4                                      # to read Mark 4, (use params like with hear operation)
     
     audiobible show mark 4                                      # to show the book of "Mark" chapter 4 text in the terminal, specify params like with hear operation
     
     audiobible find                                             # to output the whole Bible
+    audiobible find REV 22:17                                   # to output a specific verse
     audiobible find -b 2_john                                   # to output the whole book of "2 John"
     audiobible find -b james -c 5                               # to output chapter 5 for the book of "James"
     audiobible find water of life                               # to find water of life, say words to search for as params
@@ -103,12 +110,6 @@
     
     audiobible find jesus -b luke -c 3 -C 2                     # to find jesus in the book of "Luke" chapter 3, showing 2 verses before and after the matched verse context
     audiobible find circle -A 5 -B 2                            # to show 2 verse before and 5 verses after the matched verse context
-    
-    audiobible quote                                            # usage is same as with find operation
-    
-    audiobible sermons                                          # opens the default browser to http://sermonaudio.com
-                                                                #  usage is same as with hear operation
-    audiobible sermons -b mark -s "Charles Lawson"              # open browser to sermon "Charles Lawson" preaching the book of "Mark"
     
     # THE EARTH IS FLAT! [RESEARCH IT ON YOUTUBE](https://www.youtube.com/results?search_query=flat+earth&page=&utm_source=opensearch)!
     

@@ -244,4 +244,6 @@
 - added init git operation to clone all data from git repo instead of using spiders to download it
 - change CONCURRENT_REQUESTS to 32, default 16
 - words operation display words
-- fixed list words operations, display strong's number and translated word
+- fixed "list words" operations, display strong's number and translated word
+- remove load operation since "init bible" operation, or "init" twice does the same thing
+- fix list topics operation filter topics
