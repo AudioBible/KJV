@@ -242,3 +242,6 @@
 - enabled httpcache in spider settings to cache data for one week, 604800 seconds
 - added force param to init operation to remove existing data before crawling
 - added init git operation to clone all data from git repo instead of using spiders to download it
+- change CONCURRENT_REQUESTS to 32, default 16
+- words operation display words
+- fixed list words operations, display strong's number and translated word
