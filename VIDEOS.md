@@ -68,6 +68,7 @@ VIDEOS ON YOUTUBE
 **Note:** You may want to rewind/fast-forward and watch the video again, while your mind is processing the information you won't consume all of it at once, do what you need to make sure you understand the message. Be investigator, architect, scientist, doctor, professor like how God made all of us and intended it to be, we are all equal! This world, creation and your life isn't all random! Be wise! Get interested, your life depends on it! Teach your children the truth, I beg you! Think about eugenics before you think about how we are not equal!
 
 
+- [Silent Weapons for Quiet Wars Part 1 of 4](https://www.youtube.com/watch?v=eSjtQiZJGT0)
 - [Placebo - Howard Pittman.mp4](https://www.youtube.com/watch?v=lBwsGDCGQFE)
 - [ONCE SAVED ALWAYS SAVED?](https://www.youtube.com/watch?v=DGfg0PUMImk)
 - [This Is What Satan Would Preach In A "Church"!](https://www.youtube.com/watch?v=EpZ7chF4TT0)
