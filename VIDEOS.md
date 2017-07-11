@@ -537,7 +537,7 @@ VIDEOS ON YOUTUBE
 - [Epitome of Evil - Who was behind Hitler - Flat Earth Research - Short Documentary](https://www.youtube.com/watch?v=v5snjGAxLuI)
 - [Flat Earth : What are stars really?](https://www.youtube.com/watch?v=q1x0v3NBhEw)
 - [Natural Free Birthing For Bible Believers](https://www.youtube.com/watch?v=jZ4GuLTLBF4)
-
+- [Gravity Doesn't Exist - It's Only A Theory - Series 1 Episode 8 Preview - BBC Four - YouTube](https://www.youtube.com/watch?v=k-W2kQZgIoU)
 
 **Note:** Not all videos made it to this list, so do your research and watch out for disinformation. After a while you will be able to tell what is the truth, by the message content. Be smart! Don't trust "Credentials" and don't put faith into humanity, technology or science, only put your faith in the Trinity(The Father, The Word, and The Holy Ghost) and Prayer!
 
