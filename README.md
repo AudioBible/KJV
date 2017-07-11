@@ -210,9 +210,13 @@
 
 ![HkAHHM3c](images/HkAHHM3c.png)
 
+![space-junk](images/space-junk.png)
+
 ![atheism](images/atheism.png)
 
 ![closed-minded-open-minded](images/closed-minded-open-minded.png)
+
+![second-coming-of-jesus-christ_heaven-opened-up](second-coming-of-jesus-christ_heaven-opened-up.jpg)
 
 # audiobible ps 23
 
