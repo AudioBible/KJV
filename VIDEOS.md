@@ -7,6 +7,9 @@ Do some research, this is by no means an exhaustive list, hopefully it's enough 
 
 - [The Matrix of Control→ Silent Weapons For Quiet Wars - DARPA - Agenda 21 - DNA Mapping](https://www.youtube.com/watch?v=k4eRlBbcFkc)
 - [Silent Weapons for Quiet Wars Part 1 of 4](https://www.youtube.com/watch?v=eSjtQiZJGT0)
+- [Silent Weapons for Quiet Wars Part 2 of 4](https://www.youtube.com/watch?v=D4H9xcQryUU)
+- [Silent Weapons for Quiet Wars Part 3 of 4](https://www.youtube.com/watch?v=iib1N5nVSws)
+- [Silent Weapons for Quiet Wars Conclusion](https://www.youtube.com/watch?v=Af4pIsJTT3Y)
 - [IRS Part One](https://www.youtube.com/watch?v=cwwPNzDFW0A)
 - [Ex IRS agent tells it like it is](https://www.youtube.com/watch?v=s1UT2Ms5E2k)
 - [The Truth Behind The Income Tax-A](https://www.youtube.com/watch?v=OcE5qLtiQLU)

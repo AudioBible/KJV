@@ -20,6 +20,8 @@
 
 ## [VIDEOS ON YOUTUBE](VIDEOS.md)
 
+## [DOCUMENTS TO READ](DOCUMENTS.md)
+
 ## [HELP WITH THE PROJECT](HELP.md)
 
 # Install On Mac
