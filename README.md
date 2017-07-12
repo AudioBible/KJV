@@ -10,6 +10,8 @@
 
 ## [VIDEOS ON YOUTUBE](VIDEOS.md)
 
+## [YOUTUBE CHANNELS](CHANNELS.md)
+
 ## [DOCUMENTS TO READ](DOCUMENTS.md)
 
 ## [MUST SEE TESTIMONY](https://www.youtube.com/watch?v=UWSCJ5vSus8&index=3&list=PLKDemYz7H5WdDQ7l1l__lDP2VAghKqEzm)
@@ -23,6 +25,8 @@
 ## [LINKS ONLINE](LINKS.md)
 
 ## [HELP WITH THE PROJECT](HELP.md)
+
+Contact audiobible.life@gmail.com
 
 # Install On Mac
 
