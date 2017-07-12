@@ -6,7 +6,8 @@ Do some research, this is by no means an exhaustive list, hopefully it's enough 
 ## Government
 
 - [The Matrix of Control→ Silent Weapons For Quiet Wars - DARPA - Agenda 21 - DNA Mapping](https://www.youtube.com/watch?v=k4eRlBbcFkc)
-- [Silent Weapons for Quiet Wars Part 1 of 4](https://www.youtube.com/watch?v=eSjtQiZJGT0)
+- [Silent Weapons for Quiet Wars Part 1 of 4](https://www.youtube.com/watch?v=eSjtQiZJGT0) 
+- [documents/SILENT_WEAPONS_for_QUIET_WARS.pdf](documents/SILENT_WEAPONS_for_QUIET_WARS.pdf)
 - [Silent Weapons for Quiet Wars Part 2 of 4](https://www.youtube.com/watch?v=D4H9xcQryUU)
 - [Silent Weapons for Quiet Wars Part 3 of 4](https://www.youtube.com/watch?v=iib1N5nVSws)
 - [Silent Weapons for Quiet Wars Conclusion](https://www.youtube.com/watch?v=Af4pIsJTT3Y)
