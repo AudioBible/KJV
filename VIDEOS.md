@@ -1,8 +1,12 @@
 VIDEOS ON YOUTUBE
 =================
 
-## Legal
+Do some research, this is by no means an exhaustive list, hopefully it's enough to get you started!
 
+## Government
+
+- [The Matrix of Control→ Silent Weapons For Quiet Wars - DARPA - Agenda 21 - DNA Mapping](https://www.youtube.com/watch?v=k4eRlBbcFkc)
+- [Silent Weapons for Quiet Wars Part 1 of 4](https://www.youtube.com/watch?v=eSjtQiZJGT0)
 - [IRS Part One](https://www.youtube.com/watch?v=cwwPNzDFW0A)
 - [Ex IRS agent tells it like it is](https://www.youtube.com/watch?v=s1UT2Ms5E2k)
 - [The Truth Behind The Income Tax-A](https://www.youtube.com/watch?v=OcE5qLtiQLU)
@@ -14,93 +18,7 @@ VIDEOS ON YOUTUBE
 - [Sherry Peel Jackson speaks on Being put in Federal Prison for Misdemeanor by IRS](https://www.youtube.com/watch?v=HEatg71BQtk)
 - [IRS Director Admits Taxes Are Voluntary 2013](https://www.youtube.com/watch?v=XNICz9CZOgw)
 - [Dead Broke Ex IRS Agent Discovers Secret To Everlasting Wealth](https://www.youtube.com/watch?v=Qkgn4f9FXRM)
-
-## Movies from The Books
-
-- [The Visual Bible - The Gospel Of Matthew](https://www.youtube.com/watch?v=woAhReBytBk) [MOVIE]
-- [The Gospel of Luke](https://www.youtube.com/watch?v=auL-ebjH-xo) [MOVIE]
-- [The Gospel of Luke - Film - Visual Bible in HD Very Rare Version](https://www.youtube.com/watch?v=2PHPLApTt7Y) [MOVIE]
-- [The Acts of the Apostles - Film - High Quality! HD](https://www.youtube.com/watch?v=tRXNp6K5-JI) [MOVIE]
-- [Paul the Apostle Full Movie](https://www.youtube.com/watch?v=t5FhLQhDsk0) [MOVIE]
-- [The Book Of Revelation (Full Movie)](https://www.youtube.com/watch?v=NAb2hdQneBY) [MOVIE]
-- [The Ruth Story](https://www.youtube.com/watch?v=slEmSyJi81g) [MOVIE]
-- [Esther and the King](https://www.youtube.com/watch?v=SQ6qYypfmIo) [MOVIE]
-- [Samson and Delilah - full movie - full movie](https://www.youtube.com/watch?v=a9968bcrywY) [MOVIE]
-- [David and Goliath...Orson Welles as King Saul](https://www.youtube.com/watch?v=GpVf6JII-VM) [MOVIE]
-- [Sodom & Gomorrah FULL VIDEO](https://www.youtube.com/watch?v=WWpknxvxLpk) [MOVIE]
-- [The Story of Joseph and His Brethren (1962)](https://www.youtube.com/watch?v=u2dM_kW-SOI) [MOVIE]
-- [Abraham, Sarah, Isaac, Jacob ( Full Movie )](https://www.youtube.com/watch?v=V5WNbtj3gZs) [MOVIE]
-- [The Ten Commandments.Full Movie HD.](https://www.youtube.com/watch?v=4s320VeVUQA) [MOVIE]
-- [Jesus Of Nazareth (Original Bible Movie) 1977](https://www.youtube.com/watch?v=pG6Y88iQhCE) [MOVIE]
-- [Jesus is Coming Full Movie](https://www.youtube.com/watch?v=Gi0eW2BEOXM) [MOVIE]
-- [The Books Of Enoch: COMPLETE EDITION, All 3 Books - Flat Earth](https://www.youtube.com/watch?v=s7TynhdCPI4)
-- [The Book of Enoch - Entire Book, R. H. Charles Version (Synchronized Text)](https://www.youtube.com/watch?v=5wbdjo7xnUg)
-- [The Second Book of Enoch (Human Voice, Read-Along Version)](https://www.youtube.com/watch?v=60Bp0qJvvqA)
-
-**Note:** These are old movies, you can trust these more than the new ones having new actors and brainwashing tactics.
-
-## Sermons
-
-**Note:** Watch more videos on youtube [The Mind of God (Pastor Charles Lawson)](https://www.youtube.com/watch?v=RoF9iBRyLAI&list=PLHjf9oqszTVaOR3XenoMOBHKY1SrBFYFu) [playlist]
-
-- [King James Video Ministries KICKED OFF Sermon Audio!!!](https://www.youtube.com/watch?v=NbTbMpvhSVo)
-- [Are You Serious? Flat Earth?](https://www.youtube.com/watch?v=VkGm0rcxCBU)
-- [Illumination of the Third Eye - Pastor Charles Lawson](https://www.youtube.com/watch?v=8B-KT94bWHg)
-- [The Fruits Of The Holy Spirit](https://www.youtube.com/watch?v=AFNAriKobp8)
-- [Beware the Emerging Church Movement (Pastor Charles Lawson)](https://www.youtube.com/watch?v=3QJ226sGfNI)
-- [Great Deception Is Settling In (Pastor Charles Lawson)](https://www.youtube.com/watch?v=WZMf5l9SG9I)
-- [What Must I Do To Be Saved? (Pastor Charles Lawson)](https://www.youtube.com/watch?v=EDOeS0fNIJc)
-- [What To Do When You Mess Up (Pastor Charles Lawson)](https://www.youtube.com/watch?v=7qsV_wKsCtk)
-- [They Will Take Your Children Jun 28 2017](https://www.youtube.com/watch?v=Qz1ISvHLl_g)
-- [The Rapture is at Hand](https://www.youtube.com/watch?v=3vQ3PMYqrRw)
-- [Rapture Part 2](https://www.youtube.com/watch?v=j5-xXFgiyXg)
-- [The Rapture Explained April 9 2017 Sunday School](https://www.youtube.com/watch?v=ChFAhcaUD0Y)
-- [The Elite Conjure up Lucifer](https://www.youtube.com/watch?v=4WBu91fjAJE)
-- [Lucifer Infects The Movers & Shakers](https://www.youtube.com/watch?v=gg7DwbUDLRg)
-- [Who Can Go To Heaven? (Pastor Charles Lawson](https://www.youtube.com/watch?v=ktAbEvovVb0)
-- [Battle For Your Soul (Pastor Charles Lawson)](https://www.youtube.com/watch?v=1jAbMgAi-H0)
-- [Battle for Your Mind (Pastor Charles Lawson)](https://www.youtube.com/watch?v=VSiX0KhPLWY)
-- [Characteristics of Evil (Pastor Charles Lawson)](https://www.youtube.com/watch?v=hkxA1QMfiY4)
-- [Charles Lawson - Arm Yourselves!!! FULL SERMON](https://www.youtube.com/watch?v=SGfzGOAiOQo)
-
-## Informative videos about different topics
-
-**Note:** You may want to rewind/fast-forward and watch the video again, while your mind is processing the information you won't consume all of it at once, do what you need to make sure you understand the message. Be investigator, architect, scientist, doctor, professor like how God made all of us and intended it to be, we are all equal! This world, creation and your life isn't all random! Be wise! Get interested, your life depends on it! Teach your children the truth, I beg you! Think about eugenics before you think about how we are not equal!
-
-
-- [Silent Weapons for Quiet Wars Part 1 of 4](https://www.youtube.com/watch?v=eSjtQiZJGT0)
-- [Placebo - Howard Pittman.mp4](https://www.youtube.com/watch?v=lBwsGDCGQFE)
-- [ONCE SAVED ALWAYS SAVED?](https://www.youtube.com/watch?v=DGfg0PUMImk)
-- [This Is What Satan Would Preach In A "Church"!](https://www.youtube.com/watch?v=EpZ7chF4TT0)
-- [Learn how Demons Operate in the Spirit Realm](https://www.youtube.com/watch?v=F9L9_1qBbEo)
-- [Howard Pittman / Satan's Plan / How Demons Operate / How to Fight Demons](https://www.youtube.com/watch?v=lBwsGDCGQFE&list=PLKDemYz7H5WdDQ7l1l__lDP2VAghKqEzm)
-- [HOWARD PITTMAN END TIME WARNING - PLUS HIS AMAZING LIFE-AFTER-DEATH-ENCOUNTER](https://www.youtube.com/watch?v=UWSCJ5vSus8)
-- [BELIEVING ONCE SAVED ALWAYS SAVED SENT ME TO HELL!](https://www.youtube.com/watch?v=9tspaGtBnrs)
-- [WORDS OF WISDOM FLAT EARTH](https://www.youtube.com/watch?v=IfdCPCsrxS4)
-- [So Why Does Flat Earth Matter ? "A▶️️MUST WATCH"](https://www.youtube.com/watch?v=CDISd94Uhps)
-- [TOP RATED 2017 FLAT EARTH DOCUMENTARY](https://www.youtube.com/watch?v=N2ZHb5WJcys)
-- [Flat Earth Anonymous Message for all Citizens of the World](https://www.youtube.com/watch?v=b6czH8EsOP0)
-- [SANTA IS THE DEVIL -- THIS WILL SHOCK YOU](https://www.youtube.com/watch?v=rPbB1Er0v5k)
 - [Doctors Oath Watch This Before Your Next Visit](https://www.youtube.com/watch?v=aCkHgqDYdQ4)
-- [The Flat Earth : Free energy forever no wind no solar no gas "power your home get off the grid"](https://www.youtube.com/watch?v=IJDo-SEAkno)
-- [Russianvids Responds To Daniel Tosh - Flat Earth Mocked On Tosh.0](https://www.youtube.com/watch?v=kKMI354O4YQ)
-- [We Never Have and Will Never Go To The Moon. NASA: You Suck! (fix)](https://www.youtube.com/watch?v=Xt0RW6qMbLw)
-- [The Flat Earth Last Video From Aaron Dover Before they Killed Him](https://www.youtube.com/watch?v=nhoQSee-5h0)
-- [CHURCH GONE WILD ILLUMINATI SATANIST PASTORS EXPOSED!!](https://www.youtube.com/watch?v=uRHahaoPk34)
-- [Enoch's Bible says the Lucifer lives in Antarctica !!!](https://www.youtube.com/watch?v=YA1hYIpQcys)
-- [Jesuits Erasing our Flat Earth - Documentary](https://www.youtube.com/watch?v=olbyJDou4qQ)
-- [The Jesuit Conspiracy - Flat Earth](https://www.youtube.com/watch?v=6lSgsOU9OiI)
-- [Flat Earth: Bible Truth in an Unstable World](https://www.youtube.com/watch?v=v5onXxxITqo)
-- [Am I a FLAT EARTHER ?](https://www.youtube.com/watch?v=zDfYh51z7bM)
-- [NOAHs ARK in 4K an ALT. VIEWPOINT](https://www.youtube.com/watch?v=gLNx7c4Fbxk)
-- [Drone Flying Over the REAL Noah's Ark](https://www.youtube.com/watch?v=3IwXy9uEEQ0)
-- [they found noah's ark in 1968, they had keep hidden from us all this time](https://www.youtube.com/watch?v=ARltPIRR76U)
-- [INTRODUCING THE NEW MEN'S FASHION OFFICE ATTIRE OF 2017!](https://www.youtube.com/watch?v=cesCNxWGJbI)
-- [THE LAKE OF FIRE IS GETTING HOTTER BY THE SECOND!](https://www.youtube.com/watch?v=dNqrYiV3j-0)
-- [THIS WILL MAKE YOU WANT TO PULL YOUR HAIR OUT!](https://www.youtube.com/watch?v=LjOJj34k_Gs)
-- [Gone at 33: YouTube Star Stevie Ryan - Dark Industry Revealed](https://www.youtube.com/watch?v=ips1pAqwaFE)
-- [SHE IS NOT A MAN?? - The Pink Dress Tells All - (A Beauty We Have)](https://www.youtube.com/watch?v=eV-YdKX8HVo)
-- [AMAZING! You Won't Believe Which Business Owns Entire Industry!](https://www.youtube.com/watch?v=fCYIG_Q8oHs)
 - [WOW: You Won't Believe What They Can Do With Your TV, Home Electronics!](https://www.youtube.com/watch?v=XRtx1bb0bk4)
 - [U.S. Underground Cities and Tunnels Map - MUST SEE!](https://www.youtube.com/watch?v=RoQek7b0ACg)
 - [Masonic KJV Family Bible](https://www.youtube.com/watch?v=zDkO446AtpQ)
@@ -108,53 +26,12 @@ VIDEOS ON YOUTUBE
 - [The Jesuitical Doctrines Of Hovind And Anderson](https://www.youtube.com/watch?v=7QqEVRUp0Lk)
 - [How To Spot Jesuit Infiltrators!](https://www.youtube.com/watch?v=bqqkHOACOUg)
 - [Jesuits Have Seized The White House.](https://www.youtube.com/watch?v=YtRBexcpFTA)
-- [Why Can't Lost People Understand The Bible?](https://www.youtube.com/watch?v=zYMfd0_ViZs)
-- [What Does The Bible Say About Smoking? Part 1](https://www.youtube.com/watch?v=7fK7a4jggp4)
-- [What Does The Bible Say About Smoking? Part 2](https://www.youtube.com/watch?v=njd3HUWrmaM)
-- [How to QUIT SMOKING - QUITTING Smoking SUCKS - It's all in your HEAD - Nicotine Addiction](https://www.youtube.com/watch?v=xAtib-EsODY)
-- [Admiral Richard E. Byrd - South Pole Video Interview](https://www.youtube.com/watch?v=czW0iRJuH1A)
-- [Under The Dome - Full Documentary](https://www.youtube.com/watch?v=fk4YqPtvJao)
-- [A History Of Flat Earth - Eric Dubay](https://www.youtube.com/watch?v=pGl8I3l-5ac)
-- [A Flat Earth Awakening Story - Eric Dubay](https://www.youtube.com/watch?v=ER9Ul_ostZ8)
-- [Flat Earth, Fake Aliens and Real Giants](https://www.youtube.com/watch?v=oqPLShx0Jfc)
-- [Giant Human Beings Existed](https://www.youtube.com/watch?v=mRqjY5kyu34)
-- [OUR FLAT DOMED CLOSED SYSTEM EXPLAINED - DMurphy25](https://www.youtube.com/watch?v=-RIBO7VB0VE)
-- [Firmament Rising - The Globular Deception](https://www.youtube.com/watch?v=rez2CmyyfN4)
-- [The Best Flat Earth Documentary](https://www.youtube.com/watch?v=GhRiLP32qfs)
-- [IMPOSSIBALL Flat Earth Documentary (2017)](https://www.youtube.com/watch?v=UbYtkrTquXE)
-- [THE BEST Flat Earth VIDEO | 1000% Proof The Earth Is Flat | Lets See You Debunk This!!!!](https://www.youtube.com/watch?v=p7lDq4dOlIk)
-- [THE BEST Flat Earth VIDEO FOR All PEOPLE | 100% PROOF THE EARTH IS FLAT](https://www.youtube.com/watch?v=ynnFwTiQlxM)
-- [FLAT EARTH - 'Absolute Proof' | Rocket Hitting The Dome](https://www.youtube.com/watch?v=echpThvHli8)
-- [200 Proofs Earth is Not a Spinning Ball Videobook](https://www.youtube.com/watch?v=h5i_iDyUTCg)
-- [The Zionists, Freemasons, and NASA's Biggest Secret](https://www.youtube.com/watch?v=dTqmcvdm4hM)
-- [There are no forests on Flat Earth Wake Up](https://www.youtube.com/watch?v=UHkiZNT3cyE)
-- [There are no forests on earth! (ENGLISH VOICEOVER)](https://www.youtube.com/watch?v=ObJL6aA2czo)
-- [The World's Biggest Secret](https://www.youtube.com/watch?v=TFsuOFoolW8)
-- [Big Bang Evolution is a Masonic Lie Hiding Intelligent Design](https://www.youtube.com/watch?v=JkEL4yBJxm8)
-- [Under The Dome - Documentary (Edge of the firmament)](https://www.youtube.com/watch?v=4BxHP9T6480)
-- [The Flat Earth History and WHY it's hidden from us. By Eric Dubay. As Talked About with Eddie Bravo!](https://www.youtube.com/watch?v=9UbV3kTY8jw)
-- [NASA ISS HOAX! INTERNATIONAL SPACE STATION DOES NOT EXIST!](https://www.youtube.com/watch?v=TSQjerWbRfo)
-- [Flat Earth PROOF of God [6/9/2017]](https://www.youtube.com/watch?v=YI3BrH5t7oQ)
-- [Flat Earth Dome Explained 100% & the Entrance to Agartha](https://www.youtube.com/watch?v=fDBRhxryfZM)
-- [No One Has Been To Space~Watch This!](https://www.youtube.com/watch?v=WHMzgKB_uhY)
-- [Flat Earth Evidence and Proof June 2017](https://www.youtube.com/watch?v=-utWNUnrT9g)
-- [BEST FLAT EARTH PROOF 2017 - YOU CANT DENY THIS EVIDENCE](https://www.youtube.com/watch?v=awl8Eel7fgg)
-- [How to Quit Your Slave Job (and Live Your Dream Life!)](https://www.youtube.com/watch?v=HLwNG5l0Yoo)
-- [The Most Important Thing in Your Life](https://www.youtube.com/watch?v=sKH-NmLFDH4)
-- [Satan's Computer; What you Where Not Taught In School, This Will Blow Your Mind - Flat Earth Stream](https://www.youtube.com/watch?v=jwK6aUfTrvQ)
 - [ANONYMOUS. URGENT MESSAGE: SOCIAL MEDIA AND THE MARK OF THE BEAST. NWO AGENDA ARRIVES](https://www.youtube.com/watch?v=X6plO9aABeQ)
 - [The MARK of The BEAST Identified](https://www.youtube.com/watch?v=13RzjyhKz3M)
 - [Trump Declares "One World Currency" Sooner than most think (bloomberg)](https://www.youtube.com/watch?v=PuH_wCwxBhw)
-- [Devils tower and Pagan rituals](https://www.youtube.com/watch?v=y2dBpiS_Aik)
 - [Donald Trump's Saudi Arabia Visit "Orb Ritual" - Melania & Ivanka Are Men!](https://www.youtube.com/watch?v=ktFzCnMn6_Y)
 - [Trump will usher in the 7 Noahide Laws ONE WORLD RELIGION](https://www.youtube.com/watch?v=sPEQO-3UqkM)
 - [ARCODEAUS - The Noahide Laws - May 20, 2017](https://www.youtube.com/watch?v=oETRa_ExfXA)
-- [CHRISTIANS MUST WATCH we are being LIED TO ISRAELITES](https://www.youtube.com/watch?v=xNTdajfE14Y)
-- [The TRUE Hebrew Israelites defined by Scripture and history. WARNING you will be shocked!!!](https://www.youtube.com/watch?v=bEDfrBBPZzg)
-- [A History of the True Hebrews (Documentary)](https://www.youtube.com/watch?v=biPDp8pGqGg)
-- [WHO ARE THE REAL BIBLICAL ISRAELITES?](https://www.youtube.com/watch?v=HuUAnpIPK5E)
-- [EUROPEAN CONFESSIONS-AFRICAN AMERICANS ARE THE TRUE ISRAELITES AND THE CHOSEN PEOPLE OF GOD](https://www.youtube.com/watch?v=ja93FjyCSfo)
-- [Demonic Sigils and Eyes in the Skies](https://www.youtube.com/watch?v=N-kdx5IhIoc)
 - [TELEVISION Will Kill you. PATENT to PROVE it..](https://www.youtube.com/watch?v=15GtRc7ViBk)
 - [You Won't Believe What They Admitted on the News in 1971...](https://www.youtube.com/watch?v=yfaAtdTgBGk)
 - [Mass Hypnosis and Trigger Words](https://www.youtube.com/watch?v=fznpRaM1wIg)
@@ -162,10 +39,6 @@ VIDEOS ON YOUTUBE
 - [The Privacyless, Freedomless Smart City of 2030 the Elite Are Engineering](https://www.youtube.com/watch?v=GRybM76qx6I)
 - [Obsolete — Full Documentary Official (2016)](https://www.youtube.com/watch?v=jPmUGq25KBk)
 - [Rosa Koire : Smart Cities are Future Agenda 21 Hi-Tech Monitored Concentration](https://www.youtube.com/watch?v=p3XuSo03N7s)
-- [Why Are We Literally Eating Demon-Shaped Dead Food in This Society?](https://www.youtube.com/watch?v=EeK_iampjjg)
-- [We Are Being Groomed for the Next Big War](https://www.youtube.com/watch?v=poQPBppFyWM)
-- [Elon Musk: 'We Must Hack Our Brains or Be Destroyed by AI'](https://www.youtube.com/watch?v=MOs-ib5STPE)
-- [NASA's Future of War 2025 Is Already Here! (HD)](https://www.youtube.com/watch?v=aDpGB9J27_g)
 - [What Bilderberg Really Wants In 2017](https://www.youtube.com/watch?v=EbFMnrPbAmU)
 - [AGENDA 21 THE MOVIE: THE MEGACITIES ARE COMING.](https://www.youtube.com/watch?v=mZhI9vvZ2Wo)
 - [This Creepy Patent Proves They Can Remotely Hijack Your Nervous System](https://www.youtube.com/watch?v=yf_EdKxfDiY)
@@ -175,13 +48,10 @@ VIDEOS ON YOUTUBE
 - [WOLVES IN SHEEP'S CLOTHING: How the public was duped into socialism, but got totalitarianism](https://www.youtube.com/watch?v=cYgyDjl2nCU)
 - [Psywar - Full Documentary](https://www.youtube.com/watch?v=2eB046f998U)
 - [We Are Becoming the Internet, the Internet Is Becoming Us](https://www.youtube.com/watch?v=GnLyjsO7mZc)
-- [The Real Secrets Hidden in Antarctica... Revealed](https://www.youtube.com/watch?v=237F1_aLXZ8)
 - [6 Secret Cities That Prove We Don't Know What's Really Going On](https://www.youtube.com/watch?v=wYyBcOLq8bs)
 - [Two Top Secret Missions Disguised As Historic Moments You Thought Were Real](https://www.youtube.com/watch?v=1ZiQUngMhr4)
 - [AGENDA 21 THE MOVIE: THE MEGACITIES ARE COMING.](https://www.youtube.com/watch?v=mZhI9vvZ2Wo)
 - [POWERUL TESTIMONY!! THIS MAN SAW HITLER AND OTHER EVIL PEOPLE IN HELL DURING A NEAR DEATH EXPERIENCE](https://www.youtube.com/watch?v=xt9xodhZ5KI)
-- [Aaliyah, Lefteye,Biggie,Eazy E,Whitney Houston, Amy Winehouse Are All N Hell](https://www.youtube.com/watch?v=wwUffrMRDqE)
-- [CELEBRITIES SEEN IN HELL (TUPAC, ROBIN WILLIAMS, ELVIS, HEATH LEDGER, AND MORE)](https://www.youtube.com/watch?v=_gNw4SGGwDU)
 - [INDIA IMPLEMENTING THE BEAST SYSTEM. CAN'T BUY OR SELL UNLESS YOU TAKE A 12 DIGIT NUMBER](https://www.youtube.com/watch?v=ppEDMsnMfJw)
 - [HITLER: Negroes are The True Jews](https://www.youtube.com/watch?v=NE-X985_prM)
 - [Blacks are in fact the true jews of the bible](https://www.youtube.com/watch?v=FaqCyBlwCxQ&list=PLA3OCbJL135SGuahCKhuQ20eKMiSdXm2t) [playlist]
@@ -239,15 +109,6 @@ VIDEOS ON YOUTUBE
 - [Donald Trump - Illuminati Puppet Exposed - Part 1](https://www.youtube.com/watch?v=SL_uAY63IWo)
 - [Donald Trump - Illuminati Puppet Exposed - Part 2](https://www.youtube.com/watch?v=7vRHwTZCt7Q&list=RD7vRHwTZCt7Q) [playlist]
 - [Donald Trump - Controlled by the Illuminati? New World Order MUST WATCH](https://www.youtube.com/watch?v=TXpOiB2kdIM)
-- [GISELE TOM BRADY ILLUMINATI TRANNY COUPLE EXPOSED!](https://www.youtube.com/watch?v=FMG4GUgnlMo)
-- [MEGYN KELLY ILLUMINATI TRANNY EXPOSED!](https://www.youtube.com/watch?v=t5j1CPUf9RI)
-- [2 Different Melania Trump Actresses IMO. Side By Side Split Screen.](https://www.youtube.com/watch?v=zsD7e8NUZO8)
-- [Melanie Trump Is A Man. Last Days Satanism.](https://www.youtube.com/watch?v=HwqCscLnCW8)
-- [Alex Jones Friend Reveals What Happened To Bill Hicks At A Private Party](https://www.youtube.com/watch?v=_rM2re61BH4)
-- [Alex Jones is a Woman. Bill Hicks 2! Part 1](https://www.youtube.com/watch?v=GqpzxccLW_0)
-- [Ex government agent admits to the Hollow Earth cover up and that Black Americans are targeted](https://www.youtube.com/watch?v=xk75QtxSYwY)
-- [Interview with Reptilian female Lacerta (With Clear Audio and Subtitles)](https://www.youtube.com/watch?v=wjaIq3fuJg8)
-- [Hollow Earth True HISTORY , HITLER & NWO ( GOTTA SEE THIS !!! ) Documentary](https://www.youtube.com/watch?v=NiIWMmRkOok)
 - [Former CIA Agent Makes a Shocking Statement that Will ROCK the Whole World...](https://www.youtube.com/watch?v=yaTGkSoI8Ic)
 - [Amazing Conversation with the Reptilian Hybrid Housewife !!! (MUST WATCH)](https://www.youtube.com/watch?v=7RoLUnN9eWo)
 - [A Brief History of the Saurians/Reptilians Documentary !!! (MUST WATCH)](https://www.youtube.com/watch?v=c_NZoSazYJU)
@@ -323,6 +184,30 @@ VIDEOS ON YOUTUBE
 - [THE TIME HAS COME! THE NAKED TRUTH ABOUT JEWS](https://www.youtube.com/watch?v=dTrrHtcdES0)
 - [Leonard Horowitz speaks about 528 HZ Healing Frequency in Vancouver, Washington (2008)](https://www.youtube.com/watch?v=A8SMtbQ7mfk)
 - [IN LIES WE TRUST - The Secret Pharmaceutical Drug Conspiracy](https://www.youtube.com/watch?v=NkHcEGZ8oVs)
+- [Hillary Is a Clone That Is Breaking Down by Jairo Parra](https://www.youtube.com/watch?v=gUbHFmpVFdw)
+- [SHOCKING! Obama Hints He Is Clone of Pharaoh Akhenaten 666 (WATCH THIS UNDENIABLE PROOF!)](https://www.youtube.com/watch?v=56hGgHdSWhE)
+- [They lied big time !!! Phone towers are basically EMP weapons at will.](https://www.youtube.com/watch?v=gjh4ojVPXuU)
+- [The Truth Behind Obama's Head Scar Conspiracy FINALLY EXPOSED!](https://www.youtube.com/watch?v=oy0VvIUi27A)
+- [Divided States of Zombieland | Are You a Zombie?](https://www.youtube.com/watch?v=_urOCJ78Sg4)
+- [Trump Programming | Destroy America from the Inside](https://www.youtube.com/watch?v=4lt001r7xxs)
+
+
+## Spiritual
+
+- [Placebo - Howard Pittman.mp4](https://www.youtube.com/watch?v=lBwsGDCGQFE)
+- [ONCE SAVED ALWAYS SAVED?](https://www.youtube.com/watch?v=DGfg0PUMImk)
+- [This Is What Satan Would Preach In A "Church"!](https://www.youtube.com/watch?v=EpZ7chF4TT0)
+- [Learn how Demons Operate in the Spirit Realm](https://www.youtube.com/watch?v=F9L9_1qBbEo)
+- [Howard Pittman / Satan's Plan / How Demons Operate / How to Fight Demons](https://www.youtube.com/watch?v=lBwsGDCGQFE&list=PLKDemYz7H5WdDQ7l1l__lDP2VAghKqEzm)
+- [HOWARD PITTMAN END TIME WARNING - PLUS HIS AMAZING LIFE-AFTER-DEATH-ENCOUNTER](https://www.youtube.com/watch?v=UWSCJ5vSus8)
+- [BELIEVING ONCE SAVED ALWAYS SAVED SENT ME TO HELL!](https://www.youtube.com/watch?v=9tspaGtBnrs)
+- [SANTA IS THE DEVIL -- THIS WILL SHOCK YOU](https://www.youtube.com/watch?v=rPbB1Er0v5k)
+- [CHURCH GONE WILD ILLUMINATI SATANIST PASTORS EXPOSED!!](https://www.youtube.com/watch?v=uRHahaoPk34)
+- [Why Can't Lost People Understand The Bible?](https://www.youtube.com/watch?v=zYMfd0_ViZs)
+- [What Does The Bible Say About Smoking? Part 1](https://www.youtube.com/watch?v=7fK7a4jggp4)
+- [What Does The Bible Say About Smoking? Part 2](https://www.youtube.com/watch?v=njd3HUWrmaM)
+- [How to QUIT SMOKING - QUITTING Smoking SUCKS - It's all in your HEAD - Nicotine Addiction](https://www.youtube.com/watch?v=xAtib-EsODY)
+- [Demonic Sigils and Eyes in the Skies](https://www.youtube.com/watch?v=N-kdx5IhIoc)
 - [ILLUMINATI PASTORS EXPOSED !!!!](https://www.youtube.com/watch?v=k5azmloxpCw)
 - [Joel Osteen Exposed - Reptilian False Prophets](https://www.youtube.com/watch?v=Gba8BtJAOqg)
 - [JOEL OSTEEN DENIES JESUS CHRIST & OPRAH WINFREY EXPOSED! Joel Osteen hoax ](https://www.youtube.com/watch?v=weEWl52wevI)
@@ -352,13 +237,142 @@ VIDEOS ON YOUTUBE
 - [A Case for Believing Obama is a Clone of Akhenaten](https://www.youtube.com/watch?v=63cqS3R_jck)
 - [Barack Obama, Secret Service Codename Renegade, Is A Clone Of The Akhenaten Pharaoh!](https://www.youtube.com/watch?v=_Apwfhm9eWs)
 - [% OBAMA !!! * has a cloned image that speaks ! obama is not obama * IM SERIOUS !](https://www.youtube.com/watch?v=A-lSNH3cSS0)
-- [Hillary Is a Clone That Is Breaking Down by Jairo Parra](https://www.youtube.com/watch?v=gUbHFmpVFdw)
-- [SHOCKING! Obama Hints He Is Clone of Pharaoh Akhenaten 666 (WATCH THIS UNDENIABLE PROOF!)](https://www.youtube.com/watch?v=56hGgHdSWhE)
-- [They lied big time !!! Phone towers are basically EMP weapons at will.](https://www.youtube.com/watch?v=gjh4ojVPXuU)
-- [The Truth Behind Obama's Head Scar Conspiracy FINALLY EXPOSED!](https://www.youtube.com/watch?v=oy0VvIUi27A)
 - [Ex Satan Worshipper John Ramirez Testimony](https://www.youtube.com/watch?v=I11L71PD3Lw)
-- [Divided States of Zombieland | Are You a Zombie?](https://www.youtube.com/watch?v=_urOCJ78Sg4)
-- [Trump Programming | Destroy America from the Inside](https://www.youtube.com/watch?v=4lt001r7xxs)
+
+
+## Devolving/Dark Culture
+
+- [INTRODUCING THE NEW MEN'S FASHION OFFICE ATTIRE OF 2017!](https://www.youtube.com/watch?v=cesCNxWGJbI)
+- [THE LAKE OF FIRE IS GETTING HOTTER BY THE SECOND!](https://www.youtube.com/watch?v=dNqrYiV3j-0)
+- [THIS WILL MAKE YOU WANT TO PULL YOUR HAIR OUT!](https://www.youtube.com/watch?v=LjOJj34k_Gs)
+- [Gone at 33: YouTube Star Stevie Ryan - Dark Industry Revealed](https://www.youtube.com/watch?v=ips1pAqwaFE)
+- [SHE IS NOT A MAN?? - The Pink Dress Tells All - (A Beauty We Have)](https://www.youtube.com/watch?v=eV-YdKX8HVo)
+- [AMAZING! You Won't Believe Which Business Owns Entire Industry!](https://www.youtube.com/watch?v=fCYIG_Q8oHs)
+- [Devils tower and Pagan rituals](https://www.youtube.com/watch?v=y2dBpiS_Aik)
+- [Why Are We Literally Eating Demon-Shaped Dead Food in This Society?](https://www.youtube.com/watch?v=EeK_iampjjg)
+- [Aaliyah, Lefteye,Biggie,Eazy E,Whitney Houston, Amy Winehouse Are All N Hell](https://www.youtube.com/watch?v=wwUffrMRDqE)
+- [CELEBRITIES SEEN IN HELL (TUPAC, ROBIN WILLIAMS, ELVIS, HEATH LEDGER, AND MORE)](https://www.youtube.com/watch?v=_gNw4SGGwDU)
+- [GISELE TOM BRADY ILLUMINATI TRANNY COUPLE EXPOSED!](https://www.youtube.com/watch?v=FMG4GUgnlMo)
+- [MEGYN KELLY ILLUMINATI TRANNY EXPOSED!](https://www.youtube.com/watch?v=t5j1CPUf9RI)
+- [2 Different Melania Trump Actresses IMO. Side By Side Split Screen.](https://www.youtube.com/watch?v=zsD7e8NUZO8)
+- [Melanie Trump Is A Man. Last Days Satanism.](https://www.youtube.com/watch?v=HwqCscLnCW8)
+- [Alex Jones Friend Reveals What Happened To Bill Hicks At A Private Party](https://www.youtube.com/watch?v=_rM2re61BH4)
+- [Alex Jones is a Woman. Bill Hicks 2! Part 1](https://www.youtube.com/watch?v=GqpzxccLW_0)
+
+
+## Movies from The Books
+
+- [The Visual Bible - The Gospel Of Matthew](https://www.youtube.com/watch?v=woAhReBytBk) [MOVIE]
+- [The Gospel of Luke](https://www.youtube.com/watch?v=auL-ebjH-xo) [MOVIE]
+- [The Gospel of Luke - Film - Visual Bible in HD Very Rare Version](https://www.youtube.com/watch?v=2PHPLApTt7Y) [MOVIE]
+- [The Acts of the Apostles - Film - High Quality! HD](https://www.youtube.com/watch?v=tRXNp6K5-JI) [MOVIE]
+- [Paul the Apostle Full Movie](https://www.youtube.com/watch?v=t5FhLQhDsk0) [MOVIE]
+- [The Book Of Revelation (Full Movie)](https://www.youtube.com/watch?v=NAb2hdQneBY) [MOVIE]
+- [The Ruth Story](https://www.youtube.com/watch?v=slEmSyJi81g) [MOVIE]
+- [Esther and the King](https://www.youtube.com/watch?v=SQ6qYypfmIo) [MOVIE]
+- [Samson and Delilah - full movie - full movie](https://www.youtube.com/watch?v=a9968bcrywY) [MOVIE]
+- [David and Goliath...Orson Welles as King Saul](https://www.youtube.com/watch?v=GpVf6JII-VM) [MOVIE]
+- [Sodom & Gomorrah FULL VIDEO](https://www.youtube.com/watch?v=WWpknxvxLpk) [MOVIE]
+- [The Story of Joseph and His Brethren (1962)](https://www.youtube.com/watch?v=u2dM_kW-SOI) [MOVIE]
+- [Abraham, Sarah, Isaac, Jacob ( Full Movie )](https://www.youtube.com/watch?v=V5WNbtj3gZs) [MOVIE]
+- [The Ten Commandments.Full Movie HD.](https://www.youtube.com/watch?v=4s320VeVUQA) [MOVIE]
+- [Jesus Of Nazareth (Original Bible Movie) 1977](https://www.youtube.com/watch?v=pG6Y88iQhCE) [MOVIE]
+- [Jesus is Coming Full Movie](https://www.youtube.com/watch?v=Gi0eW2BEOXM) [MOVIE]
+- [The Books Of Enoch: COMPLETE EDITION, All 3 Books - Flat Earth](https://www.youtube.com/watch?v=s7TynhdCPI4)
+- [The Book of Enoch - Entire Book, R. H. Charles Version (Synchronized Text)](https://www.youtube.com/watch?v=5wbdjo7xnUg)
+- [The Second Book of Enoch (Human Voice, Read-Along Version)](https://www.youtube.com/watch?v=60Bp0qJvvqA)
+
+**Note:** These are old movies, you can trust these more than the new ones having new actors and brainwashing tactics.
+
+## Sermons
+
+**Note:** Watch more videos on youtube [The Mind of God (Pastor Charles Lawson)](https://www.youtube.com/watch?v=RoF9iBRyLAI&list=PLHjf9oqszTVaOR3XenoMOBHKY1SrBFYFu) [playlist]
+
+- [King James Video Ministries KICKED OFF Sermon Audio!!!](https://www.youtube.com/watch?v=NbTbMpvhSVo)
+- [Are You Serious? Flat Earth?](https://www.youtube.com/watch?v=VkGm0rcxCBU)
+- [Illumination of the Third Eye - Pastor Charles Lawson](https://www.youtube.com/watch?v=8B-KT94bWHg)
+- [The Fruits Of The Holy Spirit](https://www.youtube.com/watch?v=AFNAriKobp8)
+- [Beware the Emerging Church Movement (Pastor Charles Lawson)](https://www.youtube.com/watch?v=3QJ226sGfNI)
+- [Great Deception Is Settling In (Pastor Charles Lawson)](https://www.youtube.com/watch?v=WZMf5l9SG9I)
+- [What Must I Do To Be Saved? (Pastor Charles Lawson)](https://www.youtube.com/watch?v=EDOeS0fNIJc)
+- [What To Do When You Mess Up (Pastor Charles Lawson)](https://www.youtube.com/watch?v=7qsV_wKsCtk)
+- [They Will Take Your Children Jun 28 2017](https://www.youtube.com/watch?v=Qz1ISvHLl_g)
+- [The Rapture is at Hand](https://www.youtube.com/watch?v=3vQ3PMYqrRw)
+- [Rapture Part 2](https://www.youtube.com/watch?v=j5-xXFgiyXg)
+- [The Rapture Explained April 9 2017 Sunday School](https://www.youtube.com/watch?v=ChFAhcaUD0Y)
+- [The Elite Conjure up Lucifer](https://www.youtube.com/watch?v=4WBu91fjAJE)
+- [Lucifer Infects The Movers & Shakers](https://www.youtube.com/watch?v=gg7DwbUDLRg)
+- [Who Can Go To Heaven? (Pastor Charles Lawson](https://www.youtube.com/watch?v=ktAbEvovVb0)
+- [Battle For Your Soul (Pastor Charles Lawson)](https://www.youtube.com/watch?v=1jAbMgAi-H0)
+- [Battle for Your Mind (Pastor Charles Lawson)](https://www.youtube.com/watch?v=VSiX0KhPLWY)
+- [Characteristics of Evil (Pastor Charles Lawson)](https://www.youtube.com/watch?v=hkxA1QMfiY4)
+- [Charles Lawson - Arm Yourselves!!! FULL SERMON](https://www.youtube.com/watch?v=SGfzGOAiOQo)
+
+## Informative videos about different topics
+
+**Note:** You may want to rewind/fast-forward and watch the video again, while your mind is processing the information you won't consume all of it at once, do what you need to make sure you understand the message. Be investigator, architect, scientist, doctor, professor like how God made all of us and intended it to be, we are all equal! This world, creation and your life isn't all random! Be wise! Get interested, your life depends on it! Teach your children the truth, I beg you! Think about eugenics before you think about how we are not equal!
+
+
+## Flat Earth
+
+- [WORDS OF WISDOM FLAT EARTH](https://www.youtube.com/watch?v=IfdCPCsrxS4)
+- [So Why Does Flat Earth Matter ? "A▶️️MUST WATCH"](https://www.youtube.com/watch?v=CDISd94Uhps)
+- [TOP RATED 2017 FLAT EARTH DOCUMENTARY](https://www.youtube.com/watch?v=N2ZHb5WJcys)
+- [Flat Earth Anonymous Message for all Citizens of the World](https://www.youtube.com/watch?v=b6czH8EsOP0)
+- [The Flat Earth : Free energy forever no wind no solar no gas "power your home get off the grid"](https://www.youtube.com/watch?v=IJDo-SEAkno)
+- [Russianvids Responds To Daniel Tosh - Flat Earth Mocked On Tosh.0](https://www.youtube.com/watch?v=kKMI354O4YQ)
+- [We Never Have and Will Never Go To The Moon. NASA: You Suck! (fix)](https://www.youtube.com/watch?v=Xt0RW6qMbLw)
+- [The Flat Earth Last Video From Aaron Dover Before they Killed Him](https://www.youtube.com/watch?v=nhoQSee-5h0)
+- [Enoch's Bible says the Lucifer lives in Antarctica !!!](https://www.youtube.com/watch?v=YA1hYIpQcys)
+- [Jesuits Erasing our Flat Earth - Documentary](https://www.youtube.com/watch?v=olbyJDou4qQ)
+- [The Jesuit Conspiracy - Flat Earth](https://www.youtube.com/watch?v=6lSgsOU9OiI)
+- [Flat Earth: Bible Truth in an Unstable World](https://www.youtube.com/watch?v=v5onXxxITqo)
+- [Am I a FLAT EARTHER ?](https://www.youtube.com/watch?v=zDfYh51z7bM)
+- [NOAHs ARK in 4K an ALT. VIEWPOINT](https://www.youtube.com/watch?v=gLNx7c4Fbxk)
+- [Drone Flying Over the REAL Noah's Ark](https://www.youtube.com/watch?v=3IwXy9uEEQ0)
+- [they found noah's ark in 1968, they had keep hidden from us all this time](https://www.youtube.com/watch?v=ARltPIRR76U)
+- [Admiral Richard E. Byrd - South Pole Video Interview](https://www.youtube.com/watch?v=czW0iRJuH1A)
+- [Under The Dome - Full Documentary](https://www.youtube.com/watch?v=fk4YqPtvJao)
+- [A History Of Flat Earth - Eric Dubay](https://www.youtube.com/watch?v=pGl8I3l-5ac)
+- [A Flat Earth Awakening Story - Eric Dubay](https://www.youtube.com/watch?v=ER9Ul_ostZ8)
+- [Flat Earth, Fake Aliens and Real Giants](https://www.youtube.com/watch?v=oqPLShx0Jfc)
+- [Giant Human Beings Existed](https://www.youtube.com/watch?v=mRqjY5kyu34)
+- [OUR FLAT DOMED CLOSED SYSTEM EXPLAINED - DMurphy25](https://www.youtube.com/watch?v=-RIBO7VB0VE)
+- [Firmament Rising - The Globular Deception](https://www.youtube.com/watch?v=rez2CmyyfN4)
+- [The Best Flat Earth Documentary](https://www.youtube.com/watch?v=GhRiLP32qfs)
+- [IMPOSSIBALL Flat Earth Documentary (2017)](https://www.youtube.com/watch?v=UbYtkrTquXE)
+- [THE BEST Flat Earth VIDEO | 1000% Proof The Earth Is Flat | Lets See You Debunk This!!!!](https://www.youtube.com/watch?v=p7lDq4dOlIk)
+- [THE BEST Flat Earth VIDEO FOR All PEOPLE | 100% PROOF THE EARTH IS FLAT](https://www.youtube.com/watch?v=ynnFwTiQlxM)
+- [FLAT EARTH - 'Absolute Proof' | Rocket Hitting The Dome](https://www.youtube.com/watch?v=echpThvHli8)
+- [200 Proofs Earth is Not a Spinning Ball Videobook](https://www.youtube.com/watch?v=h5i_iDyUTCg)
+- [The Zionists, Freemasons, and NASA's Biggest Secret](https://www.youtube.com/watch?v=dTqmcvdm4hM)
+- [There are no forests on Flat Earth Wake Up](https://www.youtube.com/watch?v=UHkiZNT3cyE)
+- [There are no forests on earth! (ENGLISH VOICEOVER)](https://www.youtube.com/watch?v=ObJL6aA2czo)
+- [The World's Biggest Secret](https://www.youtube.com/watch?v=TFsuOFoolW8)
+- [Big Bang Evolution is a Masonic Lie Hiding Intelligent Design](https://www.youtube.com/watch?v=JkEL4yBJxm8)
+- [Under The Dome - Documentary (Edge of the firmament)](https://www.youtube.com/watch?v=4BxHP9T6480)
+- [The Flat Earth History and WHY it's hidden from us. By Eric Dubay. As Talked About with Eddie Bravo!](https://www.youtube.com/watch?v=9UbV3kTY8jw)
+- [NASA ISS HOAX! INTERNATIONAL SPACE STATION DOES NOT EXIST!](https://www.youtube.com/watch?v=TSQjerWbRfo)
+- [Flat Earth PROOF of God [6/9/2017]](https://www.youtube.com/watch?v=YI3BrH5t7oQ)
+- [Flat Earth Dome Explained 100% & the Entrance to Agartha](https://www.youtube.com/watch?v=fDBRhxryfZM)
+- [No One Has Been To Space~Watch This!](https://www.youtube.com/watch?v=WHMzgKB_uhY)
+- [Flat Earth Evidence and Proof June 2017](https://www.youtube.com/watch?v=-utWNUnrT9g)
+- [BEST FLAT EARTH PROOF 2017 - YOU CANT DENY THIS EVIDENCE](https://www.youtube.com/watch?v=awl8Eel7fgg)
+- [How to Quit Your Slave Job (and Live Your Dream Life!)](https://www.youtube.com/watch?v=HLwNG5l0Yoo)
+- [The Most Important Thing in Your Life](https://www.youtube.com/watch?v=sKH-NmLFDH4)
+- [Satan's Computer; What you Where Not Taught In School, This Will Blow Your Mind - Flat Earth Stream](https://www.youtube.com/watch?v=jwK6aUfTrvQ)
+- [CHRISTIANS MUST WATCH we are being LIED TO ISRAELITES](https://www.youtube.com/watch?v=xNTdajfE14Y)
+- [The TRUE Hebrew Israelites defined by Scripture and history. WARNING you will be shocked!!!](https://www.youtube.com/watch?v=bEDfrBBPZzg)
+- [A History of the True Hebrews (Documentary)](https://www.youtube.com/watch?v=biPDp8pGqGg)
+- [WHO ARE THE REAL BIBLICAL ISRAELITES?](https://www.youtube.com/watch?v=HuUAnpIPK5E)
+- [EUROPEAN CONFESSIONS-AFRICAN AMERICANS ARE THE TRUE ISRAELITES AND THE CHOSEN PEOPLE OF GOD](https://www.youtube.com/watch?v=ja93FjyCSfo)
+- [We Are Being Groomed for the Next Big War](https://www.youtube.com/watch?v=poQPBppFyWM)
+- [Elon Musk: 'We Must Hack Our Brains or Be Destroyed by AI'](https://www.youtube.com/watch?v=MOs-ib5STPE)
+- [NASA's Future of War 2025 Is Already Here! (HD)](https://www.youtube.com/watch?v=aDpGB9J27_g)
+- [The Real Secrets Hidden in Antarctica... Revealed](https://www.youtube.com/watch?v=237F1_aLXZ8)
+- [Ex government agent admits to the Hollow Earth cover up and that Black Americans are targeted](https://www.youtube.com/watch?v=xk75QtxSYwY)
+- [Interview with Reptilian female Lacerta (With Clear Audio and Subtitles)](https://www.youtube.com/watch?v=wjaIq3fuJg8)
+- [Hollow Earth True HISTORY , HITLER & NWO ( GOTTA SEE THIS !!! ) Documentary](https://www.youtube.com/watch?v=NiIWMmRkOok)
 - [A Stranger's Guide to Flat Earth | 21 Questions ▶️️ Research Flat Earth](https://www.youtube.com/watch?v=k0xClWgidZU&list=PLm6Vq0bTTCDj8fuDVfqcytiuxbVj_Lyq4) [playlist]
 - [ODD Reality talks Flat Earth on AMTV ✅](https://www.youtube.com/watch?v=v5nsewcK42s)
 - [Hiding the Truth of God Creating This Enclosed Flat Earth](https://www.youtube.com/watch?v=mYuVI-GoucI)
@@ -369,6 +383,10 @@ VIDEOS ON YOUTUBE
 - [It Won't End Peacefully 😧](https://www.youtube.com/watch?v=MlYheQTmfwA)
 - [Flat Earth is REAL 🌎](https://www.youtube.com/watch?v=wMfUKDGMVpM)
 - [THEY LOOK LIKE PEOPLE!](https://www.youtube.com/watch?v=8QJdC4L0URQ)
+
+
+## 
+
 - [Why Do We See So Much Of THIS In Hollywood Movies Lately? (2017)](https://www.youtube.com/watch?v=dyRep1ZPl3w)
 - [THEY ARE TEACHING US TO EAT EACH OTHER (2017)](https://www.youtube.com/watch?v=az84I1VUg-o)
 - [The ´SECRET GOD´ The World Unwittingly WORSHIPS! (2017)](https://www.youtube.com/watch?v=NirJzmPnaE8)
