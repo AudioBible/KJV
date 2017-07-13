@@ -75,3 +75,4 @@ This is by no means an exhaustive list of channels, it should be enough to get y
 - [Flat Earth Paradise](https://www.youtube.com/channel/UCrMtGn3xwOY2Q7BbyYBkAnQ)
 - [Shahzwar Bugti](https://www.youtube.com/user/TruthIncSB)
 - [ThePottersClay](https://www.youtube.com/channel/UCpEdOLvL6olNghR-BWghUQA)
+- [Einar Kuusk](https://www.youtube.com/user/EinarKuusk)
