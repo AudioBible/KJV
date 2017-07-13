@@ -196,7 +196,7 @@ Contact [audiobible.life@gmail.com](mailto:audiobible.life@gmail.com)
 
 ![dubai-flat-earth-ruler-comparison](images/dubai-flat-earth-ruler-comparison.png)
 
-## THE EARTH IS FLAT, IN CASE YOU DIDN'T KNOW, NASA LIES!
+## THE EARTH IS FLAT, NASA/GOVERNMENT LIES!
 
 **ISAIAH 40:22:** It is he that sitteth upon the circle of the earth, and the inhabitants thereof are as grasshoppers; that stretcheth out the heavens as a curtain, and spreadeth them out as a tent to dwell in:
 
