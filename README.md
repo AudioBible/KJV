@@ -4,8 +4,6 @@
 
 ## DO YOURSELF and EARTH A FAVOR, CHECK IT OUT!!!
 
-# YouTube Search "[Flat Earth](https://www.youtube.com/results?search_query=flat+earth)"
-
 ### King James Version Audio Bible for Mac, Windows and Unix/Linux
 
 ###### What I know is that I don't know anything, so I keep looking for the truth/answers and realize how little I actually know, but the more I keep looking for the truth the more I know that I have a chance to be saved!
@@ -195,6 +193,8 @@ Contact [audiobible.life@gmail.com](mailto:audiobible.life@gmail.com)
 ###### I pray God helps you to see, hear, read and understand and most importantly do something right about it! God bless you on your journey! Thank you for reading.
 
 ![dubai-flat-earth-ruler-comparison](images/dubai-flat-earth-ruler-comparison.png)
+
+# YouTube Search "[Flat Earth](https://www.youtube.com/results?search_query=flat+earth)"
 
 ## THE EARTH IS FLAT, NASA/GOVERNMENT LIES!
 
