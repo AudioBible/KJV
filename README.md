@@ -19,7 +19,7 @@
 
 #### Thank you for taking the time to check this project out.
 
-![thomas-jefferson-educate-and-inform-americans-quote](images/thomas-jefferson-educate-and-inform-americans-quote.png)
+![thomas-jefferson-educate-and-inform-the-masses-quote](images/thomas-jefferson-educate-and-inform-the-masses-quote.png)
 
 ## [VIDEOS ON YOUTUBE](VIDEOS.md)
 
