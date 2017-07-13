@@ -1,6 +1,8 @@
 # YouTube Search "[Flat Earth](https://www.youtube.com/results?search_query=flat+earth)" - [KJV](https://github.com/AudioBible/KJV) [AudioBible](https://github.com/AudioBible/AudioBible)
 
-# DO YOURSELF A FAVOR, CHECK IT OUT!!!
+![thomas-jefferson-educate-and-inform-the-masses-quote](images/thomas-jefferson-educate-and-inform-the-masses-quote.png)
+
+### DO YOURSELF and AMERICA A FAVOR, CHECK IT OUT!!!
 
 ## [King James Version Audio Bible for Mac, Windows and Unix/Linux](http://audiobible.life)
 
@@ -18,8 +20,6 @@
 #### I’m not all that smart actually, but I keep trying and learning and it helps. 
 
 #### Thank you for taking the time to check this project out.
-
-![thomas-jefferson-educate-and-inform-the-masses-quote](images/thomas-jefferson-educate-and-inform-the-masses-quote.png)
 
 ## [VIDEOS ON YOUTUBE](VIDEOS.md)
 
