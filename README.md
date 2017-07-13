@@ -10,6 +10,12 @@
 
 #### [Biblical Flat Earth 24/7 LIVE! ✞ Discussing Creation From The Word of God - Christian Flat Earth](https://www.youtube.com/CelebrateTruth/live)
 
+# audiobible find let god be true
+
+ 
+    ROMANS 3:4 God forbid: yea, let God be true, but every man a liar; as it is written, That thou mightest be justified in thy sayings, and mightest overcome when thou art judged.
+
+
 ## [VIDEOS ON YOUTUBE](VIDEOS.md)
 
 ## [YOUTUBE CHANNELS](CHANNELS.md)
@@ -29,13 +35,6 @@
 ## [HELP WITH THE PROJECT](HELP.md)
 
 Contact audiobible.life@gmail.com
-
-
-# audiobible find let god be true
-
- 
-    ROMANS 3:4 God forbid: yea, let God be true, but every man a liar; as it is written, That thou mightest be justified in thy sayings, and mightest overcome when thou art judged.
-
 
 # Install On Mac
 
