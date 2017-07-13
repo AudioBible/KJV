@@ -2,7 +2,7 @@
 
 ![thomas-jefferson-educate-and-inform-the-masses-quote](images/thomas-jefferson-educate-and-inform-the-masses-quote.png)
 
-### DO YOURSELF and EARTH A FAVOR, CHECK IT OUT!!!
+## DO YOURSELF and EARTH A FAVOR, CHECK IT OUT!!!
 
 ## [King James Version Audio Bible for Mac, Windows and Unix/Linux](http://audiobible.life)
 
