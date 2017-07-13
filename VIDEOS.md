@@ -396,6 +396,9 @@ Do some research, this is by no means an exhaustive list, hopefully it's enough 
 - [The South Pole Does Not Exist! By Eric Dubai](https://www.youtube.com/watch?v=L_ePaUGh12U)
 - [Flat Earth Firestarters Eric Dubay and Sinead McCarthy](https://www.youtube.com/watch?v=T4ccYQ6vVuo)
 - [Flat Earth Universe - A Short Documentary Film 2016](https://www.youtube.com/user/TruthIncSB)
+- [Finding the Curve - Episode 1 (Flat Earth Documentary)](https://www.youtube.com/watch?v=VdQTdVY1-SE)
+- [Finding the Curve - Episode 2 (Flat Earth Documentary)](https://www.youtube.com/watch?v=baZpwJaA7D8)
+- [Finding the Curve - Episode 3 (Flat Earth Documentary) ](https://www.youtube.com/watch?v=jAT08Up1ZOU)
 
 ## 
 
