@@ -3,6 +3,8 @@ VIDEOS ON YOUTUBE
 
 Do some research, this is by no means an exhaustive list, hopefully it's enough to get you started!
 
+Please remember to share and tell everyone! We need our world back!
+
 ## Government
 
 - [Forced Government Indoctrination Camps](https://www.youtube.com/watch?v=72Lrz0khXP0)
