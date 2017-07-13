@@ -19,6 +19,8 @@
 
 #### Thank you for taking the time to check this project out.
 
+![thomas-jefferson-educate-and-inform-americans-quote](images/thomas-jefferson-educate-and-inform-americans-quote.png)
+
 ## [VIDEOS ON YOUTUBE](VIDEOS.md)
 
 ## [YOUTUBE CHANNELS](CHANNELS.md)
