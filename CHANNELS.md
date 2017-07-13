@@ -77,7 +77,7 @@ This is by no means an exhaustive list of channels, it should be enough to get y
 - [ThePottersClay](https://www.youtube.com/channel/UCpEdOLvL6olNghR-BWghUQA)
 - [Einar Kuusk](https://www.youtube.com/user/EinarKuusk)
 
-Make sure to subscribe to these channels so you can't stay up to date with what people are putting out there.
+Make sure to subscribe to these channels so you can stay up to date with what people are putting out there.
 
 First click the subscribe button, then click the button with bell icon, then check the checkbox and click save.
 
