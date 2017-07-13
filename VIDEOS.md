@@ -352,6 +352,7 @@ Do some research, this is by no means an exhaustive list, hopefully it's enough 
 - [The Zionists, Freemasons, and NASA's Biggest Secret](https://www.youtube.com/watch?v=dTqmcvdm4hM)
 - [There are no forests on Flat Earth Wake Up](https://www.youtube.com/watch?v=UHkiZNT3cyE)
 - [There are no forests on earth! (ENGLISH VOICEOVER)](https://www.youtube.com/watch?v=ObJL6aA2czo)
+- [На ЗEMЛЕ лесов нет! Видео для думающих](https://www.youtube.com/watch?v=M9RdSHpBg-o)
 - [The World's Biggest Secret](https://www.youtube.com/watch?v=TFsuOFoolW8)
 - [Big Bang Evolution is a Masonic Lie Hiding Intelligent Design](https://www.youtube.com/watch?v=JkEL4yBJxm8)
 - [Under The Dome - Documentary (Edge of the firmament)](https://www.youtube.com/watch?v=4BxHP9T6480)
@@ -387,7 +388,12 @@ Do some research, this is by no means an exhaustive list, hopefully it's enough 
 - [It Won't End Peacefully 😧](https://www.youtube.com/watch?v=MlYheQTmfwA)
 - [Flat Earth is REAL 🌎](https://www.youtube.com/watch?v=wMfUKDGMVpM)
 - [THEY LOOK LIKE PEOPLE!](https://www.youtube.com/watch?v=8QJdC4L0URQ)
-
+- [Плоская Земля. Эксперимент озеро Чаны. Приглашение к участию.](https://www.youtube.com/watch?v=VYzUhOw_B1U)
+- [Плоская Земля. Эксперимент Анапа. 20.05.2017.](https://www.youtube.com/watch?v=sgCLIG2xSHM)
+- [Плоская Земля. Ты еще Сомневаешься? Тогда Смотри!](https://www.youtube.com/watch?v=G5SAsaOOlmg)
+- [Разрушение теории плоской земли - 1](https://www.youtube.com/watch?v=rjJLsRfUrXk)
+- [Разрушение теории плоской земли - 2](https://www.youtube.com/watch?v=AIPyrryLNrU)
+- [The South Pole Does Not Exist! By Eric Dubai](https://www.youtube.com/watch?v=L_ePaUGh12U)
 
 ## 
 
