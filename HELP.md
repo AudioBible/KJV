@@ -43,3 +43,5 @@ Our life is like that of a fetus inside the womb, the womb determines the sex ma
 
     PS 147:5 Great is our Lord, and of great power: his understanding is infinite.
 
+
+![stats](https://c.statcounter.com/11394972/0/f8d7d637/0/)

@@ -14,3 +14,5 @@ LINKS
 - [StopLookThink.com](http://stoplookthink.com)
 - [http://answering-christianity.com/earth_flat.htm](http://answering-christianity.com/earth_flat.htm)
 - [http://fundamental.org/fundamental/churches](http://fundamental.org/fundamental/churches)
+
+![stats](https://c.statcounter.com/11394972/0/f8d7d637/0/)

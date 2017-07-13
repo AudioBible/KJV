@@ -6,3 +6,5 @@ DOCUMENTS
 =========
 
 - [SILENT_WEAPONS_for_QUIET_WARS.pdf](documents/SILENT_WEAPONS_for_QUIET_WARS.pdf)
+
+![stats](https://c.statcounter.com/11394972/0/f8d7d637/0/)

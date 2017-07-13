@@ -274,3 +274,5 @@ Contact [audiobible.life@gmail.com](mailto:audiobible.life@gmail.com)
 - [King James Audio Bible Download for MP3 and iPod devices](http://www.audiobible.com/king-james-bible-download-for-mp3-and-ipod/)
 - [Russian Audio Bible Download for MP3 or iPod devices](http://www.audiobible.com/download-russian-audio-bible-mp3-and-ipod/)
 - [Mandarin Chinese Audio Bible Download for MP3, iPhone or iPod](http://www.audiobible.com/mandarin-chinese-audio-bible-download-mp3-ipod-devices/)
+
+![stats](https://c.statcounter.com/11394972/0/f8d7d637/0/)

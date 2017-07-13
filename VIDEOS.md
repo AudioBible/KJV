@@ -634,3 +634,5 @@ You can trust a regular person more than you can trust a corporation or a govern
 
 
 **Note:** If some of the youtube video links above don't work, search for the video by name in the youtube search.
+
+![stats](https://c.statcounter.com/11394972/0/f8d7d637/0/)

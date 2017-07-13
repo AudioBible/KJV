@@ -10,3 +10,5 @@ BOOKS
 - [The Negro In Our History](https://www.forgottenbooks.com/en/readbook/TheNegroinOurHistory_10101622)
 - [Kings Dethroned](https://www.forgottenbooks.com/en/readbook/KingsDethroned_10031911)
 - [The Book of Enoch](https://www.forgottenbooks.com/en/readbook/TheBookofEnoch_10152066)
+
+![stats](https://c.statcounter.com/11394972/0/f8d7d637/0/)
