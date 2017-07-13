@@ -73,3 +73,4 @@ This is by no means an exhaustive list of channels, it should be enough to get y
 - [World History Official](https://www.youtube.com/channel/UCuV7s0h4ZzM9LzsQ1Hho0cg)
 - [the Truth is stranger than fiction...](https://www.youtube.com/channel/UC2aFQcGgRoVuEWfx2AM0H-A)
 - [Flat Earth Paradise](https://www.youtube.com/channel/UCrMtGn3xwOY2Q7BbyYBkAnQ)
+- [Shahzwar Bugti](https://www.youtube.com/user/TruthIncSB)

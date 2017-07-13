@@ -395,6 +395,7 @@ Do some research, this is by no means an exhaustive list, hopefully it's enough 
 - [Разрушение теории плоской земли - 2](https://www.youtube.com/watch?v=AIPyrryLNrU)
 - [The South Pole Does Not Exist! By Eric Dubai](https://www.youtube.com/watch?v=L_ePaUGh12U)
 - [Flat Earth Firestarters Eric Dubay and Sinead McCarthy](https://www.youtube.com/watch?v=T4ccYQ6vVuo)
+- [Flat Earth Universe - A Short Documentary Film 2016](https://www.youtube.com/user/TruthIncSB)
 
 ## 
 
