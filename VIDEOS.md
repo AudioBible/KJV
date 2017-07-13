@@ -5,6 +5,8 @@ Do some research, this is by no means an exhaustive list, hopefully it's enough 
 
 Please remember to share and tell everyone! We need our world back!
 
+I don't know how to categorize the videos, but I made an attempt at it, but don't go by my judgement, I could be wrong!
+
 ## Government
 
 - [Forced Government Indoctrination Camps](https://www.youtube.com/watch?v=72Lrz0khXP0)
