@@ -37,7 +37,7 @@
 
 ## [HELP WITH THE PROJECT](HELP.md)
 
-Contact audiobible.life@gmail.com
+Contact [audiobible.life@gmail.com](mailto:audiobible.life@gmail.com)
 
 # Install On Mac
 
