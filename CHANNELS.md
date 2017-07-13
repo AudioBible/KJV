@@ -76,3 +76,20 @@ This is by no means an exhaustive list of channels, it should be enough to get y
 - [Shahzwar Bugti](https://www.youtube.com/user/TruthIncSB)
 - [ThePottersClay](https://www.youtube.com/channel/UCpEdOLvL6olNghR-BWghUQA)
 - [Einar Kuusk](https://www.youtube.com/user/EinarKuusk)
+
+Make sure to subscribe to these channels so you can't stay up to date with what people are putting out there.
+
+First click the subscribe button, then click the button with bell icon, then check the checkbox and click save.
+
+![images/youtube-channel-subscribe1](images/youtube-channel-subscribe1.png)
+
+![images/youtube-channel-subscribe2](images/youtube-channel-subscribe2.png)
+
+![images/youtube-channel-subscribe3](images/youtube-channel-subscribe3.png)
+
+![images/youtube-channel-subscribe4](images/youtube-channel-subscribe4.png)
+
+![images/youtube-channel-subscribe5](images/youtube-channel-subscribe5.png)
+
+![images/youtube-channel-subscribe6](images/youtube-channel-subscribe6.png)
+
