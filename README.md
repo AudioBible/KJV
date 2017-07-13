@@ -237,7 +237,7 @@ Contact [audiobible.life@gmail.com](mailto:audiobible.life@gmail.com)
 
 ![closed-minded-open-minded](images/closed-minded-open-minded.png)
 
-![second-coming-of-jesus-christ_heaven-opened-up](second-coming-of-jesus-christ_heaven-opened-up.jpg)
+![second-coming-of-jesus-christ_heaven-opened-up](images/second-coming-of-jesus-christ_heaven-opened-up.jpg)
 
 # audiobible ps 23
 
