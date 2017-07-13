@@ -289,4 +289,4 @@
     DEUT 18:22 When a prophet speaketh in the name of the LORD, if the thing follow not, nor come to pass, that is the thing which the LORD hath not spoken, but the prophet hath spoken it presumptuously: thou shalt not be afraid of him.
     
 
-![stats](https://c.statcounter.com/11394972/0/f8d7d637/0/)
+![stats](https://c.statcounter.com/11394978/0/d2ce532c/0/)

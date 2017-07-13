@@ -57,4 +57,4 @@ If you work for the Govern(control)-Ment(mind), hospitals, schools or corporatio
 - [Silent Weapons for Quiet Wars Part 3 of 4](https://www.youtube.com/watch?v=iib1N5nVSws)
 - [Silent Weapons for Quiet Wars Conclusion](https://www.youtube.com/watch?v=Af4pIsJTT3Y)
 
-![stats](https://c.statcounter.com/11394972/0/f8d7d637/0/)
+![stats](https://c.statcounter.com/11394984/0/e199372f/0/)

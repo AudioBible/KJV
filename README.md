@@ -275,4 +275,4 @@ Contact [audiobible.life@gmail.com](mailto:audiobible.life@gmail.com)
 - [Russian Audio Bible Download for MP3 or iPod devices](http://www.audiobible.com/download-russian-audio-bible-mp3-and-ipod/)
 - [Mandarin Chinese Audio Bible Download for MP3, iPhone or iPod](http://www.audiobible.com/mandarin-chinese-audio-bible-download-mp3-ipod-devices/)
 
-![stats](https://c.statcounter.com/11394972/0/f8d7d637/0/)
+![stats](https://c.statcounter.com/11394980/0/688bc3dd/0/)

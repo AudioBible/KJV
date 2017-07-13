@@ -257,4 +257,4 @@
 
 - added hub operation to open browser to biblehub.com interlinear tool
 
-![stats](https://c.statcounter.com/11394972/0/f8d7d637/0/)
+![stats](https://c.statcounter.com/11394989/0/e56d199b/0/)
