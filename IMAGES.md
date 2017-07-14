@@ -109,6 +109,10 @@ IMAGES
 
 ![flat-earth-firmament-2c.png](images/flat-earth-firmament-2c.png)
 
+- [flat-earth-flight-paths-un-logo-flat-earth-map.png](images/flat-earth-flight-paths-un-logo-flat-earth-map.png)
+
+![flat-earth-flight-paths-un-logo-flat-earth-map.png](images/flat-earth-flight-paths-un-logo-flat-earth-map.png)
+
 - [flat-earth-isaiah40-22.jpg](images/flat-earth-isaiah40-22.jpg)
 
 ![flat-earth-isaiah40-22.jpg](images/flat-earth-isaiah40-22.jpg)
