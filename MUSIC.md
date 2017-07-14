@@ -12,7 +12,7 @@ MUSIC
 
 ## Music Video on YouTube
 
-**Note:** Some songs may have explicit language. Please don't judge people for the language they use or their personality.
+**Note:** Some songs may have explicit language. Please don't judge people for the language they use or their personality. Listen the message they are saying.
 
 - [Flat Earth--Mind Control to Major Tom](https://www.youtube.com/watch?v=164YdQvRDgE)
 - [Once You Go Flat Rap](https://www.youtube.com/watch?v=O2tG8PGySVI)
