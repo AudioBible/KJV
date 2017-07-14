@@ -65,6 +65,7 @@ MUSIC
 - [New World Police State w/ LYRICS!!! JeeJuh contest](https://www.youtube.com/watch?v=006vRrogazY)
 - [DISL AUTOMATIC - THEY DON'T CARE ABOUT US (OFFICIAL VIDEO)](https://www.youtube.com/watch?v=v0hYsXiOJlY)
 - [PTP ft. Steve Grant - HisStory](https://www.youtube.com/watch?v=HtyTBQ1PklM)
+- [DISL Automatic ft. Steve Grant & PTP - "Head Held High" (Prod. by VeCity) - Million Mask March 2014](https://www.youtube.com/watch?v=COGJz2s7bBk)
 
 ## Praise and Worship
 
