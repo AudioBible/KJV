@@ -28,8 +28,9 @@ MUSIC
 - ["For My People" (Official Music Video) by DISL Automatic ft. SinTheSis (Prod. by VeCity)](https://www.youtube.com/watch?v=va55_u_b6Vg&list=RDva55_u_b6Vg) [playlist]
 - ["Rich Old White Men" by DISL Automatic (Prod. by Young Forever)](https://www.youtube.com/watch?v=qC1CPc0ZcfA&list=RDqC1CPc0ZcfA) [playlist]
 - [Vinnie Paz - End of Days (feat. Block McCloud) [Official Music Video]](https://www.youtube.com/watch?v=2frJ3e0hxPE&list=PLPY6yekpqxYt2bY7u1mLGbxd-PCQk3_B5) [playlist]
-- [ASpirit - March 'Em Out (Power To The People) Feat. DISL Automatic (OFFICIAL VIDEO)(Prod. Cheebo)](https://www.youtube.com/watch?v=FP7fSIdjRlA&list=RDFP7fSIdjRlA)
-- [New World Police State w/ LYRICS!!! JeeJuh contest](https://www.youtube.com/watch?v=006vRrogazY&list=PLbgbhi9z7MYujc1IR4AMHselIV3BbZdq0)
+- [ASpirit - March 'Em Out (Power To The People) Feat. DISL Automatic (OFFICIAL VIDEO)(Prod. Cheebo)](https://www.youtube.com/watch?v=FP7fSIdjRlA&list=RDFP7fSIdjRlA) [playlist]
+- [New World Police State w/ LYRICS!!! JeeJuh contest](https://www.youtube.com/watch?v=006vRrogazY&list=PLbgbhi9z7MYujc1IR4AMHselIV3BbZdq0) [playlist]
+
 **Note:** Some of these videos are already in playlists above, some are not!
 
 - [Flat Earth--Mind Control to Major Tom](https://www.youtube.com/watch?v=164YdQvRDgE)
