@@ -26,7 +26,7 @@ MUSIC
 - [Alais Clay - Cut The Ties feat. GhostRyder & Steve Grant (w/ LYRICS!!)](https://www.youtube.com/watch?v=fwqSqLRPe0g&list=RDfwqSqLRPe0g) [playlist]
 - [Alais Clay - Deadly Rain [Official Video]](https://www.youtube.com/watch?v=YNpR4TjVPtc&list=RDfwqSqLRPe0g) [playlist]
 - ["For My People" (Official Music Video) by DISL Automatic ft. SinTheSis (Prod. by VeCity)](https://www.youtube.com/watch?v=va55_u_b6Vg&list=RDva55_u_b6Vg) [playlist]
-
+- ["Rich Old White Men" by DISL Automatic (Prod. by Young Forever)](https://www.youtube.com/watch?v=qC1CPc0ZcfA&list=RDqC1CPc0ZcfA) [playlist]
 
 **Note:** Some of these videos are already in playlists above, some are not!
 
