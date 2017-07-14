@@ -9,8 +9,6 @@ Do some research, this is by no means an exhaustive list, hopefully it's enough 
 
 Please remember to share and tell everyone! We need our world back!
 
-I don't know how to categorize the videos, but I made an attempt at it, but don't go by my judgement alone, I could be totally wrong or partly wrong or lying for that matter, but I try not to lie! This is America!
-
 You can trust a regular person more than you can trust a corporation or a government entity, but not if that person is so deep into one of those that they work on their agenda!
 
 ## Government
