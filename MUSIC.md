@@ -22,7 +22,7 @@ MUSIC
 - [Best Illuminati hiphop rap song (K-rino - grand deception)](https://www.youtube.com/watch?v=z_w_2QH6svM&list=RDz_w_2QH6svM) [playlist]
 - [MY GANG - Payday Monsanto](https://www.youtube.com/watch?v=RNjihsm5pQE&list=RDRNjihsm5pQE) [playlist]
 - [Call Me When You're Free - Payday Monsanto (14th Amendment Citizen Slaves to the US Corporation)](https://www.youtube.com/watch?v=5PuuXkCT48c&list=RD5PuuXkCT48c) [playlist]
-- [Steve Grant - Who's Afraid](https://www.youtube.com/watch?v=Cxk0YaN8lWc&list=RDCxk0YaN8lWc)
+- [Steve Grant - Who's Afraid](https://www.youtube.com/watch?v=Cxk0YaN8lWc&list=RDCxk0YaN8lWc) [playlist]
 
 **Note:** Some of these videos are already in playlists above, some are not!
 
@@ -49,6 +49,7 @@ MUSIC
 - [★No Surrender★ PAYDAY MONSANTO ! HOT SONG! - KANYE WEST & JAY-Z NEW 2014 (ILLUMINATI DISS)](https://www.youtube.com/watch?v=363-JaQBmtQ)
 - [Payday Monsanto- Debt Slaves Revolt feat. Terri Lynn](https://www.youtube.com/watch?v=4YOGULrxmmE)
 - [Payday Monsanto - Wake Up Or Die](https://www.youtube.com/watch?v=30B-p8l2-20)
+- [Steve Grant - Silence of the Good People](https://www.youtube.com/watch?v=2rz7Sh_qDq8)
 
 ## Praise and Worship
 
