@@ -12,9 +12,9 @@ MUSIC
 
 ## Music Video on YouTube
 
-![12004556-explicit-content](images/12004556-explicit-content.jpg)
-
 **Note:** Some songs may have explicit language. Please don't judge people for the language they use or their personality. Listen the message they are saying.
+
+![12004556-explicit-content](images/12004556-explicit-content.jpg)
 
 - [They Live, We Sleep ( featuring Payday Monsanto ) ▶️️️](https://www.youtube.com/watch?v=u7SfFRQjMFY&list=RDu7SfFRQjMFY) [playlist]
 - [ODD TV Living in Hell (Mixtape) Truth Music ▶️️](https://www.youtube.com/watch?v=CqrN8iOMg5k&list=PLm6Vq0bTTCDj1ljFwK9lJnRbJW_CVmlv5) [playlist]
