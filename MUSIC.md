@@ -96,7 +96,8 @@ MUSIC
 - [Dead Prez - be healthy](https://www.youtube.com/watch?v=YTAhSJt_8x8&list=RDaQv7TMcZ_eE)
 - [Anonymous Music - The Anonymous Occupation Alliance (AOA)](https://www.youtube.com/watch?v=RfBHSSNNEmA)
 - [Alais Clay - We Will Not Rest](https://www.youtube.com/watch?v=omcbA_kfsUI)
-
+- [Flat Earth Song - Eratosthenes Was Wrong (With Video) - Chris Wrock](https://www.youtube.com/watch?v=1ExflDC9rdY)
+- [K-RINO - Let It Burn - (Music Video) [High Quality]](https://www.youtube.com/watch?v=mb5FJgUbpzM&index=27&list=RDiVGThNTs8Gw)
 
 
 ## Praise and Worship
