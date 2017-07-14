@@ -12,6 +12,8 @@ MUSIC
 
 ## Music Video on YouTube
 
+![12004556-explicit-content](images/12004556-explicit-content.jpg)
+
 **Note:** Some songs may have explicit language. Please don't judge people for the language they use or their personality. Listen the message they are saying.
 
 - [Flat Earth--Mind Control to Major Tom](https://www.youtube.com/watch?v=164YdQvRDgE)
