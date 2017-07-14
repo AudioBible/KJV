@@ -26,6 +26,8 @@
 
 ## [VIDEOS ON YOUTUBE](VIDEOS.md)
 
+## [USIC VIDEOS ON YOUTUBE](MUSIC.md)
+
 ## [YOUTUBE CHANNELS](CHANNELS.md)
 
 ## [DOCUMENTS TO READ](DOCUMENTS.md)
@@ -43,6 +45,8 @@
 ## [LINKS ONLINE](LINKS.md)
 
 ## [HELP WITH THE PROJECT](HELP.md)
+
+## [CHANGES](CHANGES.md)
 
 Contact [audiobible.life@gmail.com](mailto:audiobible.life@gmail.com)
 
