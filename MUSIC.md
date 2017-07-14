@@ -12,6 +12,10 @@ MUSIC
 
 ## Video on YouTube
 
+- [Flat Earth--Mind Control to Major Tom](https://www.youtube.com/watch?v=164YdQvRDgE)
+- [Once You Go Flat Rap](https://www.youtube.com/watch?v=O2tG8PGySVI)
 - [K-Rino - The Debate (Lyric Video)](https://www.youtube.com/watch?v=MDT_MKUVgLI&list=RDMDT_MKUVgLI) [playlist]
+- [B.o.B. Flatline featuring NDGT - Flat Earth](https://www.youtube.com/watch?v=hCA8HofWsxc) [EXPLICIT]
+- [John Lennon Knew - Flat Earth [Watching The Wheels song lyrics]](https://www.youtube.com/watch?v=w1w4CYiDtNY)
 
 ![stats](https://c.statcounter.com/11394982/0/c560f991/0/)

@@ -253,7 +253,7 @@ You can trust a regular person more than you can trust a corporation or a govern
 - [Barack Obama, Secret Service Codename Renegade, Is A Clone Of The Akhenaten Pharaoh!](https://www.youtube.com/watch?v=_Apwfhm9eWs)
 - [% OBAMA !!! * has a cloned image that speaks ! obama is not obama * IM SERIOUS !](https://www.youtube.com/watch?v=A-lSNH3cSS0)
 - [Ex Satan Worshipper John Ramirez Testimony](https://www.youtube.com/watch?v=I11L71PD3Lw)
-
+- [Why They REMOVED The Book Of Enoch!!](https://www.youtube.com/watch?v=xUQaKOWPZEE)
 
 ## Devolving/Dark Culture
 
@@ -410,6 +410,7 @@ You can trust a regular person more than you can trust a corporation or a govern
 - [Finding the Curve - Episode 1 (Flat Earth Documentary)](https://www.youtube.com/watch?v=VdQTdVY1-SE)
 - [Finding the Curve - Episode 2 (Flat Earth Documentary)](https://www.youtube.com/watch?v=baZpwJaA7D8)
 - [Finding the Curve - Episode 3 (Flat Earth Documentary) ](https://www.youtube.com/watch?v=jAT08Up1ZOU)
+- [Rapper B.O.B. talks Flat Earth 2017 on Hot 97 - Mark Sargent ✅](https://www.youtube.com/watch?v=XMRMjONiG9M)
 
 ## 
 
