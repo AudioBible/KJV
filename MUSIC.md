@@ -66,6 +66,7 @@ MUSIC
 - [DISL AUTOMATIC - THEY DON'T CARE ABOUT US (OFFICIAL VIDEO)](https://www.youtube.com/watch?v=v0hYsXiOJlY)
 - [PTP ft. Steve Grant - HisStory](https://www.youtube.com/watch?v=HtyTBQ1PklM)
 - [DISL Automatic ft. Steve Grant & PTP - "Head Held High" (Prod. by VeCity) - Million Mask March 2014](https://www.youtube.com/watch?v=COGJz2s7bBk)
+- ["Long Live The Real" (Official Music Video) by DISL Automatic ft. Aspirit (Prod. by Anno Domini)](https://www.youtube.com/watch?v=mVGJ02PQ_mg)
 
 ## Praise and Worship
 
