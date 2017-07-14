@@ -32,6 +32,7 @@ MUSIC
 - [New World Police State w/ LYRICS!!! JeeJuh contest](https://www.youtube.com/watch?v=006vRrogazY&list=PLbgbhi9z7MYujc1IR4AMHselIV3BbZdq0) [playlist]
 - [DISL Automatic ft. K-Rino - Battle Cry (Prod. by Anno Domini and TunnA Beatz)](https://www.youtube.com/watch?v=yGN4hntRDp0&list=RDyGN4hntRDp0)
 
+
 **Note:** Some of these videos are already in playlists above, some are not!
 
 - [Flat Earth--Mind Control to Major Tom](https://www.youtube.com/watch?v=164YdQvRDgE)
@@ -80,6 +81,7 @@ MUSIC
 - [DISL AUTOMATIC - ON THE RISE (PROD. VECITY)](https://www.youtube.com/watch?v=0RbBPPzyt80)
 - [LOWKEY (FT. MAI KHALIL) - CRADLE OF CIVILISATION (OFFICIAL MUSIC VIDEO)](https://www.youtube.com/watch?v=9gA8G0xHknQ)
 - [DISL Automatic ft. K-Rino - Battle Cry (Prod. by Anno Domini and TunnA Beatz)](https://www.youtube.com/watch?v=yGN4hntRDp0)
+- [UK LAD BUSTS A RHYME - BLOWS EVERYONE AWAY [strong language]](https://www.youtube.com/watch?v=dpIiSBRbySA)
 
 ## Praise and Worship
 
