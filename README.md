@@ -24,7 +24,7 @@
 
 #### I’m not all that smart actually, but I keep trying and learning and it helps. 
 
-#### Thank you for taking the time to check this project out.
+#### Thank you for taking the time to check this project out. Please share with others! We can take our world back!
 
 ## [VIDEOS ON YOUTUBE](VIDEOS.md)
 
