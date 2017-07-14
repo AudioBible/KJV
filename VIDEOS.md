@@ -204,7 +204,8 @@ You can trust a regular person more than you can trust a corporation or a govern
 - [The Truth Behind Obama's Head Scar Conspiracy FINALLY EXPOSED!](https://www.youtube.com/watch?v=oy0VvIUi27A)
 - [Divided States of Zombieland Are You a Zombie?](https://www.youtube.com/watch?v=_urOCJ78Sg4)
 - [Trump Programming Destroy America from the Inside](https://www.youtube.com/watch?v=4lt001r7xxs)
-
+- [Flat Earth people you have to watch this!!](https://www.youtube.com/watch?v=AbtmxCBi7xs)
+- [Flat Earth people need to read the KJV!!](https://www.youtube.com/watch?v=dBx_0EhkP0M)
 
 ## Spiritual
 

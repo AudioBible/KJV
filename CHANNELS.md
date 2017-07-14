@@ -96,7 +96,7 @@ This is by no means an exhaustive list of channels, it should be enough to get y
 - [Shahzwar Bugti](https://www.youtube.com/user/TruthIncSB)
 - [ThePottersClay](https://www.youtube.com/channel/UCpEdOLvL6olNghR-BWghUQA)
 - [Einar Kuusk](https://www.youtube.com/user/EinarKuusk)
-
+- [* Jake12399](https://www.youtube.com/user/Jake12399)
 
 
 ![stats](https://c.statcounter.com/11394988/0/8f2b255d/0/)
