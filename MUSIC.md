@@ -23,6 +23,7 @@ MUSIC
 - [MY GANG - Payday Monsanto](https://www.youtube.com/watch?v=RNjihsm5pQE&list=RDRNjihsm5pQE) [playlist]
 - [Call Me When You're Free - Payday Monsanto (14th Amendment Citizen Slaves to the US Corporation)](https://www.youtube.com/watch?v=5PuuXkCT48c&list=RD5PuuXkCT48c) [playlist]
 - [Steve Grant - Who's Afraid](https://www.youtube.com/watch?v=Cxk0YaN8lWc&list=RDCxk0YaN8lWc) [playlist]
+- [Alais Clay - Cut The Ties feat. GhostRyder & Steve Grant (w/ LYRICS!!)](https://www.youtube.com/watch?v=fwqSqLRPe0g&list=RDfwqSqLRPe0g) [playlist]
 
 **Note:** Some of these videos are already in playlists above, some are not!
 
@@ -52,6 +53,7 @@ MUSIC
 - [Steve Grant - Silence of the Good People](https://www.youtube.com/watch?v=2rz7Sh_qDq8)
 - [Stand Tall - Ghostryder feat. Steve Grant & D.I.S.L. Automatic](https://www.youtube.com/watch?v=Ry9fvLSf6Hw)
 - [Steve Grant - Never Forget](https://www.youtube.com/watch?v=8ylaXlXZDy0)
+- [Alais Clay - Cut The Ties feat. GhostRyder & Steve Grant (w/ LYRICS!!)](https://www.youtube.com/watch?v=fwqSqLRPe0g)
 
 
 ## Praise and Worship
