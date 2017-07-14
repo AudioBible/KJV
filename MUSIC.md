@@ -5,12 +5,12 @@
 MUSIC
 =====
 
-## Audio download
+## Music Audio download
 
 - [Space may be the final frontier, but it's made in a hollywood basement](audiobible/space.m4a)
 
 
-## Video on YouTube
+## Music Video on YouTube
 
 **Note:** Some songs may have explicit language. Please don't judge people for the language they use or their personality.
 
