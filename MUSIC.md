@@ -71,6 +71,7 @@ MUSIC
 - ["Long Live The Real" (Official Music Video) by DISL Automatic ft. Aspirit (Prod. by Anno Domini)](https://www.youtube.com/watch?v=mVGJ02PQ_mg)
 - ["For My People" (Official Music Video) by DISL Automatic ft. SinTheSis (Prod. by VeCity)](https://www.youtube.com/watch?v=va55_u_b6Vg)
 - ["Minimizing Consumption" by DISL Automatic (Visuals by Vegan Revolution)](https://www.youtube.com/watch?v=RlH12ZQZF-w)
+- ["Bust Back" (Official Music Video) by DISL Automatic, Tha Voyce & TruthSeekah (Prod. by Anno Domini)](https://www.youtube.com/watch?v=jOLkOxAA69s)
 
 ## Praise and Worship
 
