@@ -74,6 +74,7 @@ MUSIC
 - ["Minimizing Consumption" by DISL Automatic (Visuals by Vegan Revolution)](https://www.youtube.com/watch?v=RlH12ZQZF-w)
 - ["Bust Back" (Official Music Video) by DISL Automatic, Tha Voyce & TruthSeekah (Prod. by Anno Domini)](https://www.youtube.com/watch?v=jOLkOxAA69s)
 - ["Rich Old White Men" by DISL Automatic (Prod. by Young Forever)](https://www.youtube.com/watch?v=qC1CPc0ZcfA)
+- [DISL AUTOMATIC - ON THE RISE (PROD. VECITY)](https://www.youtube.com/watch?v=0RbBPPzyt80)
 
 ## Praise and Worship
 
