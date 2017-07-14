@@ -50,6 +50,8 @@
 
 Contact [audiobible.life@gmail.com](mailto:audiobible.life@gmail.com)
 
+Subscribe to [ART GALLERY on YouTube](https://www.youtube.com/channel/UCSwtSZAwhxnNApQS8RmKUVQ); that's me!
+
 ![dubai-flat-earth-ruler-comparison](images/dubai-flat-earth-ruler-comparison.png)
 
 # YouTube Search "[Flat Earth](https://www.youtube.com/results?search_query=flat+earth)"
