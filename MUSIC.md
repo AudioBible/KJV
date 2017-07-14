@@ -59,6 +59,7 @@ MUSIC
 - [Alais Clay - Cut The Ties feat. GhostRyder & Steve Grant (w/ LYRICS!!)](https://www.youtube.com/watch?v=fwqSqLRPe0g)
 - [Alais Clay Ft. Steve Grant - Empire](https://www.youtube.com/watch?v=L9kBJrGA6wI)
 - [Alais Clay - 'Message' (with lyrics)](https://www.youtube.com/watch?v=M3Wh1mNdTJY)
+- [New World Police State w/ LYRICS!!! JeeJuh contest](https://www.youtube.com/watch?v=006vRrogazY)
 
 ## Praise and Worship
 
