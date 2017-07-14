@@ -38,6 +38,8 @@ I got kicked out of a church yesterday, First time in my life! I told them I was
 
 **tip:** you may want to have multiple tabs open and mute the tabs and switch back and forth between the tabs to to more commenting with your time. Copy and paste this comment all over the internets. Formulate the message payload to fit within the message length limits, and translate to your native language or other languages, if you like.
 
+http://audiobible.life CHECK IT OUT! We The People! Have The Power!﻿ Don't Be A Clown! Join The Revolution!
+
 There was a good reason why you hated school! The Earth is Flat! YouTube search Flat Earth! Aliens are fallen angels/demons. Santa Clause is the devil! If we live on a spinning ball, the Centrifugal Force would make all the continents to merge to the center! Globe is a lie from satan indoctrinating false gods into your every day life! Christmas is a pagan holiday, like all other holidays. You are more special than you are led to believe! github.com/youtube-search/flat-earth
 
 Our life is like that of a fetus inside the womb, the womb determines the sex male/female, features and the person is born into life, same with life, determines heaven or hell﻿ in the afterlife based not only on how good of a person you are, but if you keep Gods Law and worship Jesus Christ as your one and only Savior. Jesus determines if you can go to heaven! If you don't know him now, how will you expect to know him then? Please get to know him! Let the word of God and the Holy Spirit and the collection of information on AudioBible github project help you along the way!
