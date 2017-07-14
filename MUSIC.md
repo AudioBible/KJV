@@ -7,6 +7,8 @@ MUSIC
 
 ## Music Audio download
 
+**Note:** This was recorded with my iPhone from a YouTube Video below
+
 - [Space may be the final frontier, but it's made in a hollywood basement](audiobible/space.m4a)
 
 
