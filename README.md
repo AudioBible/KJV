@@ -19,6 +19,7 @@
  
     ROMANS 3:4 God forbid: yea, let God be true, but every man a liar; as it is written, That thou mightest be justified in thy sayings, and mightest overcome when thou art judged.
 
+
 #### I’m not all that smart actually, but I keep trying and learning and it helps. 
 
 #### Thank you for taking the time to check this project out.
