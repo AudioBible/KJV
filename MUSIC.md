@@ -53,6 +53,7 @@ MUSIC
 - [Steve Grant - Silence of the Good People](https://www.youtube.com/watch?v=2rz7Sh_qDq8)
 - [Stand Tall - Ghostryder feat. Steve Grant & D.I.S.L. Automatic](https://www.youtube.com/watch?v=Ry9fvLSf6Hw)
 - [Steve Grant - Never Forget](https://www.youtube.com/watch?v=8ylaXlXZDy0)
+- [Steve Grant - The Seventh Seal(Million Mask March)](https://www.youtube.com/watch?v=dnhqZcG0tew)
 - [Alais Clay - Cut The Ties feat. GhostRyder & Steve Grant (w/ LYRICS!!)](https://www.youtube.com/watch?v=fwqSqLRPe0g)
 
 
