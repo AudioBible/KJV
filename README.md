@@ -42,8 +42,6 @@
 
 ## [MUST SEE TESTIMONY](https://www.youtube.com/watch?v=UWSCJ5vSus8&index=3&list=PLKDemYz7H5WdDQ7l1l__lDP2VAghKqEzm)
 
-## [HOW TO INSTALL AND USE AUDIO BIBLE](USAGE.md)
-
 ## [IMAGES](IMAGES.md)
 
 ## [OLD BOOKS](BOOKS.md)
@@ -51,6 +49,8 @@
 ## [MORE INFO](INFO.md)
 
 ## [LINKS ONLINE](LINKS.md)
+
+## [HOW TO INSTALL AND USE AUDIO BIBLE](USAGE.md)
 
 ## [HELP WITH THE PROJECT](HELP.md)
 
