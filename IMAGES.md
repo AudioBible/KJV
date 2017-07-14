@@ -337,30 +337,6 @@ IMAGES
 
 ![western-powers-are-liars.png](images/western-powers-are-liars.png)
 
-- [youtube-channel-subscribe1.png](images/youtube-channel-subscribe1.png)
-
-![youtube-channel-subscribe1.png](images/youtube-channel-subscribe1.png)
-
-- [youtube-channel-subscribe2.png](images/youtube-channel-subscribe2.png)
-
-![youtube-channel-subscribe2.png](images/youtube-channel-subscribe2.png)
-
-- [youtube-channel-subscribe3.png](images/youtube-channel-subscribe3.png)
-
-![youtube-channel-subscribe3.png](images/youtube-channel-subscribe3.png)
-
-- [youtube-channel-subscribe4.png](images/youtube-channel-subscribe4.png)
-
-![youtube-channel-subscribe4.png](images/youtube-channel-subscribe4.png)
-
-- [youtube-channel-subscribe5.png](images/youtube-channel-subscribe5.png)
-
-![youtube-channel-subscribe5.png](images/youtube-channel-subscribe5.png)
-
-- [youtube-channel-subscribe6.png](images/youtube-channel-subscribe6.png)
-
-![youtube-channel-subscribe6.png](images/youtube-channel-subscribe6.png)
-
 - [youtube-search-flat-earth-letter.jpg](images/youtube-search-flat-earth-letter.jpg)
 
 ![youtube-search-flat-earth-letter.jpg](images/youtube-search-flat-earth-letter.jpg)
