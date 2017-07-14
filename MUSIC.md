@@ -16,15 +16,34 @@ MUSIC
 
 **Note:** Some songs may have explicit language. Please don't judge people for the language they use or their personality. Listen the message they are saying.
 
-- [ODD TV Never Sleep Again Full Album Lyrics 432hz Truth Music](https://www.youtube.com/watch?v=TlTR7QQZQ8I)
-- [Flat Earth--Mind Control to Major Tom](https://www.youtube.com/watch?v=164YdQvRDgE)
-- [Once You Go Flat Rap](https://www.youtube.com/watch?v=O2tG8PGySVI)
-- [Jaba - The Earth is flat! LIVE](https://www.youtube.com/watch?v=hMHIiqi8Xoo)
 - [They Live, We Sleep ( featuring Payday Monsanto ) ▶️️️](https://www.youtube.com/watch?v=u7SfFRQjMFY&list=RDu7SfFRQjMFY) [playlist]
 - [ODD TV Living in Hell (Mixtape) Truth Music ▶️️](https://www.youtube.com/watch?v=CqrN8iOMg5k&list=PLm6Vq0bTTCDj1ljFwK9lJnRbJW_CVmlv5) [playlist]
 - [K-Rino - The Debate (Lyric Video)](https://www.youtube.com/watch?v=MDT_MKUVgLI&list=RDMDT_MKUVgLI) [playlist]
+- [Best Illuminati hiphop rap song (K-rino - grand deception)](https://www.youtube.com/watch?v=z_w_2QH6svM&list=RDz_w_2QH6svM) [playlist]
+- [MY GANG - Payday Monsanto](https://www.youtube.com/watch?v=RNjihsm5pQE&list=RDRNjihsm5pQE) [playlist]
+
+**Note:** Some of these videos are already in playlists above, some are not!
+
+- [Flat Earth--Mind Control to Major Tom](https://www.youtube.com/watch?v=164YdQvRDgE)
+- [Hello Flat Earth - NASA Lies (Adele Cover Song by Amber Plaster)](https://www.youtube.com/watch?v=l2nCui9aU2w)
+- [Adele HELLO Flat Earth - Cover by Amber Plaster](https://www.youtube.com/watch?v=7OM5YMNr9Ck)
+- [Once You Go Flat Rap](https://www.youtube.com/watch?v=O2tG8PGySVI)
+- [Jaba - The Earth is flat! LIVE](https://www.youtube.com/watch?v=hMHIiqi8Xoo)
 - [B.o.B. Flatline featuring NDGT - Flat Earth](https://www.youtube.com/watch?v=hCA8HofWsxc)
 - [John Lennon Knew - Flat Earth [Watching The Wheels song lyrics]](https://www.youtube.com/watch?v=w1w4CYiDtNY)
+- [Scott Kelly and the ISS Hoax Song by Flat Earth Asshole](https://www.youtube.com/watch?v=z8AhqUyumnY)
+- [Flat Earth Asshole - Featuring Obama "We Don't Have Time"](https://www.youtube.com/watch?v=fjEuUvnMfWc)
+- [ODD TV Breakin' the Law Truth Music ▶️️](https://www.youtube.com/watch?v=88RtEzrABJg)
+- [ODD TV Never Sleep Again Full Album Lyrics 432hz Truth Music](https://www.youtube.com/watch?v=TlTR7QQZQ8I)
+- [ODD TV Cartoon Ball Flat Earth Truth Music ▶️️](https://www.youtube.com/watch?v=CGUWYUtozTk)
+- [ODD TV Never Sleep Again Truth Music ▶️️](https://www.youtube.com/watch?v=IexDv9CH300)
+- [Illusions Anti New World Order Song Truth Music ▶️️](https://www.youtube.com/watch?v=C4vLhn0ge8M)
+- [An Anti-NEW WORLD ORDER SONG - Free This Town by Chris Geo Remix](https://www.youtube.com/watch?v=4fMg-jfDL1o)
+- [[Anti NWO Music Video] Vinnie Paz feat. Block McCloud - End Of Days](https://www.youtube.com/watch?v=bfO8vAjUrcQ)
+- [ANTI ILLUMINATI SONG HIP HOP RAP ♫ Puppets on a String ♫ (MUSIC VIDEO) by PAYDAY MONSANTO 2017](https://www.youtube.com/watch?v=iVGThNTs8Gw)
+- [mass hopenosis - payday monsanto](https://www.youtube.com/watch?v=NOSu6uMzL44)
+- [MY GANG - Payday Monsanto](https://www.youtube.com/watch?v=RNjihsm5pQE)
+
 
 ## Praise and Worship
 
