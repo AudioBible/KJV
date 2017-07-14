@@ -58,6 +58,7 @@ MUSIC
 - [Steve Grant - Greetings Citizens(March Against Monsanto Miami)](https://www.youtube.com/watch?v=DQVLeFwkY8M)
 - [Alais Clay - Cut The Ties feat. GhostRyder & Steve Grant (w/ LYRICS!!)](https://www.youtube.com/watch?v=fwqSqLRPe0g)
 - [Alais Clay Ft. Steve Grant - Empire](https://www.youtube.com/watch?v=L9kBJrGA6wI)
+- [Alais Clay - 'Message' (with lyrics)](https://www.youtube.com/watch?v=M3Wh1mNdTJY)
 
 ## Praise and Worship
 
