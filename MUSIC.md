@@ -50,6 +50,7 @@ MUSIC
 - [Payday Monsanto- Debt Slaves Revolt feat. Terri Lynn](https://www.youtube.com/watch?v=4YOGULrxmmE)
 - [Payday Monsanto - Wake Up Or Die](https://www.youtube.com/watch?v=30B-p8l2-20)
 - [Steve Grant - Silence of the Good People](https://www.youtube.com/watch?v=2rz7Sh_qDq8)
+- [Stand Tall - Ghostryder feat. Steve Grant & D.I.S.L. Automatic](https://www.youtube.com/watch?v=Ry9fvLSf6Hw)
 
 ## Praise and Worship
 
