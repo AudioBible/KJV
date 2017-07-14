@@ -31,7 +31,7 @@ MUSIC
 - [ASpirit - March 'Em Out (Power To The People) Feat. DISL Automatic (OFFICIAL VIDEO)(Prod. Cheebo)](https://www.youtube.com/watch?v=FP7fSIdjRlA&list=RDFP7fSIdjRlA) [playlist]
 - [New World Police State w/ LYRICS!!! JeeJuh contest](https://www.youtube.com/watch?v=006vRrogazY&list=PLbgbhi9z7MYujc1IR4AMHselIV3BbZdq0) [playlist]
 - [DISL Automatic ft. K-Rino - Battle Cry (Prod. by Anno Domini and TunnA Beatz)](https://www.youtube.com/watch?v=yGN4hntRDp0&list=RDyGN4hntRDp0)
-
+- [Grey - Vegan Thanksgiving (Official Music Video)](https://www.youtube.com/watch?v=aQv7TMcZ_eE&list=RDaQv7TMcZ_eE)
 
 **Note:** Some of these videos are already in playlists above, some are not!
 
@@ -82,6 +82,7 @@ MUSIC
 - [LOWKEY (FT. MAI KHALIL) - CRADLE OF CIVILISATION (OFFICIAL MUSIC VIDEO)](https://www.youtube.com/watch?v=9gA8G0xHknQ)
 - [DISL Automatic ft. K-Rino - Battle Cry (Prod. by Anno Domini and TunnA Beatz)](https://www.youtube.com/watch?v=yGN4hntRDp0)
 - [UK LAD BUSTS A RHYME - BLOWS EVERYONE AWAY [strong language]](https://www.youtube.com/watch?v=dpIiSBRbySA)
+- [Grey - Vegan Thanksgiving (Official Music Video)](https://www.youtube.com/watch?v=aQv7TMcZ_eE)
 
 ## Praise and Worship
 
