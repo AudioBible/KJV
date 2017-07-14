@@ -21,6 +21,7 @@ MUSIC
 - [K-Rino - The Debate (Lyric Video)](https://www.youtube.com/watch?v=MDT_MKUVgLI&list=RDMDT_MKUVgLI) [playlist]
 - [Best Illuminati hiphop rap song (K-rino - grand deception)](https://www.youtube.com/watch?v=z_w_2QH6svM&list=RDz_w_2QH6svM) [playlist]
 - [MY GANG - Payday Monsanto](https://www.youtube.com/watch?v=RNjihsm5pQE&list=RDRNjihsm5pQE) [playlist]
+- [Call Me When You're Free - Payday Monsanto (14th Amendment Citizen Slaves to the US Corporation)](https://www.youtube.com/watch?v=5PuuXkCT48c&list=RD5PuuXkCT48c)
 
 **Note:** Some of these videos are already in playlists above, some are not!
 
