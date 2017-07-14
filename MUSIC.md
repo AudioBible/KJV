@@ -25,4 +25,8 @@ MUSIC
 - [B.o.B. Flatline featuring NDGT - Flat Earth](https://www.youtube.com/watch?v=hCA8HofWsxc)
 - [John Lennon Knew - Flat Earth [Watching The Wheels song lyrics]](https://www.youtube.com/watch?v=w1w4CYiDtNY)
 
+## Praise and Worship
+
+- [Find Praise Worship Hymns on YouTube](https://www.youtube.com/results?search_query=praise+worship+hymns)
+
 ![stats](https://c.statcounter.com/11394982/0/c560f991/0/)
