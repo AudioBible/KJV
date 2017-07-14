@@ -11,6 +11,8 @@ Please remember to share and tell everyone! We need our world back!
 
 You can trust a regular person more than you can trust a corporation or a government entity, but not if that person is so deep into one of those that they work on their agenda!
 
+**Note:** You can use [http://listenonrepeat.com](http://listenonrepeat.com) for any videos that you want to listen to on repeat!
+
 ## Government
 
 - [Forced Government Indoctrination Camps](https://www.youtube.com/watch?v=72Lrz0khXP0)

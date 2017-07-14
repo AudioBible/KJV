@@ -26,6 +26,8 @@
 
 #### Thank you for taking the time to check this project out. Please share with others! We can take our world back!
 
+**Note:** You can use [http://listenonrepeat.com](http://listenonrepeat.com) for any videos that you want to listen to on repeat!
+
 ## [VIDEOS ON YOUTUBE](VIDEOS.md)
 
 ## [MUSIC VIDEOS ON YOUTUBE](MUSIC.md)
