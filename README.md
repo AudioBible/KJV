@@ -8,9 +8,9 @@
 
 ### King James Version Audio Bible for Mac, Windows and Unix/Linux
 
-###### What I know is that I don't know anything, so I keep looking for the truth/answers and realize how little I actually know, but the more I keep looking for the truth the more I know that I have a chance to be saved!
-
 ###### One thing if for sure, this has taught me how to put my ego to the side
+
+###### What I know is that I don't know anything, so I keep looking for the truth/answers and realize how little I actually know, but the more I keep looking for the truth the more I know that I have a chance to be saved!
 
 #### [Biblical Flat Earth 24/7 LIVE! ✞ Discussing Creation From The Word of God - Christian Flat Earth](https://www.youtube.com/CelebrateTruth/live)
 
