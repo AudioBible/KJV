@@ -31,6 +31,8 @@
 
 ## [USAGE](USAGE.md)
 
+## [IMAGES](IMAGES.md)
+
 ## [OLD BOOKS](BOOKS.md)
 
 ## [MORE INFO](INFO.md)
