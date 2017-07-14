@@ -12,7 +12,7 @@ MUSIC
 
 ## Music Video on YouTube
 
-**Note:** Some songs may have explicit language. Please don't judge people for the language they use or their personality. Listen the message they are saying.
+**Note:** Some songs may have explicit language. Please don't judge people for the language they use or their personality. Listen the message they are saying. Most of all please share the love with others!
 
 ![12004556-explicit-content](images/12004556-explicit-content.jpg)
 
