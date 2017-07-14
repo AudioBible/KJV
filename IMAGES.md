@@ -361,3 +361,5 @@ IMAGES
 
 ![zion-pyramid.png](images/zion-pyramid.png)
 
+![stats](https://c.statcounter.com/11395037/0/cbecb5be/0/)
+
