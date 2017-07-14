@@ -52,7 +52,7 @@
 
 Contact [audiobible.life@gmail.com](mailto:audiobible.life@gmail.com)
 
-Subscribe to [ART GALLERY on YouTube](https://www.youtube.com/channel/UCSwtSZAwhxnNApQS8RmKUVQ); that's me!
+Subscribe to [Audio Bible on YouTube](https://www.youtube.com/channel/UC18JDfFFpUdw82Fm3KAMDmA)
 
 ![dubai-flat-earth-ruler-comparison](images/dubai-flat-earth-ruler-comparison.png)
 
