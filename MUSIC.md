@@ -54,6 +54,7 @@ MUSIC
 - [Stand Tall - Ghostryder feat. Steve Grant & D.I.S.L. Automatic](https://www.youtube.com/watch?v=Ry9fvLSf6Hw)
 - [Steve Grant - Never Forget](https://www.youtube.com/watch?v=8ylaXlXZDy0)
 - [Steve Grant - The Seventh Seal(Million Mask March)](https://www.youtube.com/watch?v=dnhqZcG0tew)
+- [Steve Grant - Riot (March Against Monsanto Miami 2014)](https://www.youtube.com/watch?v=MN708_EhVNM)
 - [Alais Clay - Cut The Ties feat. GhostRyder & Steve Grant (w/ LYRICS!!)](https://www.youtube.com/watch?v=fwqSqLRPe0g)
 - [Alais Clay Ft. Steve Grant - Empire](https://www.youtube.com/watch?v=L9kBJrGA6wI)
 
