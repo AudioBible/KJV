@@ -24,6 +24,7 @@ MUSIC
 - [Call Me When You're Free - Payday Monsanto (14th Amendment Citizen Slaves to the US Corporation)](https://www.youtube.com/watch?v=5PuuXkCT48c&list=RD5PuuXkCT48c) [playlist]
 - [Steve Grant - Who's Afraid](https://www.youtube.com/watch?v=Cxk0YaN8lWc&list=RDCxk0YaN8lWc) [playlist]
 - [Alais Clay - Cut The Ties feat. GhostRyder & Steve Grant (w/ LYRICS!!)](https://www.youtube.com/watch?v=fwqSqLRPe0g&list=RDfwqSqLRPe0g) [playlist]
+- [Alais Clay - Deadly Rain [Official Video]](https://www.youtube.com/watch?v=YNpR4TjVPtc&list=RDfwqSqLRPe0g)
 
 **Note:** Some of these videos are already in playlists above, some are not!
 
