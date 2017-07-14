@@ -337,10 +337,6 @@ IMAGES
 
 ![western-powers-are-liars.png](images/western-powers-are-liars.png)
 
-- [youtube-search-flat-earth-letter.jpg](images/youtube-search-flat-earth-letter.jpg)
-
-![youtube-search-flat-earth-letter.jpg](images/youtube-search-flat-earth-letter.jpg)
-
 - [zion-pyramid.png](images/zion-pyramid.png)
 
 ![zion-pyramid.png](images/zion-pyramid.png)
