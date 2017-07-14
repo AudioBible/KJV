@@ -24,7 +24,9 @@ MUSIC
 - [Call Me When You're Free - Payday Monsanto (14th Amendment Citizen Slaves to the US Corporation)](https://www.youtube.com/watch?v=5PuuXkCT48c&list=RD5PuuXkCT48c) [playlist]
 - [Steve Grant - Who's Afraid](https://www.youtube.com/watch?v=Cxk0YaN8lWc&list=RDCxk0YaN8lWc) [playlist]
 - [Alais Clay - Cut The Ties feat. GhostRyder & Steve Grant (w/ LYRICS!!)](https://www.youtube.com/watch?v=fwqSqLRPe0g&list=RDfwqSqLRPe0g) [playlist]
-- [Alais Clay - Deadly Rain [Official Video]](https://www.youtube.com/watch?v=YNpR4TjVPtc&list=RDfwqSqLRPe0g)
+- [Alais Clay - Deadly Rain [Official Video]](https://www.youtube.com/watch?v=YNpR4TjVPtc&list=RDfwqSqLRPe0g) [playlist]
+- ["For My People" (Official Music Video) by DISL Automatic ft. SinTheSis (Prod. by VeCity)](https://www.youtube.com/watch?v=va55_u_b6Vg&list=RDva55_u_b6Vg) [playlist]
+
 
 **Note:** Some of these videos are already in playlists above, some are not!
 
@@ -67,6 +69,8 @@ MUSIC
 - [PTP ft. Steve Grant - HisStory](https://www.youtube.com/watch?v=HtyTBQ1PklM)
 - [DISL Automatic ft. Steve Grant & PTP - "Head Held High" (Prod. by VeCity) - Million Mask March 2014](https://www.youtube.com/watch?v=COGJz2s7bBk)
 - ["Long Live The Real" (Official Music Video) by DISL Automatic ft. Aspirit (Prod. by Anno Domini)](https://www.youtube.com/watch?v=mVGJ02PQ_mg)
+- ["For My People" (Official Music Video) by DISL Automatic ft. SinTheSis (Prod. by VeCity)](https://www.youtube.com/watch?v=va55_u_b6Vg)
+
 
 ## Praise and Worship
 
