@@ -59,6 +59,7 @@ MUSIC
 - [Alais Clay - Cut The Ties feat. GhostRyder & Steve Grant (w/ LYRICS!!)](https://www.youtube.com/watch?v=fwqSqLRPe0g)
 - [Alais Clay Ft. Steve Grant - Empire](https://www.youtube.com/watch?v=L9kBJrGA6wI)
 - [Alais Clay - 'Message' (with lyrics)](https://www.youtube.com/watch?v=M3Wh1mNdTJY)
+- [Alais Clay - Deadly Rain [Official Video]](https://www.youtube.com/watch?v=YNpR4TjVPtc)
 - [New World Police State w/ LYRICS!!! JeeJuh contest](https://www.youtube.com/watch?v=006vRrogazY)
 - [DISL AUTOMATIC - THEY DON'T CARE ABOUT US (OFFICIAL VIDEO)](https://www.youtube.com/watch?v=v0hYsXiOJlY)
 - [PTP ft. Steve Grant - HisStory](https://www.youtube.com/watch?v=HtyTBQ1PklM)
