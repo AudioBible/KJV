@@ -2,7 +2,7 @@
 
 [![thomas-jefferson-educate-and-inform-the-masses-quote](images/thomas-jefferson-educate-and-inform-the-masses-quote.png)](https://www.youtube.com/watch?v=72Lrz0khXP0)
 
-## DO YOURSELF and EARTH A FAVOR, CHECK IT OUT!!!
+## DO YOURSELF, EARTH and HUMANITY A FAVOR, CHECK IT OUT!!!
 
 ![closed-minded-open-minded](images/closed-minded-open-minded.png)
 
