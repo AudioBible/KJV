@@ -32,7 +32,7 @@
 
 ## [MUST SEE TESTIMONY](https://www.youtube.com/watch?v=UWSCJ5vSus8&index=3&list=PLKDemYz7H5WdDQ7l1l__lDP2VAghKqEzm)
 
-## [USAGE](USAGE.md)
+## [HOW TO INSTALL AND USE](USAGE.md)
 
 ## [IMAGES](IMAGES.md)
 
