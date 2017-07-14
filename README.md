@@ -123,7 +123,7 @@ Contact [audiobible.life@gmail.com](mailto:audiobible.life@gmail.com)
 
 ## Praised be Jesus Christ, Lord of Lords, King of Kings' name! Praise Jesus for the Flat Earth Truth! Amen.
 
-# LOVE YOU, BREAK FREE
+# LOVE YOU, BREAK FREE, PLEASE SHARE!!!
 
 **Note:** This project is not associated with AudioBible.com, please purchase a KJV Bible from [audiobible.com](http://audiobible.com/kjv-audio-bible-king-james/) if you like this.
 
