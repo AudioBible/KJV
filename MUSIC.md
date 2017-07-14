@@ -69,6 +69,7 @@ MUSIC
 - [Steve Grant - Riot (March Against Monsanto Miami 2014)](https://www.youtube.com/watch?v=MN708_EhVNM)
 - [Steve Grant - Greetings Citizens(March Against Monsanto Miami)](https://www.youtube.com/watch?v=DQVLeFwkY8M)
 - [Steve Grant - Concentration Camp](https://www.youtube.com/watch?v=Kk1EKTycMSc)
+- [Steve Grant - Murder The Mainstream](https://www.youtube.com/watch?v=xn3qS7opSjE)
 - [Alais Clay - Cut The Ties feat. GhostRyder & Steve Grant (w/ LYRICS!!)](https://www.youtube.com/watch?v=fwqSqLRPe0g)
 - [Alais Clay Ft. Steve Grant - Empire](https://www.youtube.com/watch?v=L9kBJrGA6wI)
 - [Alais Clay - 'Message' (with lyrics)](https://www.youtube.com/watch?v=M3Wh1mNdTJY)
@@ -87,6 +88,9 @@ MUSIC
 - [UK LAD BUSTS A RHYME - BLOWS EVERYONE AWAY [strong language]](https://www.youtube.com/watch?v=dpIiSBRbySA)
 - [Dead Prez - be healthy](https://www.youtube.com/watch?v=YTAhSJt_8x8&list=RDaQv7TMcZ_eE)
 - [Anonymous Music - The Anonymous Occupation Alliance (AOA)](https://www.youtube.com/watch?v=RfBHSSNNEmA)
+- [Alais Clay - We Will Not Rest](https://www.youtube.com/watch?v=omcbA_kfsUI)
+
+
 
 ## Praise and Worship
 
