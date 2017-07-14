@@ -60,6 +60,7 @@ MUSIC
 - [Alais Clay Ft. Steve Grant - Empire](https://www.youtube.com/watch?v=L9kBJrGA6wI)
 - [Alais Clay - 'Message' (with lyrics)](https://www.youtube.com/watch?v=M3Wh1mNdTJY)
 - [New World Police State w/ LYRICS!!! JeeJuh contest](https://www.youtube.com/watch?v=006vRrogazY)
+- [DISL AUTOMATIC - THEY DON'T CARE ABOUT US (OFFICIAL VIDEO)](https://www.youtube.com/watch?v=v0hYsXiOJlY)
 
 ## Praise and Worship
 
