@@ -1,4 +1,4 @@
-## Welcome to [http://audiobible.life](http://audiobible.life) - [KJV](https://github.com/AudioBible/KJV) - [AudioBible](https://github.com/AudioBible/AudioBible) - Therefore Choose Life
+## Welcome to [http://audiobible.life](http://audiobible.life) - [KJV](https://github.com/AudioBible/KJV) - [AudioBible](https://github.com/AudioBible/AudioBible) - Therefore Choose Life - ![stats](https://c.statcounter.com/11394977/0/9568e9c4/0/)
 
 [README](README.md) | [USAGE](USAGE.md) | [HELP](HELP.md) | [DEVELOPMENT](DEVELOPMENT.md) | [CHANGES](CHANGES.md) | **We The People** | **Have The Power** | **Don't Be A Clown**
 
@@ -646,5 +646,3 @@ You can trust a regular person more than you can trust a corporation or a govern
 
 
 **Note:** If some of the youtube video links above don't work, search for the video by name in the youtube search.
-
-![stats](https://c.statcounter.com/11394977/0/9568e9c4/0/)

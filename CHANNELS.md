@@ -1,4 +1,4 @@
-## Welcome to [http://audiobible.life](http://audiobible.life) - [KJV](https://github.com/AudioBible/KJV) - [AudioBible](https://github.com/AudioBible/AudioBible) - Therefore Choose Life
+## Welcome to [http://audiobible.life](http://audiobible.life) - [KJV](https://github.com/AudioBible/KJV) - [AudioBible](https://github.com/AudioBible/AudioBible) - Therefore Choose Life - ![stats](https://c.statcounter.com/11394988/0/8f2b255d/0/)
 
 [README](README.md) | [USAGE](USAGE.md) | [HELP](HELP.md) | [DEVELOPMENT](DEVELOPMENT.md) | [CHANGES](CHANGES.md) | **We The People** | **Have The Power** | **Don't Be A Clown**
 
@@ -104,5 +104,3 @@ This is by no means an exhaustive list of channels, it should be enough to get y
 - [Einar Kuusk](https://www.youtube.com/user/EinarKuusk)
 - [* Jake12399](https://www.youtube.com/user/Jake12399)
 
-
-![stats](https://c.statcounter.com/11394988/0/8f2b255d/0/)

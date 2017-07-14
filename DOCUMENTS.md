@@ -1,4 +1,4 @@
-## Welcome to [http://audiobible.life](http://audiobible.life) - [KJV](https://github.com/AudioBible/KJV) - [AudioBible](https://github.com/AudioBible/AudioBible) - Therefore Choose Life
+## Welcome to [http://audiobible.life](http://audiobible.life) - [KJV](https://github.com/AudioBible/KJV) - [AudioBible](https://github.com/AudioBible/AudioBible) - Therefore Choose Life - ![stats](https://c.statcounter.com/11394986/0/c48e2cab/0/)
 
 [README](README.md) | [USAGE](USAGE.md) | [HELP](HELP.md) | [DEVELOPMENT](DEVELOPMENT.md) | [CHANGES](CHANGES.md) | **We The People** | **Have The Power** | **Don't Be A Clown**
 
@@ -12,5 +12,3 @@ DOCUMENTS
 =========
 
 - [SILENT_WEAPONS_for_QUIET_WARS.pdf](documents/SILENT_WEAPONS_for_QUIET_WARS.pdf)
-
-![stats](https://c.statcounter.com/11394986/0/c48e2cab/0/)

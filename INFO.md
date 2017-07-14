@@ -1,4 +1,4 @@
-## Welcome to [http://audiobible.life](http://audiobible.life) - [KJV](https://github.com/AudioBible/KJV) - [AudioBible](https://github.com/AudioBible/AudioBible) - Therefore Choose Life
+## Welcome to [http://audiobible.life](http://audiobible.life) - [KJV](https://github.com/AudioBible/KJV) - [AudioBible](https://github.com/AudioBible/AudioBible) - Therefore Choose Life - ![stats](https://c.statcounter.com/11394984/0/e199372f/0/)
 
 [README](README.md) | [USAGE](USAGE.md) | [HELP](HELP.md) | [DEVELOPMENT](DEVELOPMENT.md) | [CHANGES](CHANGES.md) | **We The People** | **Have The Power** | **Don't Be A Clown**
 
@@ -62,5 +62,3 @@ If you work for the Govern(control)-Ment(mind), hospitals, schools or corporatio
 - [Silent Weapons for Quiet Wars Part 2 of 4](https://www.youtube.com/watch?v=D4H9xcQryUU)
 - [Silent Weapons for Quiet Wars Part 3 of 4](https://www.youtube.com/watch?v=iib1N5nVSws)
 - [Silent Weapons for Quiet Wars Conclusion](https://www.youtube.com/watch?v=Af4pIsJTT3Y)
-
-![stats](https://c.statcounter.com/11394984/0/e199372f/0/)
