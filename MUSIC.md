@@ -42,7 +42,7 @@ MUSIC
 - [New World Police State w/ LYRICS!!! JeeJuh contest](https://www.youtube.com/watch?v=006vRrogazY&list=PLbgbhi9z7MYujc1IR4AMHselIV3BbZdq0) [playlist]
 - [DISL Automatic ft. K-Rino - Battle Cry (Prod. by Anno Domini and TunnA Beatz)](https://www.youtube.com/watch?v=yGN4hntRDp0&list=RDyGN4hntRDp0) [playlist]
 - [Grey - Vegan Thanksgiving (Official Music Video)](https://www.youtube.com/watch?v=aQv7TMcZ_eE&list=RDaQv7TMcZ_eE) [playlist]
-- [Payday Monsanto - The Patent](https://www.youtube.com/watch?v=yyKdoksgXIk&list=RDyyKdoksgXIk)
+- [Payday Monsanto - The Patent](https://www.youtube.com/watch?v=yyKdoksgXIk&list=RDyyKdoksgXIk) [playlist]
 
 **Note:** Some of these videos are already in playlists above, some are not!
 
