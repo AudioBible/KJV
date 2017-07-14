@@ -27,6 +27,7 @@ MUSIC
 - [Alais Clay - Deadly Rain [Official Video]](https://www.youtube.com/watch?v=YNpR4TjVPtc&list=RDfwqSqLRPe0g) [playlist]
 - ["For My People" (Official Music Video) by DISL Automatic ft. SinTheSis (Prod. by VeCity)](https://www.youtube.com/watch?v=va55_u_b6Vg&list=RDva55_u_b6Vg) [playlist]
 - ["Rich Old White Men" by DISL Automatic (Prod. by Young Forever)](https://www.youtube.com/watch?v=qC1CPc0ZcfA&list=RDqC1CPc0ZcfA) [playlist]
+- [Vinnie Paz - End of Days (feat. Block McCloud) [Official Music Video]](https://www.youtube.com/watch?v=2frJ3e0hxPE&list=PLPY6yekpqxYt2bY7u1mLGbxd-PCQk3_B5) [playlist]
 
 **Note:** Some of these videos are already in playlists above, some are not!
 
