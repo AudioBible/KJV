@@ -14,6 +14,8 @@ MUSIC
 
 - [Flat Earth--Mind Control to Major Tom](https://www.youtube.com/watch?v=164YdQvRDgE)
 - [Once You Go Flat Rap](https://www.youtube.com/watch?v=O2tG8PGySVI)
+- [Jaba - The Earth is flat! LIVE](https://www.youtube.com/watch?v=hMHIiqi8Xoo)
+- [Dear NASA, Why Are You Lying? Anti NASA Song ▶️️](https://www.youtube.com/watch?v=LYIRoGB3pUU)
 - [K-Rino - The Debate (Lyric Video)](https://www.youtube.com/watch?v=MDT_MKUVgLI&list=RDMDT_MKUVgLI) [playlist]
 - [B.o.B. Flatline featuring NDGT - Flat Earth](https://www.youtube.com/watch?v=hCA8HofWsxc) [EXPLICIT]
 - [John Lennon Knew - Flat Earth [Watching The Wheels song lyrics]](https://www.youtube.com/watch?v=w1w4CYiDtNY)
