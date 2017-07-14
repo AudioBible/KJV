@@ -2,9 +2,9 @@
 
 [![thomas-jefferson-educate-and-inform-the-masses-quote](images/thomas-jefferson-educate-and-inform-the-masses-quote.png)](https://www.youtube.com/watch?v=72Lrz0khXP0)
 
-![closed-minded-open-minded](images/closed-minded-open-minded.png)
-
 ## DO YOURSELF and EARTH A FAVOR, CHECK IT OUT!!!
+
+![closed-minded-open-minded](images/closed-minded-open-minded.png)
 
 ### King James Version Audio Bible for Mac, Windows and Unix/Linux
 
