@@ -4,7 +4,7 @@
 
 # How to help, join the operation, bombs away!
 
-### 1. Pray, repent, read, hear, watch the videos and go to church!
+### 1. Pray, repent, read, hear, watch the videos, meet new people and share!
 
 
     MT 6:9 After this manner therefore pray ye: Our Father which art in heaven, Hallowed be thy name.
