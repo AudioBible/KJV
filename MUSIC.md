@@ -45,6 +45,8 @@ MUSIC
 - [mass hopenosis - payday monsanto](https://www.youtube.com/watch?v=NOSu6uMzL44)
 - [MY GANG - Payday Monsanto](https://www.youtube.com/watch?v=RNjihsm5pQE)
 - [Call Me When You're Free - Payday Monsanto (14th Amendment Citizen Slaves to the US Corporation)](https://www.youtube.com/watch?v=5PuuXkCT48c)
+- [★No Surrender★ PAYDAY MONSANTO ! HOT SONG! - KANYE WEST & JAY-Z NEW 2014 (ILLUMINATI DISS)](https://www.youtube.com/watch?v=363-JaQBmtQ)
+
 
 ## Praise and Worship
 
