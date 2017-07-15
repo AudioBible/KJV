@@ -1,8 +1,26 @@
 ## ![stats](https://c.statcounter.com/11394985/0/3bbfde6b/0/) Welcome to [http://audiobible.life](http://audiobible.life) - Therefore Choose Life
 
-[README](README.md) | [USAGE](USAGE.md) | [HELP](HELP.md) | [DEVELOPMENT](DEVELOPMENT.md) | [CHANGES](CHANGES.md) | **We The People** | **Have The Power** | **Don't Be A Clown**
 
-[VIDEOS](VIDEOS.md) | [MUSIC](MUSIC.md) | [CHANNELS](CHANNELS.md) | [DOCUMENTS](DOCUMENTS.md) | [IMAGES](IMAGES.md) | [BOOKS](BOOKS.md) | [LINKS](LINKS.md) | [INFO](INFO.md) | **Join The Revolution**
+- [README](README.md)
+- [USAGE](USAGE.md)
+- [HELP](HELP.md)
+- [DEVELOPMENT](DEVELOPMENT.md)
+- [CHANGES](CHANGES.md)
+- **We The People**
+- **Have The Power**
+- **Don't Be A Clown**
+
+
+- [VIDEOS](VIDEOS.md)
+- [MUSIC](MUSIC.md)
+- [CHANNELS](CHANNELS.md)
+- [DOCUMENTS](DOCUMENTS.md)
+- [IMAGES](IMAGES.md)
+- [BOOKS](BOOKS.md)
+- [LINKS](LINKS.md)
+- [INFO](INFO.md)
+- **Join The Revolution**
+
 
 HELP
 ====
