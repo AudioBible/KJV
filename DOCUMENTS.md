@@ -1,4 +1,4 @@
-## ![stats](https://c.statcounter.com/11394986/0/c48e2cab/0/) Welcome to [http://audiobible.life](http://audiobible.life) - [KJV](https://github.com/AudioBible/KJV) - [AudioBible](https://github.com/AudioBible/AudioBible) - Therefore Choose Life
+## ![stats](https://c.statcounter.com/11394986/0/c48e2cab/0/) Welcome to [http://audiobible.life](http://audiobible.life) - Therefore Choose Life
 
 [README](README.md) | [USAGE](USAGE.md) | [HELP](HELP.md) | [DEVELOPMENT](DEVELOPMENT.md) | [CHANGES](CHANGES.md) | **We The People** | **Have The Power** | **Don't Be A Clown**
 
