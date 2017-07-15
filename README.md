@@ -135,6 +135,8 @@ Subscribe to [Audio Bible on YouTube](https://www.youtube.com/channel/UC18JDfFFp
 
 # LOVE YOU, BREAK FREE, PLEASE SHARE!!!
 
+![Anonymous](images/Anonymous.jpg)
+
 **Note:** This project is not associated with AudioBible.com, please purchase a KJV Bible from [audiobible.com](http://audiobible.com/kjv-audio-bible-king-james/) if you like this.
 
 - [King James Audio Bible Download for MP3 and iPod devices](http://www.audiobible.com/king-james-bible-download-for-mp3-and-ipod/)
