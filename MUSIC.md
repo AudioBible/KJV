@@ -4,23 +4,14 @@
 
 [VIDEOS](VIDEOS.md) | [MUSIC](MUSIC.md) | [CHANNELS](CHANNELS.md) | [DOCUMENTS](DOCUMENTS.md) | [IMAGES](IMAGES.md) | [BOOKS](BOOKS.md) | [LINKS](LINKS.md) | [INFO](INFO.md) | **Join The Revolution**
 
-MUSIC
-=====
+MUSIC VIDEOS
+============
 
 **Note:** You can use [http://listenonrepeat.com](http://listenonrepeat.com) for any videos that you want to listen to on repeat!
 
-## Music Audio download
-
-**Note:** This was recorded with my iPhone from a YouTube Video below playing on my MacBookPro
-
-- [Space may be the final frontier, but it's made in a hollywood basement](audiobible/space.m4a)
-
-
-## Music Video on YouTube
-
 **Note:** Some songs may have explicit language. Please don't judge people for the language they use or their personality. Listen the message they are saying. Most of all please share the love with others! It's a lot worse to be out there killing people over oil, than to say a four letter word. Who's side are you on?
 
-#### [Reality Check Music Playlist](https://www.youtube.com/watch?v=TlTR7QQZQ8I&list=PL7X63Sm3kODPV43FyewOSadSnZwZGZQHU&index=1) [playlist]
+#### [Reality Check Music Playlist](https://www.youtube.com/watch?v=TlTR7QQZQ8I&list=PL7X63Sm3kODPV43FyewOSadSnZwZGZQHU&index=1) [playlist] this list has a lot of the music below in it
 
 ![12004556-explicit-content](images/12004556-explicit-content.jpg)
 
