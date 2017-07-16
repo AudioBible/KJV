@@ -85,6 +85,8 @@ Subscribe to [Audio Bible on YouTube](https://www.youtube.com/channel/UC18JDfFFp
 
 #### God is so kind that it is impossible to imagine His unbounded kindness
 
+## [Praise GOD Everyday!](https://www.youtube.com/watch?v=i2U3Ld-ZYpM)
+
 ![flat-earth-isaiah40-22](images/flat-earth-isaiah40-22.jpg)
 
 ![the-firmament](images/the-firmament.jpeg)
