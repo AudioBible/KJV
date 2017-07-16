@@ -6,9 +6,9 @@
 
 [![thomas-jefferson-educate-and-inform-the-masses-quote](images/thomas-jefferson-educate-and-inform-the-masses-quote.png)](https://www.youtube.com/watch?v=72Lrz0khXP0)
 
-## SILENCE IS BETRAYAL! TRUTH IS HERE NOW! YOU CAN'T ESCAPE IT! TIME HAS COME!
+## SILENCE IS BETRAYAL! TRUTH IS HERE NOW! YOU CAN'T ESCAPE IT!
 
-## DO HUMANITY A FAVOR, CHECK IT OUT!!! WAKE UP! BUST BACK!
+## DO HUMANITY A FAVOR! WAKE UP! CHECK IT OUT! BUST BACK! TIME HAS COME!
 
 ![closed-minded-open-minded](images/closed-minded-open-minded.png)
 
