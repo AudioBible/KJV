@@ -8,7 +8,7 @@
 
 ## SILENCE IS BETRAYAL! TRUTH IS HERE NOW! YOU CAN'T ESCAPE IT! TIME HAS COME!
 
-## DO YOURSELF, EARTH & HUMANITY A FAVOR, CHECK IT OUT!!! WAKE UP! BUST BACK!
+## DO HUMANITY A FAVOR, CHECK IT OUT!!! WAKE UP! BUST BACK!
 
 ![closed-minded-open-minded](images/closed-minded-open-minded.png)
 
