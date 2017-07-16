@@ -12,11 +12,11 @@
 
 ![closed-minded-open-minded](images/closed-minded-open-minded.png)
 
-# IT IS EASIER TO FOOL PEOPLE, THAN TO CONVINCE THEM THEY'VE BEEN FOOLED!
+## IT IS EASIER TO FOOL PEOPLE, THAN TO CONVINCE THEM THEY'VE BEEN FOOLED!
 
-###### One thing if for sure, this has taught me how to put my ego to the side.
+#### One thing if for sure, this has taught me how to put my ego to the side.
 
-###### What I know is that I don't know anything, so I keep looking for the truth/answers and realize how little I actually know, but the more I keep looking for the truth the more I know that I have a chance to be saved!
+#### What I know is that I don't know anything, so I keep looking for the truth/answers and realize how little I actually know, but the more I keep looking for the truth the more I know that I have a chance to be saved!
 
 #### [Reality Check Music Playlist](https://www.youtube.com/watch?v=TlTR7QQZQ8I&list=PL7X63Sm3kODPV43FyewOSadSnZwZGZQHU&index=1) [playlist]
 
