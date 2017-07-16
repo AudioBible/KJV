@@ -32,6 +32,8 @@ MUSIC VIDEOS
 - [DISL Automatic ft. K-Rino - Battle Cry (Prod. by Anno Domini and TunnA Beatz)](https://www.youtube.com/watch?v=yGN4hntRDp0&list=RDyGN4hntRDp0) [playlist]
 - [Grey - Vegan Thanksgiving (Official Music Video)](https://www.youtube.com/watch?v=aQv7TMcZ_eE&list=RDaQv7TMcZ_eE) [playlist]
 - [Payday Monsanto - The Patent](https://www.youtube.com/watch?v=yyKdoksgXIk&list=RDyyKdoksgXIk) [playlist]
+- [B.o.B - Under The Dome [E.A.R.T.H.]](https://www.youtube.com/watch?v=gRDwWAvgSpY&list=RDgRDwWAvgSpY) [playlist]
+- [MC Ma'at - The Castle Operation](https://www.youtube.com/watch?v=Bllh0bB-SiQ&list=PLdaQsrKzi9Z9Chf0UfRPP7yOzAsF6jhem) [playlist]
 
 **Note:** Some of these videos are already in playlists above, some are not!
 
