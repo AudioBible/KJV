@@ -100,4 +100,5 @@ MUSIC VIDEOS
 
 ## Praise and Worship
 
-- [Find Praise Worship Hymns on YouTube](https://www.youtube.com/results?search_query=praise+worship+hymns)
+- [Find Praise Worship Hymns on YouTube](https://www.youtube.com/results?search_query=praise+worship+hymns) [search]
+- [Traditional Christian Hymns](https://www.youtube.com/watch?v=Q00TXBPl9i4&list=PLCF548C3B0621CB28) [playlist]
