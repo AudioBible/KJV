@@ -14,9 +14,9 @@
 
 ## IT IS EASIER TO FOOL PEOPLE, THAN TO CONVINCE THEM THEY'VE BEEN FOOLED!
 
-# BREAK OUT OF YOUR MENTAL PRISON!
-
 ## YOU HAVE TO BE ASLEEP TO HAVE THE AMERICAN DREAM!
+
+# BREAK OUT OF YOUR MENTAL PRISON! WAKE UP!
 
 #### One thing if for sure, this has taught me how to put my ego to the side.
 
