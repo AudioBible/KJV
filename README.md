@@ -24,7 +24,11 @@
 
 # [Reality Check Music Playlist - **MUST SEE AND HEAR**](https://www.youtube.com/watch?v=TlTR7QQZQ8I&list=PL7X63Sm3kODPV43FyewOSadSnZwZGZQHU&index=1) [playlist]
 
+# [Flat Earth](https://www.youtube.com/watch?v=UbYtkrTquXE&list=PL7X63Sm3kODMi6OX15TRIqXzc3usAkf2-) [English playlist]
+
 # [Плоская Земля](https://www.youtube.com/watch?v=qvyytQUnL8o&list=PL7X63Sm3kODMXewMFI3c50-mBggHpIIDF) [Russian playlist]
+
+# [Tierra Plana](https://www.youtube.com/playlist?list=PL7X63Sm3kODP0KENF_nh8zcMTDPSIXvPe) [Spanish playlist]
 
 ### One thing if for sure, this has taught me how to put my ego to the side.
 
