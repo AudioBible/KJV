@@ -36,6 +36,8 @@ MUSIC VIDEOS
 - [MC Ma'at - The Castle Operation](https://www.youtube.com/watch?v=Bllh0bB-SiQ&list=PLdaQsrKzi9Z9Chf0UfRPP7yOzAsF6jhem) [playlist]
 - [dead prez - Hip Hop](https://www.youtube.com/watch?v=oiusDE0KND8&list=PLO7d0GTyhD2k4EJcA7hNbSBQpaBctRrXN) [playlist]
 - [LOWKEY ft LUPE FIASCO, M1 (DEAD PREZ) & BLACK THE RIPPER - OBAMA NATION PART 2](https://www.youtube.com/watch?v=bB-vYuYhdSE&list=RDbB-vYuYhdSE) [playlist]
+- [Jedi Mind Tricks (Vinnie Paz + Stoupe) - "Heavy Metal Kings" (feat. Ill Bill) [Official Video]](https://www.youtube.com/watch?v=axmpxbtzSZY&list=RDaxmpxbtzSZY) [playlist]
+- [Immortal Technique - Bin laden Lyrics](https://www.youtube.com/watch?v=hdagSIa-UQ8&list=RDhdagSIa-UQ8) [playlist]
 
 **Note:** Some of these videos are already in playlists above, some are not!
 
