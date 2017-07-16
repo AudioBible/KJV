@@ -20,7 +20,7 @@
 
 #### [Biblical Flat Earth 24/7 LIVE! ✞ Discussing Creation From The Word of God - Christian Flat Earth](https://www.youtube.com/CelebrateTruth/live)
 
-#### [ODD TV | Never Sleep Again | Full Album | Lyrics | 432hz Truth Music ▶️️](https://www.youtube.com/watch?v=TlTR7QQZQ8I&list=RDTlTR7QQZQ8I)
+#### [Reality Check Music Playlist](https://www.youtube.com/watch?v=TlTR7QQZQ8I&list=PL7X63Sm3kODPV43FyewOSadSnZwZGZQHU&index=1)
 
 # audiobible find let god be true
 
