@@ -126,9 +126,9 @@ Subscribe to [Audio Bible on YouTube](https://www.youtube.com/channel/UC18JDfFFp
     JN 14:6 Jesus saith unto him, I am the way, the truth, and the life: no man cometh unto the Father, but by me.
 
 
-## Praised be Jesus Christ, Lord of Lords, King of Kings' name! Praise Jesus for the Flat Earth Truth! Amen.
+### Praised be Jesus Christ, Lord of Lords, King of Kings' name! Praise Jesus for the Flat Earth Truth! Amen.
 
-# LOVE YOU, BREAK FREE, PLEASE SHARE!!!
+# LOVE YOU, BREAK OUT OF YOUR MENTAL PRISON, PLEASE SHARE!
 
 **Note:** This project is not associated with AudioBible.com, please purchase a KJV Bible from [audiobible.com](http://audiobible.com/kjv-audio-bible-king-james/) if you like this.
 
