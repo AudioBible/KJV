@@ -15,6 +15,8 @@ You can trust a regular person more than you can trust a corporation or a govern
 
 **Note:** You can use [http://listenonrepeat.com](http://listenonrepeat.com) for any videos that you want to listen to on repeat!
 
+#### [Biblical Flat Earth 24/7 LIVE! ✞ Discussing Creation From The Word of God - Christian Flat Earth](https://www.youtube.com/CelebrateTruth/live)
+
 ## Government
 
 - [Forced Government Indoctrination Camps](https://www.youtube.com/watch?v=72Lrz0khXP0)
