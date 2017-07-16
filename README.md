@@ -167,6 +167,8 @@
 
 #### Thank you for taking the time to check this project out. Please share with others! We can take our world back!
 
+### They got us trusting them and not each other, not a joke bothers and sisters!
+
 # I LOVE YOU ALL!
 
 Contact [audiobible.life@gmail.com](mailto:audiobible.life@gmail.com)
