@@ -165,7 +165,7 @@
 
 ### They got us trusting them and not each other, this war on the people is no joke bothers and sisters!
 
-#### I’m not all that smart actually, but I keep trying and learning and it helps. Put your ego to the side if you want to be a winner!
+#### I’m not all that smart actually, but I keep trying and learning and it helps. Put your ego to the side to be a winner!
 
 #### Thank you for taking the time to check this project out. Please share with others! We can take our world back!
 
