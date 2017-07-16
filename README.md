@@ -12,6 +12,8 @@
 
 ![closed-minded-open-minded](images/closed-minded-open-minded.png)
 
+# IT IS EASIER TO FOOL PEOPLE, THAN TO CONVINCE THEM THEY HAVE BEEN FOOLED!
+
 ###### One thing if for sure, this has taught me how to put my ego to the side.
 
 ###### What I know is that I don't know anything, so I keep looking for the truth/answers and realize how little I actually know, but the more I keep looking for the truth the more I know that I have a chance to be saved!
@@ -93,8 +95,6 @@ Subscribe to [Audio Bible on YouTube](https://www.youtube.com/channel/UC18JDfFFp
 ![atheism](images/atheism.png)
 
 ![second-coming-of-jesus-christ_heaven-opened-up](images/second-coming-of-jesus-christ_heaven-opened-up.jpg)
-
-# IT IS EASIER TO FOOL PEOPLE, THAN TO CONVINCE THEM THEY HAVE BEEN FOOLED!
 
 # audiobible find let god be true
 
