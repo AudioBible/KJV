@@ -22,16 +22,6 @@
 
 #### [Reality Check Music Playlist](https://www.youtube.com/watch?v=TlTR7QQZQ8I&list=PL7X63Sm3kODPV43FyewOSadSnZwZGZQHU&index=1) [playlist]
 
-# audiobible find let god be true
-
- 
-    ROMANS 3:4 God forbid: yea, let God be true, but every man a liar; as it is written, That thou mightest be justified in thy sayings, and mightest overcome when thou art judged.
-
-
-#### I’m not all that smart actually, but I keep trying and learning and it helps. 
-
-#### Thank you for taking the time to check this project out. Please share with others! We can take our world back!
-
 **Note:** You can use [http://listenonrepeat.com](http://listenonrepeat.com) for any videos that you want to listen to on repeat!
 
 ## [VIDEOS ON YOUTUBE](VIDEOS.md)
@@ -109,6 +99,12 @@ Subscribe to [Audio Bible on YouTube](https://www.youtube.com/channel/UC18JDfFFp
 
 ![second-coming-of-jesus-christ_heaven-opened-up](images/second-coming-of-jesus-christ_heaven-opened-up.jpg)
 
+# audiobible find let god be true
+
+ 
+    ROMANS 3:4 God forbid: yea, let God be true, but every man a liar; as it is written, That thou mightest be justified in thy sayings, and mightest overcome when thou art judged.
+
+
 # audiobible ps 23
 
 [Psalm 23 - Bible Verse](https://www.youtube.com/watch?v=dfgV81X__qg)
@@ -142,3 +138,9 @@ Subscribe to [Audio Bible on YouTube](https://www.youtube.com/channel/UC18JDfFFp
 - [King James Audio Bible Download for MP3 and iPod devices](http://www.audiobible.com/king-james-bible-download-for-mp3-and-ipod/)
 - [Russian Audio Bible Download for MP3 or iPod devices](http://www.audiobible.com/download-russian-audio-bible-mp3-and-ipod/)
 - [Mandarin Chinese Audio Bible Download for MP3, iPhone or iPod](http://www.audiobible.com/mandarin-chinese-audio-bible-download-mp3-ipod-devices/)
+
+#### I’m not all that smart actually, but I keep trying and learning and it helps. 
+
+#### Thank you for taking the time to check this project out. Please share with others! We can take our world back!
+
+# I LOVE YOU ALL!
