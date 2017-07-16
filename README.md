@@ -128,7 +128,9 @@ Subscribe to [Audio Bible on YouTube](https://www.youtube.com/channel/UC18JDfFFp
 
 ### Praised be Jesus Christ, Lord of Lords, King of Kings' name! Praise Jesus for the Flat Earth Truth! Amen.
 
-# BREAK OUT OF YOUR MENTAL PRISON AND PLEASE SHARE!
+# BREAK OUT OF YOUR MENTAL PRISON!
+
+## YOU HAVE TO BE ASLEEP TO LIVE THE AMERICAN DREAM!
 
 **Note:** This project is not associated with AudioBible.com, please purchase a KJV Bible from [audiobible.com](http://audiobible.com/kjv-audio-bible-king-james/) if you like this.
 
