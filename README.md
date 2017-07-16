@@ -70,9 +70,9 @@ Subscribe to [Audio Bible on YouTube](https://www.youtube.com/channel/UC18JDfFFp
 
 # YouTube 検索 "[フラット・アース](https://www.youtube.com/results?search_query=%E3%83%95%E3%83%A9%E3%83%83%E3%83%88%E3%83%BB%E3%82%A2%E3%83%BC%E3%82%B9)" [Japanese]
 
-)[الأرض المسطحة]" #https://www.youtube.com/results?search_query=%D8%A7%D9%84%D8%A3%D8%B1%D8%B6+%D8%A7%D9%84%D9%85%D8%B3%D8%B7%D8%AD%D8%A9)" [Arabic]
+)[الأرض المسطحة] #https://www.youtube.com/results?search_query=%D8%A7%D9%84%D8%A3%D8%B1%D8%B6+%D8%A7%D9%84%D9%85%D8%B3%D8%B7%D8%AD%D8%A9) [Arabic]
 
-#)[שטוח כדור הארץ]" https://www.youtube.com/results?search_query=%D7%A9%D7%98%D7%95%D7%97+%D7%9B%D7%93%D7%95%D7%A8+%D7%94%D7%90%D7%A8%D7%A5)" [Hebrew]
+#)[שטוח כדור הארץ] https://www.youtube.com/results?search_query=%D7%A9%D7%98%D7%95%D7%97+%D7%9B%D7%93%D7%95%D7%A8+%D7%94%D7%90%D7%A8%D7%A5) [Hebrew]
 
 # YouTube Arama "[düz yeryüzü](https://www.youtube.com/results?search_query=d%C3%BCz+yery%C3%BCz%C3%BC)" [Turkish]
 
