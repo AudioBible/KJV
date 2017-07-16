@@ -64,10 +64,6 @@
 
 ## [CHANGES](CHANGES.md)
 
-Contact [audiobible.life@gmail.com](mailto:audiobible.life@gmail.com)
-
-Subscribe to [Audio Bible on YouTube](https://www.youtube.com/channel/UC18JDfFFpUdw82Fm3KAMDmA)
-
 ![dubai-flat-earth-ruler-comparison](images/dubai-flat-earth-ruler-comparison.png)
 
 # YouTube Search "[Flat Earth](https://www.youtube.com/results?search_query=flat+earth)" [English]
@@ -172,3 +168,7 @@ Subscribe to [Audio Bible on YouTube](https://www.youtube.com/channel/UC18JDfFFp
 #### Thank you for taking the time to check this project out. Please share with others! We can take our world back!
 
 # I LOVE YOU ALL!
+
+Contact [audiobible.life@gmail.com](mailto:audiobible.life@gmail.com)
+
+Subscribe to [Audio Bible on YouTube](https://www.youtube.com/channel/UC18JDfFFpUdw82Fm3KAMDmA)
