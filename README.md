@@ -24,6 +24,8 @@
 
 # GLOBE HOAX TAKES THE CAKE! WAKE UP!
 
+## ITS EASY CONTROLLING BODIES WHEN THEIR MINDS ARE IN PRISON! BREAK FREE!
+
 # [Reality Check Music Playlist - **MUST SEE AND HEAR**](https://www.youtube.com/watch?v=TlTR7QQZQ8I&list=PL7X63Sm3kODPV43FyewOSadSnZwZGZQHU&index=1) [playlist]
 
 # [Flat Earth](https://www.youtube.com/watch?v=UbYtkrTquXE&list=PL7X63Sm3kODMi6OX15TRIqXzc3usAkf2-) [English playlist]
