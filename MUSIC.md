@@ -96,6 +96,7 @@ MUSIC VIDEOS
 - [K-RINO - Let It Burn - (Music Video) [High Quality]](https://www.youtube.com/watch?v=mb5FJgUbpzM&index=27&list=RDiVGThNTs8Gw)
 - [SinTheSis & DISL Automatic - Judgment Day (Prod. by Dov Rohan/Jee Juh)](https://www.youtube.com/watch?v=zTKlgDTVuu0&index=22&list=PLPY6yekpqxYt2bY7u1mLGbxd-PCQk3_B5)
 - [Kevin Kage & Steve Grant - Singing in the Rain (featuring David Icke)](https://www.youtube.com/watch?v=rKKedZxs52E&index=27&list=RDQ0ZMCsqDa8c)
+- [КОСМОСА НЕТ - посвящается теории плоской земли](https://www.youtube.com/watch?v=qvyytQUnL8o)
 
 ## Praise and Worship
 
