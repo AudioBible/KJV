@@ -60,7 +60,6 @@ Subscribe to [Audio Bible on YouTube](https://www.youtube.com/channel/UC18JDfFFp
 
 **ISAIAH 40:24:** Yea, they shall not be planted; yea, they shall not be sown: yea, their stock shall not take root in the earth: and he shall also blow upon them, and they shall wither, and the whirlwind shall take them away as stubble.
 
-
 #### God is so kind that it is impossible to imagine His unbounded kindness
 
 ![flat-earth-isaiah40-22](images/flat-earth-isaiah40-22.jpg)
@@ -94,6 +93,8 @@ Subscribe to [Audio Bible on YouTube](https://www.youtube.com/channel/UC18JDfFFp
 ![atheism](images/atheism.png)
 
 ![second-coming-of-jesus-christ_heaven-opened-up](images/second-coming-of-jesus-christ_heaven-opened-up.jpg)
+
+# IT IS EASIER TO FOOL PEOPLE, THAN TO CONVINCE THEM THEY HAVE BEEN FOOLED!
 
 # audiobible find let god be true
 
