@@ -20,6 +20,8 @@ MUSIC
 
 **Note:** Some songs may have explicit language. Please don't judge people for the language they use or their personality. Listen the message they are saying. Most of all please share the love with others! It's a lot worse to be out there killing people over oil, than to say a four letter word. Who's side are you on?
 
+#### [Reality Check Music Playlist](https://www.youtube.com/watch?v=TlTR7QQZQ8I&list=PL7X63Sm3kODPV43FyewOSadSnZwZGZQHU&index=1) [playlist]
+
 ![12004556-explicit-content](images/12004556-explicit-content.jpg)
 
 - [They Live, We Sleep ( featuring Payday Monsanto ) ▶️️️](https://www.youtube.com/watch?v=u7SfFRQjMFY&list=RDu7SfFRQjMFY) [playlist]
