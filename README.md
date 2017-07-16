@@ -14,6 +14,10 @@
 
 ## IT IS EASIER TO FOOL PEOPLE, THAN TO CONVINCE THEM THEY'VE BEEN FOOLED!
 
+# BREAK OUT OF YOUR MENTAL PRISON!
+
+# YOU HAVE TO BE ASLEEP TO LIVE THE AMERICAN DREAM!
+
 #### One thing if for sure, this has taught me how to put my ego to the side.
 
 #### What I know is that I don't know anything, so I keep looking for the truth/answers and realize how little I actually know, but the more I keep looking for the truth the more I know that I have a chance to be saved!
@@ -127,10 +131,6 @@ Subscribe to [Audio Bible on YouTube](https://www.youtube.com/channel/UC18JDfFFp
 
 
 ### Praised be Jesus Christ, Lord of Lords, King of Kings' name! Praise Jesus for the Flat Earth Truth! Amen.
-
-# BREAK OUT OF YOUR MENTAL PRISON!
-
-## YOU HAVE TO BE ASLEEP TO LIVE THE AMERICAN DREAM!
 
 **Note:** This project is not associated with AudioBible.com, please purchase a KJV Bible from [audiobible.com](http://audiobible.com/kjv-audio-bible-king-james/) if you like this.
 
