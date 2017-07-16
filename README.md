@@ -66,6 +66,12 @@ Subscribe to [Audio Bible on YouTube](https://www.youtube.com/channel/UC18JDfFFp
 
 # Ютуб Поиск "[Плоская Земля](https://www.youtube.com/results?search_query=%D0%9F%D0%BB%D0%BE%D1%81%D0%BA%D0%B0%D1%8F+%D0%97%D0%B5%D0%BC%D0%BB%D1%8F)" [Russian]
 
+# YouTube Recherche "[Terre Plate](https://www.youtube.com/results?search_query=plate+terre)" [French]
+
+# YouTube 検索 "[フラット・アース](https://www.youtube.com/results?search_query=%E3%83%95%E3%83%A9%E3%83%83%E3%83%88%E3%83%BB%E3%82%A2%E3%83%BC%E3%82%B9)" [Japanese]
+
+)[الأرض المسطحة]" #https://www.youtube.com/results?search_query=%D8%A7%D9%84%D8%A3%D8%B1%D8%B6+%D8%A7%D9%84%D9%85%D8%B3%D8%B7%D8%AD%D8%A9)" [Arabic]
+
 ### THE EARTH IS FLAT! NASA GOVERNMENT MAINSTREAM MEDIA LIES! DON'T BE IGNORANT!
 
 **ISAIAH 40:22:** It is he that sitteth upon the circle of the earth, and the inhabitants thereof are as grasshoppers; that stretcheth out the heavens as a curtain, and spreadeth them out as a tent to dwell in:
