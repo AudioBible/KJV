@@ -167,7 +167,7 @@
 
 #### Thank you for taking the time to check this project out. Please share with others! We can take our world back!
 
-### They got us trusting them and not each other, not a joke bothers and sisters!
+### They got us trusting them and not each other, this war is no joke bothers and sisters!
 
 # I LOVE YOU ALL!
 
