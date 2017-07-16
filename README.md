@@ -12,7 +12,7 @@
 
 ![closed-minded-open-minded](images/closed-minded-open-minded.png)
 
-# IT IS EASIER TO FOOL PEOPLE, THAN TO CONVINCE THEM THEY HAVE BEEN FOOLED!
+# IT IS EASIER TO FOOL PEOPLE, THAN TO CONVINCE THEM THEY'VE BEEN FOOLED!
 
 ###### One thing if for sure, this has taught me how to put my ego to the side.
 
