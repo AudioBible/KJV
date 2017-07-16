@@ -18,7 +18,7 @@ MUSIC
 
 ## Music Video on YouTube
 
-**Note:** Some songs may have explicit language. Please don't judge people for the language they use or their personality. Listen the message they are saying. Most of all please share the love with others! It's a lot worse to be out there killing people over oil, than to say a four letter word.
+**Note:** Some songs may have explicit language. Please don't judge people for the language they use or their personality. Listen the message they are saying. Most of all please share the love with others! It's a lot worse to be out there killing people over oil, than to say a four letter word. Who's side are you on?
 
 ![12004556-explicit-content](images/12004556-explicit-content.jpg)
 
