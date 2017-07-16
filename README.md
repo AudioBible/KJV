@@ -16,7 +16,7 @@
 
 # BREAK OUT OF YOUR MENTAL PRISON!
 
-# YOU HAVE TO BE ASLEEP TO LIVE THE AMERICAN DREAM!
+## YOU HAVE TO BE ASLEEP TO BE LIVING THE AMERICAN DREAM!
 
 #### One thing if for sure, this has taught me how to put my ego to the side.
 
