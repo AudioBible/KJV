@@ -74,6 +74,10 @@ Subscribe to [Audio Bible on YouTube](https://www.youtube.com/channel/UC18JDfFFp
 
 #)[שטוח כדור הארץ]" https://www.youtube.com/results?search_query=%D7%A9%D7%98%D7%95%D7%97+%D7%9B%D7%93%D7%95%D7%A8+%D7%94%D7%90%D7%A8%D7%A5)" [Hebrew]
 
+# YouTube Arama "[düz yeryüzü](https://www.youtube.com/results?search_query=d%C3%BCz+yery%C3%BCz%C3%BC)" [Turkish]
+
+
+
 ### THE EARTH IS FLAT! NASA GOVERNMENT MAINSTREAM MEDIA LIES! DON'T BE IGNORANT!
 
 **ISAIAH 40:22:** It is he that sitteth upon the circle of the earth, and the inhabitants thereof are as grasshoppers; that stretcheth out the heavens as a curtain, and spreadeth them out as a tent to dwell in:
