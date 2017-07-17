@@ -307,6 +307,7 @@ You can trust a regular person more than you can trust a corporation or a govern
 - [The Book of Enoch - Entire Book, R. H. Charles Version (Synchronized Text)](https://www.youtube.com/watch?v=5wbdjo7xnUg)
 - [The Second Book of Enoch (Human Voice, Read-Along Version)](https://www.youtube.com/watch?v=60Bp0qJvvqA)
 
+
 ## Movies
 
 - [They Live on Amazon](https://www.amazon.com/gp/product/B008XX3QW0)
@@ -314,6 +315,7 @@ You can trust a regular person more than you can trust a corporation or a govern
 - [THEY LIVE 2 (2015)](https://www.youtube.com/watch?v=HR1fNIMtJaI)
 
 **Note:** These are old movies, you can trust these more than the new ones having new actors and brainwashing tactics.
+
 
 ## Sermons
 
