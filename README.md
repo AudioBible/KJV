@@ -132,6 +132,14 @@
     JN 8:45 And because I tell you the truth, ye believe me not.
 
 
+# audiobible find "the kingdom of God is within you"
+
+[The Kingdom of God is Within Man](http://www.davidpaulkirkpatrick.com/2014/04/03/the-kingdom-of-god-is-within-man/)
+
+
+    LUKE 17:21 Neither shall they say, Lo here! or, lo there! for, behold, the kingdom of God is within you.
+
+
 # audiobible find let god be true
 
  
