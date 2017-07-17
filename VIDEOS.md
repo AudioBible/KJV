@@ -17,6 +17,38 @@ You can trust a regular person more than you can trust a corporation or a govern
 
 #### [Biblical Flat Earth 24/7 LIVE! ✞ Discussing Creation From The Word of God - Christian Flat Earth](https://www.youtube.com/CelebrateTruth/live)
 
+## Truth in Movies
+
+- [They Live on Amazon](https://www.amazon.com/gp/product/B008XX3QW0)
+- [They Live (1988) Full Film HD - Roddy Piper, Keith David, Meg Foster Movies](https://www.youtube.com/watch?v=9i8X-OLrTj8)
+- [THEY LIVE 2 (2015)](https://www.youtube.com/watch?v=HR1fNIMtJaI)
+
+
+## Movies from The Books
+
+**Note:** These are old movies, you can trust these more than the new ones having new actors and brainwashing tactics.
+
+- [The Visual Bible - The Gospel Of Matthew](https://www.youtube.com/watch?v=woAhReBytBk) [MOVIE]
+- [The Gospel of Luke](https://www.youtube.com/watch?v=auL-ebjH-xo) [MOVIE]
+- [The Gospel of Luke - Film - Visual Bible in HD Very Rare Version](https://www.youtube.com/watch?v=2PHPLApTt7Y) [MOVIE]
+- [The Acts of the Apostles - Film - High Quality! HD](https://www.youtube.com/watch?v=tRXNp6K5-JI) [MOVIE]
+- [Paul the Apostle Full Movie](https://www.youtube.com/watch?v=t5FhLQhDsk0) [MOVIE]
+- [The Book Of Revelation (Full Movie)](https://www.youtube.com/watch?v=NAb2hdQneBY) [MOVIE]
+- [The Ruth Story](https://www.youtube.com/watch?v=slEmSyJi81g) [MOVIE]
+- [Esther and the King](https://www.youtube.com/watch?v=SQ6qYypfmIo) [MOVIE]
+- [Samson and Delilah - full movie - full movie](https://www.youtube.com/watch?v=a9968bcrywY) [MOVIE]
+- [David and Goliath...Orson Welles as King Saul](https://www.youtube.com/watch?v=GpVf6JII-VM) [MOVIE]
+- [Sodom & Gomorrah FULL VIDEO](https://www.youtube.com/watch?v=WWpknxvxLpk) [MOVIE]
+- [The Story of Joseph and His Brethren (1962)](https://www.youtube.com/watch?v=u2dM_kW-SOI) [MOVIE]
+- [Abraham, Sarah, Isaac, Jacob ( Full Movie )](https://www.youtube.com/watch?v=V5WNbtj3gZs) [MOVIE]
+- [The Ten Commandments.Full Movie HD.](https://www.youtube.com/watch?v=4s320VeVUQA) [MOVIE]
+- [Jesus Of Nazareth (Original Bible Movie) 1977](https://www.youtube.com/watch?v=pG6Y88iQhCE) [MOVIE]
+- [Jesus is Coming Full Movie](https://www.youtube.com/watch?v=Gi0eW2BEOXM) [MOVIE]
+- [The Books Of Enoch: COMPLETE EDITION, All 3 Books - Flat Earth](https://www.youtube.com/watch?v=s7TynhdCPI4)
+- [The Book of Enoch - Entire Book, R. H. Charles Version (Synchronized Text)](https://www.youtube.com/watch?v=5wbdjo7xnUg)
+- [The Second Book of Enoch (Human Voice, Read-Along Version)](https://www.youtube.com/watch?v=60Bp0qJvvqA)
+
+
 ## Government
 
 - [Forced Government Indoctrination Camps](https://www.youtube.com/watch?v=72Lrz0khXP0)
@@ -283,38 +315,6 @@ You can trust a regular person more than you can trust a corporation or a govern
 - [Melanie Trump Is A Man. Last Days Satanism.](https://www.youtube.com/watch?v=HwqCscLnCW8)
 - [Alex Jones Friend Reveals What Happened To Bill Hicks At A Private Party](https://www.youtube.com/watch?v=_rM2re61BH4)
 - [Alex Jones is a Woman. Bill Hicks 2! Part 1](https://www.youtube.com/watch?v=GqpzxccLW_0)
-
-
-## Movies from The Books
-
-- [The Visual Bible - The Gospel Of Matthew](https://www.youtube.com/watch?v=woAhReBytBk) [MOVIE]
-- [The Gospel of Luke](https://www.youtube.com/watch?v=auL-ebjH-xo) [MOVIE]
-- [The Gospel of Luke - Film - Visual Bible in HD Very Rare Version](https://www.youtube.com/watch?v=2PHPLApTt7Y) [MOVIE]
-- [The Acts of the Apostles - Film - High Quality! HD](https://www.youtube.com/watch?v=tRXNp6K5-JI) [MOVIE]
-- [Paul the Apostle Full Movie](https://www.youtube.com/watch?v=t5FhLQhDsk0) [MOVIE]
-- [The Book Of Revelation (Full Movie)](https://www.youtube.com/watch?v=NAb2hdQneBY) [MOVIE]
-- [The Ruth Story](https://www.youtube.com/watch?v=slEmSyJi81g) [MOVIE]
-- [Esther and the King](https://www.youtube.com/watch?v=SQ6qYypfmIo) [MOVIE]
-- [Samson and Delilah - full movie - full movie](https://www.youtube.com/watch?v=a9968bcrywY) [MOVIE]
-- [David and Goliath...Orson Welles as King Saul](https://www.youtube.com/watch?v=GpVf6JII-VM) [MOVIE]
-- [Sodom & Gomorrah FULL VIDEO](https://www.youtube.com/watch?v=WWpknxvxLpk) [MOVIE]
-- [The Story of Joseph and His Brethren (1962)](https://www.youtube.com/watch?v=u2dM_kW-SOI) [MOVIE]
-- [Abraham, Sarah, Isaac, Jacob ( Full Movie )](https://www.youtube.com/watch?v=V5WNbtj3gZs) [MOVIE]
-- [The Ten Commandments.Full Movie HD.](https://www.youtube.com/watch?v=4s320VeVUQA) [MOVIE]
-- [Jesus Of Nazareth (Original Bible Movie) 1977](https://www.youtube.com/watch?v=pG6Y88iQhCE) [MOVIE]
-- [Jesus is Coming Full Movie](https://www.youtube.com/watch?v=Gi0eW2BEOXM) [MOVIE]
-- [The Books Of Enoch: COMPLETE EDITION, All 3 Books - Flat Earth](https://www.youtube.com/watch?v=s7TynhdCPI4)
-- [The Book of Enoch - Entire Book, R. H. Charles Version (Synchronized Text)](https://www.youtube.com/watch?v=5wbdjo7xnUg)
-- [The Second Book of Enoch (Human Voice, Read-Along Version)](https://www.youtube.com/watch?v=60Bp0qJvvqA)
-
-
-## Truth in Movies
-
-- [They Live on Amazon](https://www.amazon.com/gp/product/B008XX3QW0)
-- [They Live (1988) Full Film HD - Roddy Piper, Keith David, Meg Foster Movies](https://www.youtube.com/watch?v=9i8X-OLrTj8)
-- [THEY LIVE 2 (2015)](https://www.youtube.com/watch?v=HR1fNIMtJaI)
-
-**Note:** These are old movies, you can trust these more than the new ones having new actors and brainwashing tactics.
 
 
 ## Sermons
