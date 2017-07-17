@@ -307,6 +307,11 @@ You can trust a regular person more than you can trust a corporation or a govern
 - [The Book of Enoch - Entire Book, R. H. Charles Version (Synchronized Text)](https://www.youtube.com/watch?v=5wbdjo7xnUg)
 - [The Second Book of Enoch (Human Voice, Read-Along Version)](https://www.youtube.com/watch?v=60Bp0qJvvqA)
 
+## Movies
+
+- [They Live (1988) Full Film HD - Roddy Piper, Keith David, Meg Foster Movies](https://www.youtube.com/watch?v=9i8X-OLrTj8)
+- [THEY LIVE 2 (2015)](https://www.youtube.com/watch?v=HR1fNIMtJaI)
+
 **Note:** These are old movies, you can trust these more than the new ones having new actors and brainwashing tactics.
 
 ## Sermons
