@@ -125,6 +125,11 @@
 
 ![second-coming-of-jesus-christ_heaven-opened-up](images/second-coming-of-jesus-christ_heaven-opened-up.jpg)
 
+
+    JN 8:44 Ye are of your father the devil, and the lusts of your father ye will do. He was a murderer from the beginning, and abode not in the truth, because there is no truth in him. When he speaketh a lie, he speaketh of his own: for he is a liar, and the father of it.
+    JN 8:45 And because I tell you the truth, ye believe me not.
+
+
 # audiobible find let god be true
 
  
