@@ -299,6 +299,10 @@ IMAGES
 
 ![jews-declare-war-on-germany.png](images/jews-declare-war-on-germany.png)
 
+- [john-calvin.png](images/john-calvin.png)
+
+![john-calvin.png](images/john-calvin.png)
+
 - [jtot_genesis_cosmology.jpg](images/jtot_genesis_cosmology.jpg)
 
 ![jtot_genesis_cosmology.jpg](images/jtot_genesis_cosmology.jpg)
