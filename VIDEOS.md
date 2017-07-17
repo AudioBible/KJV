@@ -309,7 +309,7 @@ You can trust a regular person more than you can trust a corporation or a govern
 
 ## Movies
 
-- [They Live (1988) Full Film HD - Roddy Piper, Keith David, Meg Foster Movies](https://www.youtube.com/watch?v=9i8X-OLrTj8)
+- [They Live 1988 Full Movie](https://www.youtube.com/watch?v=67C0Ypn1qss&index=1&list=PLMDordv5pDT7Sa0YXrpnZ1aNo-KBC2bCF)
 - [THEY LIVE 2 (2015)](https://www.youtube.com/watch?v=HR1fNIMtJaI)
 
 **Note:** These are old movies, you can trust these more than the new ones having new actors and brainwashing tactics.
