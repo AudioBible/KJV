@@ -22,7 +22,10 @@ You can trust a regular person more than you can trust a corporation or a govern
 - [They Live on Amazon](https://www.amazon.com/gp/product/B008XX3QW0)
 - [They Live (1988) Full Film HD - Roddy Piper, Keith David, Meg Foster Movies](https://www.youtube.com/watch?v=9i8X-OLrTj8)
 - [THEY LIVE 2 (2015)](https://www.youtube.com/watch?v=HR1fNIMtJaI)
-
+- [Roddy Piper Admit They live is a documentary](https://www.youtube.com/watch?v=G8MYnSZnK4M)
+- [They Live Based on a True Story ▶️️](https://www.youtube.com/watch?v=6i_msSDvzbg)
+- [ODD TV's 33 Movies for a Conspiracist ▶️️](https://www.youtube.com/watch?v=L_ApQ4prG7Q)
+- [ODD TV's 33 Movies Dystopian Edition ▶️️](https://www.youtube.com/watch?v=W51wAhgn-8E)
 
 ## Movies from The Books
 
