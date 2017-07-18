@@ -38,6 +38,8 @@ MUSIC VIDEOS
 - [LOWKEY ft LUPE FIASCO, M1 (DEAD PREZ) & BLACK THE RIPPER - OBAMA NATION PART 2](https://www.youtube.com/watch?v=bB-vYuYhdSE&list=RDbB-vYuYhdSE) [playlist]
 - [Jedi Mind Tricks (Vinnie Paz + Stoupe) - "Heavy Metal Kings" (feat. Ill Bill) [Official Video]](https://www.youtube.com/watch?v=axmpxbtzSZY&list=RDaxmpxbtzSZY) [playlist]
 - [Immortal Technique - Bin laden Lyrics](https://www.youtube.com/watch?v=hdagSIa-UQ8&list=RDhdagSIa-UQ8) [playlist]
+- [New World (Fuck You) - OverDose Denver (ODD TV)](https://www.youtube.com/watch?v=KcQ6hwXKRYs&list=PLyZQ2CmNz-znUp5b0UmmK_3-V6oXwyrDI) [playlist]
+- [Living in Hell | OverDose Denver (Anti NWO Music)](https://www.youtube.com/watch?v=niPwn6AS7Lg&index=35&list=RD4-4V9g6bUqc) [playlist]
 
 **Note:** Some of these videos are already in playlists above, some are not!
 
