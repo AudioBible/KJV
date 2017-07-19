@@ -75,6 +75,14 @@ IMAGES
 
 ![Anonymous.jpg](images/Anonymous.jpg)
 
+- [BVV32afCYAISme5.jpg](images/BVV32afCYAISme5.jpg)
+
+![BVV32afCYAISme5.jpg](images/BVV32afCYAISme5.jpg)
+
+- [BVX-CGXCIAArnqL.jpg](images/BVX-CGXCIAArnqL.jpg)
+
+![BVX-CGXCIAArnqL.jpg](images/BVX-CGXCIAArnqL.jpg)
+
 - [Common-sense-is-a-flower-that-doesnt-grow-in-everyones-garden.-Anonymous.png](images/Common-sense-is-a-flower-that-doesnt-grow-in-everyones-garden.-Anonymous.png)
 
 ![Common-sense-is-a-flower-that-doesnt-grow-in-everyones-garden.-Anonymous.png](images/Common-sense-is-a-flower-that-doesnt-grow-in-everyones-garden.-Anonymous.png)
