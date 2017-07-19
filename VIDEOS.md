@@ -250,6 +250,7 @@ You can trust a regular person more than you can trust a corporation or a govern
 - [Flat Earth people need to read the KJV!!](https://www.youtube.com/watch?v=dBx_0EhkP0M)
 - [Was Hitler Walt Disney ? You Decide !](https://www.youtube.com/watch?v=hIhBHPyEmzg)
 - [Walt Disney WAS Adolf Hitler (Mirror) Flat Earth ExJW](https://www.youtube.com/watch?v=SBFRUQdkAls)
+- [The Biggest Scam in the History of Mankind](https://www.youtube.com/watch?v=n3Lt_fbSSxk)
 
 ## Health
 
