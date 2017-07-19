@@ -248,6 +248,8 @@ You can trust a regular person more than you can trust a corporation or a govern
 - [Trump Programming Destroy America from the Inside](https://www.youtube.com/watch?v=4lt001r7xxs)
 - [Flat Earth people you have to watch this!!](https://www.youtube.com/watch?v=AbtmxCBi7xs)
 - [Flat Earth people need to read the KJV!!](https://www.youtube.com/watch?v=dBx_0EhkP0M)
+- [Was Hitler Walt Disney ? You Decide !](https://www.youtube.com/watch?v=hIhBHPyEmzg)
+- [Walt Disney WAS Adolf Hitler (Mirror) Flat Earth ExJW](https://www.youtube.com/watch?v=SBFRUQdkAls)
 
 ## Health
 
