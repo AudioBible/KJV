@@ -12,7 +12,7 @@
 
 ![closed-minded-open-minded](images/closed-minded-open-minded.png)
 
-[![rawdy-roddy-piper-tweet-they-live-is-a-documentary](images/rawdy-roddy-piper-tweet-they-live-is-a-documentary.png)](https://twitter.com/R_Roddy_Piper/status/383693269068050432)
+[![rowdy-roddy-piper-tweet-they-live-is-a-documentary](images/rowdy-roddy-piper-tweet-they-live-is-a-documentary.png)](https://twitter.com/R_Roddy_Piper/status/383693269068050432)
 
 ## IT IS EASIER TO FOOL PEOPLE, THAN TO CONVINCE THEM THEY'VE BEEN FOOLED!
 
