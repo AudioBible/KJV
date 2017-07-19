@@ -375,6 +375,10 @@ IMAGES
 
 ![q3tdtb.jpg](images/q3tdtb.jpg)
 
+- [rawdy-roddy-piper-tweet-they-live-is-a-documentary.png](images/rawdy-roddy-piper-tweet-they-live-is-a-documentary.png)
+
+![rawdy-roddy-piper-tweet-they-live-is-a-documentary.png](images/rawdy-roddy-piper-tweet-they-live-is-a-documentary.png)
+
 - [red-indians-wiped-out-and-re-educated.png](images/red-indians-wiped-out-and-re-educated.png)
 
 ![red-indians-wiped-out-and-re-educated.png](images/red-indians-wiped-out-and-re-educated.png)
