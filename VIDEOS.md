@@ -251,6 +251,7 @@ You can trust a regular person more than you can trust a corporation or a govern
 - [Was Hitler Walt Disney ? You Decide !](https://www.youtube.com/watch?v=hIhBHPyEmzg)
 - [Walt Disney WAS Adolf Hitler (Mirror) Flat Earth ExJW](https://www.youtube.com/watch?v=SBFRUQdkAls)
 - [The Biggest Scam in the History of Mankind](https://www.youtube.com/watch?v=n3Lt_fbSSxk)
+- [President Trump Signs Space Council Executive order with Buzz Aldrin at White House](https://www.youtube.com/watch?v=dC3SzbZU3P8)
 
 ## Health
 
