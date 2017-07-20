@@ -179,6 +179,10 @@ IMAGES
 
 ![e83e3141866d8a5c082b646ed52bcf53.jpg](images/e83e3141866d8a5c082b646ed52bcf53.jpg)
 
+- [earth-curve-calcuation.jpg](images/earth-curve-calcuation.jpg)
+
+![earth-curve-calcuation.jpg](images/earth-curve-calcuation.jpg)
+
 - [false-witness-rudolf-hoss.png](images/false-witness-rudolf-hoss.png)
 
 ![false-witness-rudolf-hoss.png](images/false-witness-rudolf-hoss.png)
