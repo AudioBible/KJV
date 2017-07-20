@@ -22,3 +22,4 @@ LINKS
 - [http://getbigonem.com](http://getbigonem.com)
 - [http://dislautomatic.com/mixtapes](http://dislautomatic.com/mixtapes)
 - [http://AlaisClay.com](http://AlaisClay.com)
+- [https://medium.com/insurge-intelligence/how-the-cia-made-google-e836451a959e](https://medium.com/insurge-intelligence/how-the-cia-made-google-e836451a959e)
