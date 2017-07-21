@@ -256,6 +256,11 @@ You can trust a regular person more than you can trust a corporation or a govern
 - [Baltimore TSA & Airport Police assault journalist for filming at checkpoint](https://www.youtube.com/watch?v=oVjTCRovfxQ)
 - [Cop Gives Ticket: "It's Against the Law to Offend Someone"](https://www.youtube.com/watch?v=4IwtCBVUj-c)
 - [No, Clinton Operative Donald Trump Is Not Going to "Save" America](https://www.youtube.com/watch?v=vgYfkvfjvn4)
+- [TSA CAN NOW FORCE PASSENGERS TO SUBMIT TO BODY SCANS](https://www.youtube.com/watch?v=TujW0bcLS8M)
+- [TSA quietly changes 'opt-out' body scanning rule](https://www.youtube.com/watch?v=3c-TU0TZJ7M)
+- [TSA SUED AFTER REMOVING BODY SCANNER OPT OUT PROVISION](https://www.youtube.com/watch?v=zIHH0jY51v8)
+- [Internal TSA Documents Show Body Scanners And Pat Downs Are Not For Terrorists](https://www.youtube.com/watch?v=c6OOxmvfx4k)
+- [TSA Agent vs Customers! Angry People Compilation!](https://www.youtube.com/watch?v=Qk8bl319LDI)
 
 ## Health
 
