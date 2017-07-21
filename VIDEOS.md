@@ -254,6 +254,8 @@ You can trust a regular person more than you can trust a corporation or a govern
 - [President Trump Signs Space Council Executive order with Buzz Aldrin at White House](https://www.youtube.com/watch?v=dC3SzbZU3P8)
 - [TRUMP Was Chosen The Proof is Out " A▶️️MUST WATCH "](https://www.youtube.com/watch?v=ni1TKPpTEJ4)
 - [Baltimore TSA & Airport Police assault journalist for filming at checkpoint](https://www.youtube.com/watch?v=oVjTCRovfxQ)
+- [Cop Gives Ticket: "It's Against the Law to Offend Someone"](https://www.youtube.com/watch?v=4IwtCBVUj-c)
+- [No, Clinton Operative Donald Trump Is Not Going to "Save" America](https://www.youtube.com/watch?v=vgYfkvfjvn4)
 
 ## Health
 
