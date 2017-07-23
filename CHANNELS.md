@@ -99,4 +99,4 @@ This is by no means an exhaustive list of channels, it should be enough to get y
 - [ThePottersClay](https://www.youtube.com/channel/UCpEdOLvL6olNghR-BWghUQA)
 - [Einar Kuusk](https://www.youtube.com/user/EinarKuusk)
 - [* Jake12399](https://www.youtube.com/user/Jake12399)
-
+- [Exposing Charlatans](https://www.youtube.com/channel/UCytUJyBwhhqrnEG-ajOLbuA)

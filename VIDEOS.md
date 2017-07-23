@@ -315,6 +315,9 @@ You can trust a regular person more than you can trust a corporation or a govern
 - [Ex Satan Worshipper John Ramirez Testimony](https://www.youtube.com/watch?v=I11L71PD3Lw)
 - [Why They REMOVED The Book Of Enoch!!](https://www.youtube.com/watch?v=xUQaKOWPZEE)
 - [TD JAKES "DAUGHTER" Paula White "WITCHCRAFT" On video](https://www.youtube.com/watch?v=tvu24q-y1uo&list=PLBA0574EBC618D518) [playlist]
+- [Kenneth Copeland's Son Gets Interviewed - Part 1 - EXPOSING CHARLATANS](https://www.youtube.com/watch?v=AtgqeyRFBDI)
+- [Kenneth Copeland's Son Gets Interviewed - Part 2 - EXPOSING CHARLATANS](https://www.youtube.com/watch?v=g1xnZ5_M4XU)
+- [Kenneth Copeland's Son Gets Interviewed - Part 3 - EXPOSING CHARLATANS](https://www.youtube.com/watch?v=12_Yd3TScCQ)
 
 ## Devolving/Dark Culture
 
