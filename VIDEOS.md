@@ -491,6 +491,7 @@ You can trust a regular person more than you can trust a corporation or a govern
 - [The Beatles Illuminati Exposed!](https://www.youtube.com/watch?v=fyGdSmuUxuE&list=RDfyGdSmuUxuE) [playlist]
 - [FLAT EARTH The STARS declare the TRUTH!](https://www.youtube.com/watch?v=lrZto01MP30)
 - [Flat Earth ... Shut up and Watch](https://www.youtube.com/watch?v=7ynkAL5UUZU)
+- [FLAT EARTH ... A Funny Thing Happened On My Way To The Sun](https://www.youtube.com/watch?v=XaS5WLVvMYI)
 
 ## 
 
