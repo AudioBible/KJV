@@ -322,6 +322,7 @@ You can trust a regular person more than you can trust a corporation or a govern
 - [JOEL OSTEEN DENIES JESUS CHRIST & OPRAH WINFREY EXPOSED! Joel Osteen hoax parody](https://www.youtube.com/watch?v=weEWl52wevI)
 - [False Preachers and Prophets Exposed](https://www.youtube.com/watch?v=PduvBp5JBEs)
 - [Joyce Meyer and other False Teachers Exposed, Complete Documentary.](https://www.youtube.com/watch?v=XUunXrBY8yc)
+- [IS CHRISTMAS CHRISTIAN??](https://www.youtube.com/watch?v=ExNl9ZRuufQ)
 
 ## Devolving/Dark Culture
 
