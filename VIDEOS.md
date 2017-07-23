@@ -493,6 +493,7 @@ You can trust a regular person more than you can trust a corporation or a govern
 - [Flat Earth ... Shut up and Watch](https://www.youtube.com/watch?v=7ynkAL5UUZU)
 - [FLAT EARTH ... A Funny Thing Happened On My Way To The Sun](https://www.youtube.com/watch?v=XaS5WLVvMYI)
 - [Flat Earth ... You Better Brace Yourself](https://www.youtube.com/watch?v=x_wQ0XopU_o)
+- [THE most undeniable proof of the Flat Earth SUN! Mindblowing Clip!](https://www.youtube.com/watch?v=p_9cFTQg7NE)
 
 ## 
 
