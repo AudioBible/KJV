@@ -267,6 +267,8 @@ You can trust a regular person more than you can trust a corporation or a govern
 - [Beheadings In Obamacare--See For Yourself--Including Those Without A Trial! (Part One)](https://www.youtube.com/watch?v=ANNTPwlfpT8)
 - [Beheadings In Obamacare--See For Yourself--Including Those Without A Trial! (Part Two)](https://www.youtube.com/watch?v=Ngo8UWfa7fo)
 - [100% PROOF THAT TRUMP IS ONE OF THEM! TRUMP ADMITS THAT HE IS A GLOBALIST! (WALL STREET JOURNAL WSJ)](https://www.youtube.com/watch?v=qYyxzdXs2d4)
+- [Tai Lopez Illuminati Exposed](https://www.youtube.com/watch?v=QJZ5qtm6k0g)
+
 
 ## Health
 
