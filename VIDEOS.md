@@ -326,6 +326,7 @@ You can trust a regular person more than you can trust a corporation or a govern
 - [Why Christians Shouldn't Celebrate Christmas](https://www.youtube.com/watch?v=1qa5xV8DIrc)
 - [The Truth About Christmas](https://www.youtube.com/watch?v=UgNQ5W2pex4)
 - [The Truth About Easter](https://www.youtube.com/watch?v=V2Yj7AaQEyE)
+- [Occult Holidays Revealed](https://www.youtube.com/watch?v=E9YCAeiGVVk)
 
 ## Devolving/Dark Culture
 

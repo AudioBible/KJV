@@ -101,3 +101,4 @@ This is by no means an exhaustive list of channels, it should be enough to get y
 - [* Jake12399](https://www.youtube.com/user/Jake12399)
 - [Exposing Charlatans](https://www.youtube.com/channel/UCytUJyBwhhqrnEG-ajOLbuA)
 - [Robert Breaker](https://www.youtube.com/user/Robertbreaker3)
+- [TallPaulToo](https://www.youtube.com/user/TallPaulToo)
