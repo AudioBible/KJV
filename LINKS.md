@@ -7,6 +7,7 @@
 LINKS
 =====
 
+- [http://www.false-teachers.com/](http://www.false-teachers.com/)
 - [http://www.flatearthconspiracy.com/](http://www.flatearthconspiracy.com/)
 - [https://neave.com/planetarium/](https://neave.com/planetarium/)
 - [http://sermonaudio.com](http://sermonaudio.com)
