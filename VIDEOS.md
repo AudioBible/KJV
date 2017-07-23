@@ -314,6 +314,7 @@ You can trust a regular person more than you can trust a corporation or a govern
 - [% OBAMA !!! * has a cloned image that speaks ! obama is not obama * IM SERIOUS !](https://www.youtube.com/watch?v=A-lSNH3cSS0)
 - [Ex Satan Worshipper John Ramirez Testimony](https://www.youtube.com/watch?v=I11L71PD3Lw)
 - [Why They REMOVED The Book Of Enoch!!](https://www.youtube.com/watch?v=xUQaKOWPZEE)
+- [TD JAKES "DAUGHTER" Paula White "WITCHCRAFT" On video](https://www.youtube.com/watch?v=tvu24q-y1uo&list=PLBA0574EBC618D518) [playlist]
 
 ## Devolving/Dark Culture
 
