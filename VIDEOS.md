@@ -56,7 +56,7 @@ You can trust a regular person more than you can trust a corporation or a govern
 ## Government
 
 - [Forced Government Indoctrination Camps](https://www.youtube.com/watch?v=72Lrz0khXP0)
-- [The History of Evolution Programming | The Darwin's & The Huxley's ](https://www.youtube.com/watch?v=vf0LoBUQMmc)
+- [The History of Evolution Programming The Darwin's & The Huxley's ](https://www.youtube.com/watch?v=vf0LoBUQMmc)
 - [The Matrix of Control→ Silent Weapons For Quiet Wars - DARPA - Agenda 21 - DNA Mapping](https://www.youtube.com/watch?v=k4eRlBbcFkc)
 - [Silent Weapons for Quiet Wars Part 1 of 4](https://www.youtube.com/watch?v=eSjtQiZJGT0) 
 - [documents/SILENT_WEAPONS_for_QUIET_WARS.pdf](documents/SILENT_WEAPONS_for_QUIET_WARS.pdf)
@@ -470,6 +470,13 @@ You can trust a regular person more than you can trust a corporation or a govern
 - [Finding the Curve - Episode 2 (Flat Earth Documentary)](https://www.youtube.com/watch?v=baZpwJaA7D8)
 - [Finding the Curve - Episode 3 (Flat Earth Documentary) ](https://www.youtube.com/watch?v=jAT08Up1ZOU)
 - [Rapper B.O.B. talks Flat Earth 2017 on Hot 97 - Mark Sargent ✅](https://www.youtube.com/watch?v=XMRMjONiG9M)
+- [Google Knows Earth Is Flat, They Mock Us With 2016 Earth Day Logo](https://www.youtube.com/watch?v=lJ2CydABlAo)
+- [Zetetic Christian from 1890's explains "The Real Reason Why" [Flat Earth]](https://www.youtube.com/watch?v=kqH0OHapNxQ)
+- [Celebrities That Claim The EARTH IS FLAT - Top 6 Popular People Who Believe In FLAT EARTH](https://www.youtube.com/watch?v=6DakC20e4yw)
+- [Flat Earth / Masonic art proves they know FE](https://www.youtube.com/watch?v=_y-XZvynduY)
+- [FLAT EARTH. The real name of the world](https://www.youtube.com/watch?v=f_VQgEY63Gs)
+- [The Flat Earth Update Stuff They Don't Want You to Know](https://www.youtube.com/watch?v=nGTkp4zG83E)
+
 
 ## 
 
