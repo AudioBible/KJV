@@ -263,6 +263,9 @@ You can trust a regular person more than you can trust a corporation or a govern
 - [Internal TSA Documents Show Body Scanners And Pat Downs Are Not For Terrorists](https://www.youtube.com/watch?v=c6OOxmvfx4k)
 - [TSA Agent vs Customers! Angry People Compilation!](https://www.youtube.com/watch?v=Qk8bl319LDI)
 - [MK Ultra - Ex-Illuminati Slave Exposes Everything](https://www.youtube.com/watch?v=w2zs2zgOgsw)
+- [Obamacare Code ICD9E978 Execution by Guillotine 666 Mark of the Beast](https://www.youtube.com/watch?v=vy5EwPpVkO4)
+- [Beheadings In Obamacare--See For Yourself--Including Those Without A Trial! (Part One)](https://www.youtube.com/watch?v=ANNTPwlfpT8)
+- [Beheadings In Obamacare--See For Yourself--Including Those Without A Trial! (Part Two)](https://www.youtube.com/watch?v=Ngo8UWfa7fo)
 
 ## Health
 
