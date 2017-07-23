@@ -318,6 +318,7 @@ You can trust a regular person more than you can trust a corporation or a govern
 - [Kenneth Copeland's Son Gets Interviewed - Part 1 - EXPOSING CHARLATANS](https://www.youtube.com/watch?v=AtgqeyRFBDI)
 - [Kenneth Copeland's Son Gets Interviewed - Part 2 - EXPOSING CHARLATANS](https://www.youtube.com/watch?v=g1xnZ5_M4XU)
 - [Kenneth Copeland's Son Gets Interviewed - Part 3 - EXPOSING CHARLATANS](https://www.youtube.com/watch?v=12_Yd3TScCQ)
+- [2017 Disturbing Secrets of Joel Osteen: Satanism in Church](https://www.youtube.com/watch?v=m8xINUG94LI)
 
 ## Devolving/Dark Culture
 
