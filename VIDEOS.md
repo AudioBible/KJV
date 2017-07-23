@@ -327,6 +327,12 @@ You can trust a regular person more than you can trust a corporation or a govern
 - [The Truth About Christmas](https://www.youtube.com/watch?v=UgNQ5W2pex4)
 - [The Truth About Easter](https://www.youtube.com/watch?v=V2Yj7AaQEyE)
 - [Occult Holidays Revealed](https://www.youtube.com/watch?v=E9YCAeiGVVk)
+- [Former Satanist Zachary King Exposes The Occult (Part 1)](https://www.youtube.com/watch?v=QmW-_lKovEg)
+- [HOW MUSIC INVITES SPIRITS INTO YOUR HOME!](https://www.youtube.com/watch?v=bAqiWlSOGWk)
+- [Ex Satanist/Occultist tells about the underground. Day of the Lord Radio/ Jeff Harshbarger](https://www.youtube.com/watch?v=BNlZKk5md_8)
+- [True Life Story- Born into a Magic Family- Witchcraft and Wizardry on NYSTV](https://www.youtube.com/watch?v=aNqXqD7CSpA)
+- [The Root of Freemasonry (illuminati) Enochian Magic, Enoch Vs Enoch. w/ Gary Wayne](https://www.youtube.com/watch?v=rxGgq8mPdOw)
+- [Ex-Occultist Freemason from 1950's Reveals EVERYTHING](https://www.youtube.com/watch?v=Lb2LTVGPc2E)
 
 ## Devolving/Dark Culture
 
