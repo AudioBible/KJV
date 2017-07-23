@@ -476,7 +476,7 @@ You can trust a regular person more than you can trust a corporation or a govern
 - [Flat Earth / Masonic art proves they know FE](https://www.youtube.com/watch?v=_y-XZvynduY)
 - [FLAT EARTH. The real name of the world](https://www.youtube.com/watch?v=f_VQgEY63Gs)
 - [The Flat Earth Update Stuff They Don't Want You to Know](https://www.youtube.com/watch?v=nGTkp4zG83E)
-
+- [Darren Nesbit Flat Earth Presentation at Ufo Conference March 2017](https://www.youtube.com/watch?v=Zj7Cw545f44)
 
 ## 
 
