@@ -482,6 +482,7 @@ You can trust a regular person more than you can trust a corporation or a govern
 - [What you need to know about GIANT ANCIENT TREE STUMPS...you won't believe it!](https://www.youtube.com/watch?v=n5SRkkhUG4k)
 - [Prehistoric World Unveiled: Structures of Ancient Civilizations That Will Blow Your Mind!!](https://www.youtube.com/watch?v=N6mEj8NLjEw)
 - [The Flat Earth : The True Story Of The Slave Trade "A MUST WATCH"](https://www.youtube.com/watch?v=v9WB_BVUL9k)
+- [FLAT EARTH - John Lennon and The Truth Behind The Beatles - John Knew About Flat Earth](https://www.youtube.com/watch?v=9_ZMRtM3LYw)
 
 ## 
 
