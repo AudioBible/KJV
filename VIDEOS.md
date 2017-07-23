@@ -495,6 +495,7 @@ You can trust a regular person more than you can trust a corporation or a govern
 - [Flat Earth ... You Better Brace Yourself](https://www.youtube.com/watch?v=x_wQ0XopU_o)
 - [THE most undeniable proof of the Flat Earth SUN! Mindblowing Clip!](https://www.youtube.com/watch?v=p_9cFTQg7NE)
 - [CREPUSCULAR SUN RAYS PROVE FLAT EARTH](https://www.youtube.com/watch?v=b_ppPXChyTo)
+- [Light and Shadows Prove the Flat Earth](https://www.youtube.com/watch?v=CbRIbIeKj7E)
 
 ## 
 
