@@ -323,6 +323,9 @@ You can trust a regular person more than you can trust a corporation or a govern
 - [False Preachers and Prophets Exposed](https://www.youtube.com/watch?v=PduvBp5JBEs)
 - [Joyce Meyer and other False Teachers Exposed, Complete Documentary.](https://www.youtube.com/watch?v=XUunXrBY8yc)
 - [IS CHRISTMAS CHRISTIAN??](https://www.youtube.com/watch?v=ExNl9ZRuufQ)
+- [Why Christians Shouldn't Celebrate Christmas](https://www.youtube.com/watch?v=1qa5xV8DIrc)
+- [The Truth About Christmas](https://www.youtube.com/watch?v=UgNQ5W2pex4)
+- [The Truth About Easter](https://www.youtube.com/watch?v=V2Yj7AaQEyE)
 
 ## Devolving/Dark Culture
 
