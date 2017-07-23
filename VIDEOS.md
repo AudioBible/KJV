@@ -489,6 +489,8 @@ You can trust a regular person more than you can trust a corporation or a govern
 - [FLAT EARTH - John Lennon and The Truth Behind The Beatles - John Knew About Flat Earth](https://www.youtube.com/watch?v=9_ZMRtM3LYw)
 - [FLAT EARTH - Bruce Lee Knew About It - Was Bruce Lee A Member Of Flat Earth Society ?](https://www.youtube.com/watch?v=qgqLdkdKYQ0)
 - [The Beatles Illuminati Exposed!](https://www.youtube.com/watch?v=fyGdSmuUxuE&list=RDfyGdSmuUxuE) [playlist]
+- [FLAT EARTH The STARS declare the TRUTH!](https://www.youtube.com/watch?v=lrZto01MP30)
+- [Flat Earth ... Shut up and Watch](https://www.youtube.com/watch?v=7ynkAL5UUZU)
 
 ## 
 
