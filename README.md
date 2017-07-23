@@ -192,4 +192,4 @@
 
 Contact [audiobible.life@gmail.com](mailto:audiobible.life@gmail.com)
 
-Subscribe to [Audio Bible on YouTube](https://www.youtube.com/channel/UC18JDfFFpUdw82Fm3KAMDmA)
+Subscribe to [Audio Bible Life on YouTube](https://www.youtube.com/channel/UC18JDfFFpUdw82Fm3KAMDmA)
