@@ -359,6 +359,10 @@ IMAGES
 
 ![no-witnesses-no-pohotos-nothing-of-gassed-victims.png](images/no-witnesses-no-pohotos-nothing-of-gassed-victims.png)
 
+- [pay-attention-to-body-language.png](images/pay-attention-to-body-language.png)
+
+![pay-attention-to-body-language.png](images/pay-attention-to-body-language.png)
+
 - [protocol-of-zion1.png](images/protocol-of-zion1.png)
 
 ![protocol-of-zion1.png](images/protocol-of-zion1.png)
