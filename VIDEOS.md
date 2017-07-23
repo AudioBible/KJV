@@ -266,6 +266,7 @@ You can trust a regular person more than you can trust a corporation or a govern
 - [Obamacare Code ICD9E978 Execution by Guillotine 666 Mark of the Beast](https://www.youtube.com/watch?v=vy5EwPpVkO4)
 - [Beheadings In Obamacare--See For Yourself--Including Those Without A Trial! (Part One)](https://www.youtube.com/watch?v=ANNTPwlfpT8)
 - [Beheadings In Obamacare--See For Yourself--Including Those Without A Trial! (Part Two)](https://www.youtube.com/watch?v=Ngo8UWfa7fo)
+- [100% PROOF THAT TRUMP IS ONE OF THEM! TRUMP ADMITS THAT HE IS A GLOBALIST! (WALL STREET JOURNAL WSJ)](https://www.youtube.com/watch?v=qYyxzdXs2d4)
 
 ## Health
 
@@ -483,6 +484,8 @@ You can trust a regular person more than you can trust a corporation or a govern
 - [Prehistoric World Unveiled: Structures of Ancient Civilizations That Will Blow Your Mind!!](https://www.youtube.com/watch?v=N6mEj8NLjEw)
 - [The Flat Earth : The True Story Of The Slave Trade "A MUST WATCH"](https://www.youtube.com/watch?v=v9WB_BVUL9k)
 - [FLAT EARTH - John Lennon and The Truth Behind The Beatles - John Knew About Flat Earth](https://www.youtube.com/watch?v=9_ZMRtM3LYw)
+- [FLAT EARTH - Bruce Lee Knew About It - Was Bruce Lee A Member Of Flat Earth Society ?](https://www.youtube.com/watch?v=qgqLdkdKYQ0)
+- [The Beatles Illuminati Exposed!](https://www.youtube.com/watch?v=fyGdSmuUxuE&list=RDfyGdSmuUxuE) [playlist]
 
 ## 
 
