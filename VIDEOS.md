@@ -270,6 +270,7 @@ You can trust a regular person more than you can trust a corporation or a govern
 - [Tai Lopez Illuminati Exposed](https://www.youtube.com/watch?v=QJZ5qtm6k0g)
 - [MARK OF THE BEAST! DR OZ PROMOTES RFID MICROCHIP!](https://www.youtube.com/watch?v=SfvRDBN8_Dc)
 - [Dr. Oz Promotes RFID Microchip Implants For People, Calls It "The Next Big Thing"](https://www.youtube.com/watch?v=5nkNewmMylc)
+- [JFK Assassinated For Spilling the FLAT EARTH? He knew too much!](https://www.youtube.com/watch?v=jAZdrvVp_ng)
 
 ## Health
 
