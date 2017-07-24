@@ -273,6 +273,7 @@ You can trust a regular person more than you can trust a corporation or a govern
 - [JFK Assassinated For Spilling the FLAT EARTH? He knew too much!](https://www.youtube.com/watch?v=jAZdrvVp_ng)
 - [Saudi Cleric Was Right: USA Faked Moon Landing - Coriolis Effect Fraud](https://www.youtube.com/watch?v=oCSvx5ONIB8)
 - [Saudi Cleric Says the Sun Rotates Around the Earth](https://www.youtube.com/watch?v=RqGt0YV1AMQ)
+- [EMPLOYEES VOLUNTEER TO TAKE "THE CHIP" (TECHNOLOGY 2017)](https://www.youtube.com/watch?v=cZMtLmW27os)
 
 ## Health
 
