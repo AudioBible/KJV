@@ -272,6 +272,8 @@ You can trust a regular person more than you can trust a corporation or a govern
 - [Dr. Oz Promotes RFID Microchip Implants For People, Calls It "The Next Big Thing"](https://www.youtube.com/watch?v=5nkNewmMylc)
 - [JFK Assassinated For Spilling the FLAT EARTH? He knew too much!](https://www.youtube.com/watch?v=jAZdrvVp_ng)
 - [Saudi Cleric Was Right: USA Faked Moon Landing - Coriolis Effect Fraud](https://www.youtube.com/watch?v=oCSvx5ONIB8)
+- [Saudi Cleric Says the Sun Rotates Around the Earth](https://www.youtube.com/watch?v=RqGt0YV1AMQ)
+- [Does the Quran say the earth is flat?](https://www.youtube.com/watch?v=r0Gp6ecagdM)
 
 ## Health
 
