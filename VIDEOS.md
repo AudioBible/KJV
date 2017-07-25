@@ -282,6 +282,8 @@ You can trust a regular person more than you can trust a corporation or a govern
 
 ## Spiritual
 
+- [The Devil's Playbook (How He Deceives You)! Part 1](https://www.youtube.com/watch?v=tNDz75-9bps)
+- [The Devil's Playbook (How He Deceives You)! Part 2](https://www.youtube.com/watch?v=yZ6IgXQc2m0)
 - [Placebo - Howard Pittman.mp4](https://www.youtube.com/watch?v=lBwsGDCGQFE)
 - [ONCE SAVED ALWAYS SAVED?](https://www.youtube.com/watch?v=DGfg0PUMImk)
 - [This Is What Satan Would Preach In A "Church"!](https://www.youtube.com/watch?v=EpZ7chF4TT0)
@@ -346,8 +348,6 @@ You can trust a regular person more than you can trust a corporation or a govern
 - [True Life Story- Born into a Magic Family- Witchcraft and Wizardry on NYSTV](https://www.youtube.com/watch?v=aNqXqD7CSpA)
 - [The Root of Freemasonry (illuminati) Enochian Magic, Enoch Vs Enoch. w/ Gary Wayne](https://www.youtube.com/watch?v=rxGgq8mPdOw)
 - [Ex-Occultist Freemason from 1950's Reveals EVERYTHING](https://www.youtube.com/watch?v=Lb2LTVGPc2E)
-- [The Devil's Playbook (How He Deceives You)! Part 1](https://www.youtube.com/watch?v=tNDz75-9bps)
-- [The Devil's Playbook (How He Deceives You)! Part 2](https://www.youtube.com/watch?v=yZ6IgXQc2m0)
 
 ## Devolving/Dark Culture
 
