@@ -44,6 +44,8 @@
 
 #### What I know is that I don't know anything, so I keep looking for the truth/answers and realize how little I actually know, but the more I keep looking for the truth the more I know that I have a chance to be saved!
 
+### Just trying to spread awareness, so to help save humanity or at least buy some time!
+
 **Note:** You can use [http://listenonrepeat.com](http://listenonrepeat.com) for any videos that you want to listen to on repeat!
 
 ## [VIDEOS ON YOUTUBE](VIDEOS.md)
