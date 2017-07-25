@@ -55,6 +55,7 @@ You can trust a regular person more than you can trust a corporation or a govern
 
 ## Government
 
+- [THE SATANIC NWO CONSPIRACY IS REAL! GREAT EYE-OPENER MOVIE](https://www.youtube.com/watch?v=CSWHIEibU0Q)
 - [Forced Government Indoctrination Camps](https://www.youtube.com/watch?v=72Lrz0khXP0)
 - [The History of Evolution Programming The Darwin's & The Huxley's ](https://www.youtube.com/watch?v=vf0LoBUQMmc)
 - [The Matrix of Control→ Silent Weapons For Quiet Wars - DARPA - Agenda 21 - DNA Mapping](https://www.youtube.com/watch?v=k4eRlBbcFkc)
@@ -274,7 +275,6 @@ You can trust a regular person more than you can trust a corporation or a govern
 - [Saudi Cleric Was Right: USA Faked Moon Landing - Coriolis Effect Fraud](https://www.youtube.com/watch?v=oCSvx5ONIB8)
 - [Saudi Cleric Says the Sun Rotates Around the Earth](https://www.youtube.com/watch?v=RqGt0YV1AMQ)
 - [EMPLOYEES VOLUNTEER TO TAKE "THE CHIP" (TECHNOLOGY 2017)](https://www.youtube.com/watch?v=cZMtLmW27os)
-- [THE SATANIC NWO CONSPIRACY IS REAL! GREAT EYE-OPENER MOVIE](https://www.youtube.com/watch?v=CSWHIEibU0Q)
 
 ## Health
 
