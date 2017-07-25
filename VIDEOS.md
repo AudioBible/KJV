@@ -284,6 +284,8 @@ You can trust a regular person more than you can trust a corporation or a govern
 - [RFID is Back, No one will buy and sell without it](https://www.youtube.com/watch?v=GdJ5GKTTtrw)
 - [Trump and NASA are going BACK to the moon](https://www.youtube.com/watch?v=2KRLh5xjOCk)
 - [NASAs EPIC Satelite PROVE thier LIE](https://www.youtube.com/watch?v=zK7iYR2yI50)
+- [All satellite dishes face south?! -Lets ask the guy who installs them.](https://www.youtube.com/watch?v=JO3zkoP9MKI)
+
 
 ## Devolving/Dark Culture
 
