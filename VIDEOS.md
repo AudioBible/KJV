@@ -285,7 +285,7 @@ You can trust a regular person more than you can trust a corporation or a govern
 - [Trump and NASA are going BACK to the moon](https://www.youtube.com/watch?v=2KRLh5xjOCk)
 - [NASAs EPIC Satelite PROVE thier LIE](https://www.youtube.com/watch?v=zK7iYR2yI50)
 - [All satellite dishes face south?! -Lets ask the guy who installs them.](https://www.youtube.com/watch?v=JO3zkoP9MKI)
-
+- [Flat Earth - "satellites " and " DirectTV " debunked..... ( again)](https://www.youtube.com/watch?v=aBFJOYg0FG4)
 
 ## Devolving/Dark Culture
 
