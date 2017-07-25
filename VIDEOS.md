@@ -275,6 +275,32 @@ You can trust a regular person more than you can trust a corporation or a govern
 - [Saudi Cleric Was Right: USA Faked Moon Landing - Coriolis Effect Fraud](https://www.youtube.com/watch?v=oCSvx5ONIB8)
 - [Saudi Cleric Says the Sun Rotates Around the Earth](https://www.youtube.com/watch?v=RqGt0YV1AMQ)
 - [EMPLOYEES VOLUNTEER TO TAKE "THE CHIP" (TECHNOLOGY 2017)](https://www.youtube.com/watch?v=cZMtLmW27os)
+- [Living In The Last Days (The Beginning Of Sorrows)!](https://www.youtube.com/watch?v=s9ZmnjaFB2k)
+- [One Nation Under Deception!](https://www.youtube.com/watch?v=2-QefxdTStc)
+- [The REAL Power Behind The New World Order (Full Documentary)](https://www.youtube.com/watch?v=v47e4du4hmw)
+- [The New World Order- Secret Societies and Biblical Prophecy](https://www.youtube.com/watch?v=HL6v8nzFiUk)
+- [And There Shall Be Signs!](https://www.youtube.com/watch?v=7Njyb78TKS0)
+
+
+## Devolving/Dark Culture
+
+- [INTRODUCING THE NEW MEN'S FASHION OFFICE ATTIRE OF 2017!](https://www.youtube.com/watch?v=cesCNxWGJbI)
+- [THE LAKE OF FIRE IS GETTING HOTTER BY THE SECOND!](https://www.youtube.com/watch?v=dNqrYiV3j-0)
+- [THIS WILL MAKE YOU WANT TO PULL YOUR HAIR OUT!](https://www.youtube.com/watch?v=LjOJj34k_Gs)
+- [Gone at 33: YouTube Star Stevie Ryan - Dark Industry Revealed](https://www.youtube.com/watch?v=ips1pAqwaFE)
+- [SHE IS NOT A MAN?? - The Pink Dress Tells All - (A Beauty We Have)](https://www.youtube.com/watch?v=eV-YdKX8HVo)
+- [AMAZING! You Won't Believe Which Business Owns Entire Industry!](https://www.youtube.com/watch?v=fCYIG_Q8oHs)
+- [Devils tower and Pagan rituals](https://www.youtube.com/watch?v=y2dBpiS_Aik)
+- [Why Are We Literally Eating Demon-Shaped Dead Food in This Society?](https://www.youtube.com/watch?v=EeK_iampjjg)
+- [Aaliyah, Lefteye,Biggie,Eazy E,Whitney Houston, Amy Winehouse Are All N Hell](https://www.youtube.com/watch?v=wwUffrMRDqE)
+- [CELEBRITIES SEEN IN HELL (TUPAC, ROBIN WILLIAMS, ELVIS, HEATH LEDGER, AND MORE)](https://www.youtube.com/watch?v=_gNw4SGGwDU)
+- [GISELE TOM BRADY ILLUMINATI TRANNY COUPLE EXPOSED!](https://www.youtube.com/watch?v=FMG4GUgnlMo)
+- [MEGYN KELLY ILLUMINATI TRANNY EXPOSED!](https://www.youtube.com/watch?v=t5j1CPUf9RI)
+- [2 Different Melania Trump Actresses IMO. Side By Side Split Screen.](https://www.youtube.com/watch?v=zsD7e8NUZO8)
+- [Melanie Trump Is A Man. Last Days Satanism.](https://www.youtube.com/watch?v=HwqCscLnCW8)
+- [Alex Jones Friend Reveals What Happened To Bill Hicks At A Private Party](https://www.youtube.com/watch?v=_rM2re61BH4)
+- [Alex Jones is a Woman. Bill Hicks 2! Part 1](https://www.youtube.com/watch?v=GqpzxccLW_0)
+
 
 ## Health
 
@@ -284,6 +310,7 @@ You can trust a regular person more than you can trust a corporation or a govern
 
 - [The Devil's Playbook (How He Deceives You)! Part 1](https://www.youtube.com/watch?v=tNDz75-9bps)
 - [The Devil's Playbook (How He Deceives You)! Part 2](https://www.youtube.com/watch?v=yZ6IgXQc2m0)
+- [The Devil's Playbook (How He Deceives You)! Part 3](https://www.youtube.com/watch?v=HzSpQRT3k_g)
 - [Placebo - Howard Pittman.mp4](https://www.youtube.com/watch?v=lBwsGDCGQFE)
 - [ONCE SAVED ALWAYS SAVED?](https://www.youtube.com/watch?v=DGfg0PUMImk)
 - [This Is What Satan Would Preach In A "Church"!](https://www.youtube.com/watch?v=EpZ7chF4TT0)
@@ -348,26 +375,11 @@ You can trust a regular person more than you can trust a corporation or a govern
 - [True Life Story- Born into a Magic Family- Witchcraft and Wizardry on NYSTV](https://www.youtube.com/watch?v=aNqXqD7CSpA)
 - [The Root of Freemasonry (illuminati) Enochian Magic, Enoch Vs Enoch. w/ Gary Wayne](https://www.youtube.com/watch?v=rxGgq8mPdOw)
 - [Ex-Occultist Freemason from 1950's Reveals EVERYTHING](https://www.youtube.com/watch?v=Lb2LTVGPc2E)
-
-## Devolving/Dark Culture
-
-- [INTRODUCING THE NEW MEN'S FASHION OFFICE ATTIRE OF 2017!](https://www.youtube.com/watch?v=cesCNxWGJbI)
-- [THE LAKE OF FIRE IS GETTING HOTTER BY THE SECOND!](https://www.youtube.com/watch?v=dNqrYiV3j-0)
-- [THIS WILL MAKE YOU WANT TO PULL YOUR HAIR OUT!](https://www.youtube.com/watch?v=LjOJj34k_Gs)
-- [Gone at 33: YouTube Star Stevie Ryan - Dark Industry Revealed](https://www.youtube.com/watch?v=ips1pAqwaFE)
-- [SHE IS NOT A MAN?? - The Pink Dress Tells All - (A Beauty We Have)](https://www.youtube.com/watch?v=eV-YdKX8HVo)
-- [AMAZING! You Won't Believe Which Business Owns Entire Industry!](https://www.youtube.com/watch?v=fCYIG_Q8oHs)
-- [Devils tower and Pagan rituals](https://www.youtube.com/watch?v=y2dBpiS_Aik)
-- [Why Are We Literally Eating Demon-Shaped Dead Food in This Society?](https://www.youtube.com/watch?v=EeK_iampjjg)
-- [Aaliyah, Lefteye,Biggie,Eazy E,Whitney Houston, Amy Winehouse Are All N Hell](https://www.youtube.com/watch?v=wwUffrMRDqE)
-- [CELEBRITIES SEEN IN HELL (TUPAC, ROBIN WILLIAMS, ELVIS, HEATH LEDGER, AND MORE)](https://www.youtube.com/watch?v=_gNw4SGGwDU)
-- [GISELE TOM BRADY ILLUMINATI TRANNY COUPLE EXPOSED!](https://www.youtube.com/watch?v=FMG4GUgnlMo)
-- [MEGYN KELLY ILLUMINATI TRANNY EXPOSED!](https://www.youtube.com/watch?v=t5j1CPUf9RI)
-- [2 Different Melania Trump Actresses IMO. Side By Side Split Screen.](https://www.youtube.com/watch?v=zsD7e8NUZO8)
-- [Melanie Trump Is A Man. Last Days Satanism.](https://www.youtube.com/watch?v=HwqCscLnCW8)
-- [Alex Jones Friend Reveals What Happened To Bill Hicks At A Private Party](https://www.youtube.com/watch?v=_rM2re61BH4)
-- [Alex Jones is a Woman. Bill Hicks 2! Part 1](https://www.youtube.com/watch?v=GqpzxccLW_0)
-
+- [New World Order (Order Out Of Chaos)!](https://www.youtube.com/watch?v=7QivYglT2K8)
+- [New World Order Order (Order Out Of Chaos)! Part 2](https://www.youtube.com/watch?v=PV9xGdd-06I)
+- [Be Not Conformed To This World!](https://www.youtube.com/watch?v=4riWmWXy-JY)
+- [Angels Which Kept Not Their First Estate!](https://www.youtube.com/watch?v=cGPWvQau3mA)
+- [Strong Delusion! ( 2 Thessalonians 2:11- K.J.V. )](https://www.youtube.com/watch?v=mZtu3Cvq8Io)
 
 ## Sermons
 
@@ -392,6 +404,8 @@ You can trust a regular person more than you can trust a corporation or a govern
 - [Battle for Your Mind (Pastor Charles Lawson)](https://www.youtube.com/watch?v=VSiX0KhPLWY)
 - [Characteristics of Evil (Pastor Charles Lawson)](https://www.youtube.com/watch?v=hkxA1QMfiY4)
 - [Charles Lawson - Arm Yourselves!!! FULL SERMON](https://www.youtube.com/watch?v=SGfzGOAiOQo)
+- [Will The Real Lucifer Stand Up July 23 2017](https://www.youtube.com/watch?v=zPwYRD8VY5E)
+- [The God Of The Second Chance July 23 2017](https://www.youtube.com/watch?v=DdnkxWbf3v0)
 
 ## Informative videos about different topics
 
