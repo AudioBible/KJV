@@ -419,6 +419,7 @@ You can trust a regular person more than you can trust a corporation or a govern
 
 ## Flat Earth
 
+- [What if I believe YOU'RE deceived and FLAT EARTH is real](https://www.youtube.com/watch?v=fF2ZCNKLjOg)
 - [WORDS OF WISDOM FLAT EARTH](https://www.youtube.com/watch?v=IfdCPCsrxS4)
 - [So Why Does Flat Earth Matter ? "A▶️️MUST WATCH"](https://www.youtube.com/watch?v=CDISd94Uhps)
 - [TOP RATED 2017 FLAT EARTH DOCUMENTARY](https://www.youtube.com/watch?v=N2ZHb5WJcys)
