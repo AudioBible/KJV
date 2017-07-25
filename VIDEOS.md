@@ -280,7 +280,10 @@ You can trust a regular person more than you can trust a corporation or a govern
 - [The REAL Power Behind The New World Order (Full Documentary)](https://www.youtube.com/watch?v=v47e4du4hmw)
 - [The New World Order- Secret Societies and Biblical Prophecy](https://www.youtube.com/watch?v=HL6v8nzFiUk)
 - [And There Shall Be Signs!](https://www.youtube.com/watch?v=7Njyb78TKS0)
-
+- [ELON MUSK AND GEORDIE ROSE WARN OF ARTIFICIAL INTEL ROBOTS, BUT CONTINUE TO BUILD THEM. 2017](https://www.youtube.com/watch?v=1eHeV59__0k)
+- [RFID is Back, No one will buy and sell without it](https://www.youtube.com/watch?v=GdJ5GKTTtrw)
+- [Trump and NASA are going BACK to the moon](https://www.youtube.com/watch?v=2KRLh5xjOCk)
+- [NASAs EPIC Satelite PROVE thier LIE](https://www.youtube.com/watch?v=zK7iYR2yI50)
 
 ## Devolving/Dark Culture
 
