@@ -12,8 +12,6 @@
 
 [Silent Weapons for Quiet Wars Part 1 of 4](https://www.youtube.com/watch?v=eSjtQiZJGT0)
 
-## NO OFFENSE BUT WE ARE IN TROUBLE AND THE TRUTH MUST BE SEEN AND HEARD!
-
 [![dubai-flat-earth-ruler-comparison](images/dubai-flat-earth-ruler-comparison.png)](https://www.youtube.com/watch?v=UbYtkrTquXE&list=PL7X63Sm3kODMi6OX15TRIqXzc3usAkf2-&index=3)
 
 [IMPOSSIBALL 🌎 Flat Earth Documentary (2017)](https://www.youtube.com/watch?v=UbYtkrTquXE&list=PL7X63Sm3kODMi6OX15TRIqXzc3usAkf2-&index=3)
@@ -25,6 +23,8 @@
 [![children-are-too-young-intent-to-sell](images/children-are-too-young-intent-to-sell.png)](https://www.youtube.com/watch?v=Hh6XGGW79qM)
 
 [Children Under Attack Marketing to Kids is Pedophilia ▶️️](https://www.youtube.com/watch?v=Hh6XGGW79qM)
+
+## NO OFFENSE BUT WE ARE IN TROUBLE AND THE TRUTH MUST BE SEEN AND HEARD!
 
 ## SILENCE IS BETRAYAL! TRUTH IS HERE NOW! YOU CAN'T ESCAPE IT! LEARN IT!
 
