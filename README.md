@@ -14,9 +14,13 @@
 
 [https://www.youtube.com/watch?v=UbYtkrTquXE](https://www.youtube.com/watch?v=UbYtkrTquXE&list=PL7X63Sm3kODMi6OX15TRIqXzc3usAkf2-&index=3)
 
-### [Oversexualizing Society & Innocent Children ▶️️](https://www.youtube.com/watch?v=fjtstLZeTIs)
+[![disney-has-subliminal-messages-and-disney-is-evil](images/disney-has-subliminal-messages-and-disney-is-evil.png)](https://www.youtube.com/watch?v=fjtstLZeTIs)
 
-### [Children Under Attack Marketing to Kids is Pedophilia ▶️️](https://www.youtube.com/watch?v=Hh6XGGW79qM)
+[Oversexualizing Society & Innocent Children ▶️️](https://www.youtube.com/watch?v=fjtstLZeTIs)
+
+[![children-are-too-young-intent-to-sell](images/children-are-too-young-intent-to-sell.png)](https://www.youtube.com/watch?v=Hh6XGGW79qM)
+
+[Children Under Attack | Marketing to Kids is Pedophilia ▶️️](https://www.youtube.com/watch?v=Hh6XGGW79qM)
 
 ## SILENCE IS BETRAYAL! TRUTH IS HERE NOW! YOU CAN'T ESCAPE IT! LEARN IT!
 

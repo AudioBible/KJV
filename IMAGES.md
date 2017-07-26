@@ -155,6 +155,10 @@ IMAGES
 
 ![cell-phone-brain-damage.png](images/cell-phone-brain-damage.png)
 
+- [children-are-too-young-intent-to-sell.png](images/children-are-too-young-intent-to-sell.png)
+
+![children-are-too-young-intent-to-sell.png](images/children-are-too-young-intent-to-sell.png)
+
 - [closed-minded-open-minded.png](images/closed-minded-open-minded.png)
 
 ![closed-minded-open-minded.png](images/closed-minded-open-minded.png)
@@ -170,6 +174,10 @@ IMAGES
 - [disney-died-jews-instated.png](images/disney-died-jews-instated.png)
 
 ![disney-died-jews-instated.png](images/disney-died-jews-instated.png)
+
+- [disney-has-subliminal-messages-and-disney-is-evil.png](images/disney-has-subliminal-messages-and-disney-is-evil.png)
+
+![disney-has-subliminal-messages-and-disney-is-evil.png](images/disney-has-subliminal-messages-and-disney-is-evil.png)
 
 - [dubai-flat-earth-ruler-comparison.png](images/dubai-flat-earth-ruler-comparison.png)
 
