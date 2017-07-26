@@ -26,3 +26,4 @@ LINKS
 - [https://medium.com/insurge-intelligence/how-the-cia-made-google-e836451a959e](https://medium.com/insurge-intelligence/how-the-cia-made-google-e836451a959e)
 - [http://lhbconline.com/](http://lhbconline.com/)
 - [http://www.fefriends.com/discussions.php?category=1](http://www.fefriends.com/discussions.php?category=1)
+- [https://dizzib.github.io/earth/curve-calc/?d0=30&h0=10&unit=imperial](https://dizzib.github.io/earth/curve-calc/?d0=30&h0=10&unit=imperial)
