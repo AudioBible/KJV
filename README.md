@@ -8,6 +8,8 @@
 
 ## NO OFFENSE BUT WE ARE IN TROUBLE AND THE TRUTH MUST BE HEARD!
 
+![dubai-flat-earth-ruler-comparison](images/dubai-flat-earth-ruler-comparison.png)
+
 ## SILENCE IS BETRAYAL! TRUTH IS HERE NOW! YOU CAN'T ESCAPE IT! LEARN IT!
 
 ## DO HUMANITY A FAVOR! WAKE UP! CHECK IT OUT! BUST BACK! TIME HAS COME!
@@ -35,8 +37,6 @@
 # [Tierra Plana](https://www.youtube.com/playlist?list=PL7X63Sm3kODP0KENF_nh8zcMTDPSIXvPe) [Spanish Flat Earth playlist]
 
 # [Плоская Земля](https://www.youtube.com/watch?v=qvyytQUnL8o&list=PL7X63Sm3kODMXewMFI3c50-mBggHpIIDF) [Russian Flat Earth playlist]
-
-![dubai-flat-earth-ruler-comparison](images/dubai-flat-earth-ruler-comparison.png)
 
 # YouTube Search "[Flat Earth](https://www.youtube.com/results?search_query=flat+earth)" [English YouTube Search]
 
