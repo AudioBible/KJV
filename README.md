@@ -72,7 +72,7 @@
 
 [![they-live-kick-ass-no-bubble-gum](images/they-live-kick-ass-no-bubble-gum.png)](https://www.youtube.com/watch?v=6i_msSDvzbg)
 
-[https://www.youtube.com/watch?v=6i_msSDvzbg](https://www.youtube.com/watch?v=6i_msSDvzbg)
+[They Live | Based on a True Story ▶️️](https://www.youtube.com/watch?v=6i_msSDvzbg)
 
 ### THE EARTH IS FLAT! NASA GOVERNMENT MAINSTREAM MEDIA LIES! DON'T BE IGNORANT!
 
