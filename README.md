@@ -12,10 +12,6 @@
 
 ## DO HUMANITY A FAVOR! WAKE UP! CHECK IT OUT! BUST BACK! TIME HAS COME!
 
-![closed-minded-open-minded](images/closed-minded-open-minded.png)
-
-[![rowdy-roddy-piper-tweet-they-live-is-a-documentary](images/rowdy-roddy-piper-tweet-they-live-is-a-documentary.png)](https://twitter.com/R_Roddy_Piper/status/383693269068050432)
-
 ## IT IS EASIER TO FOOL PEOPLE, THAN TO CONVINCE THEM THEY'VE BEEN FOOLED!
 
 ## YOU HAVE TO BE ASLEEP TO HAVE THE AMERICAN DREAM!
@@ -56,6 +52,9 @@
 
 #)[שטוח כדור הארץ] https://www.youtube.com/results?search_query=%D7%A9%D7%98%D7%95%D7%97+%D7%9B%D7%93%D7%95%D7%A8+%D7%94%D7%90%D7%A8%D7%A5) [Hebrew YouTube Search]
 
+![closed-minded-open-minded](images/closed-minded-open-minded.png)
+
+[![rowdy-roddy-piper-tweet-they-live-is-a-documentary](images/rowdy-roddy-piper-tweet-they-live-is-a-documentary.png)](https://twitter.com/R_Roddy_Piper/status/383693269068050432)
 
 ### THE EARTH IS FLAT! NASA GOVERNMENT MAINSTREAM MEDIA LIES! DON'T BE IGNORANT!
 
