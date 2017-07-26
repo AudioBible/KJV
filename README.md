@@ -32,7 +32,7 @@
 
 ## YOU THINK YOUR LACK OF COMMON SENSE DON'T HAVE A CONSEQUENCE? RESIST!
 
-# [Truth Music Playlist - **MUST SEE AND HEAR**](https://www.youtube.com/watch?v=TlTR7QQZQ8I&list=PL7X63Sm3kODPV43FyewOSadSnZwZGZQHU&index=1) [playlist]
+# [Truth Music Playlist - **MUST SEE AND HEAR**](https://www.youtube.com/watch?v=TlTR7QQZQ8I&list=PL7X63Sm3kODPV43FyewOSadSnZwZGZQHU&index=1) [playlist with almost 700 videos]
 
 # [Flat Earth](https://www.youtube.com/watch?v=UbYtkrTquXE&list=PL7X63Sm3kODMi6OX15TRIqXzc3usAkf2-) [English playlist]
 
