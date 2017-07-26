@@ -190,6 +190,6 @@
 
 # I LOVE YOU ALL!
 
-Contact [audiobible.life@gmail.com](mailto:audiobible.life@gmail.com)
+CONTACT [audiobible.life@gmail.com](mailto:audiobible.life@gmail.com)
 
-Subscribe to [Audio Bible Life on YouTube](https://www.youtube.com/channel/UC18JDfFFpUdw82Fm3KAMDmA)
+SUBSCRIBE TO [Audio Bible Life on YouTube](https://www.youtube.com/channel/UC18JDfFFpUdw82Fm3KAMDmA)
