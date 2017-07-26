@@ -54,7 +54,7 @@
 
 ![closed-minded-open-minded](images/closed-minded-open-minded.png)
 
-[![rowdy-roddy-piper-tweet-they-live-is-a-documentary](images/rowdy-roddy-piper-tweet-they-live-is-a-documentary.png)](https://twitter.com/R_Roddy_Piper/status/383693269068050432)
+[![rowdy-roddy-piper-tweet-they-live-is-a-documentary](images/rowdy-roddy-piper-tweet-they-live-is-a-documentary.png)](https://www.youtube.com/watch?v=6i_msSDvzbg)
 
 ### THE EARTH IS FLAT! NASA GOVERNMENT MAINSTREAM MEDIA LIES! DON'T BE IGNORANT!
 
