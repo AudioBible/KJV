@@ -34,11 +34,11 @@
 
 # [Truth Music - **MUST SEE AND HEAR**](https://www.youtube.com/watch?v=TlTR7QQZQ8I&list=PL7X63Sm3kODPV43FyewOSadSnZwZGZQHU&index=1) [playlist with ~700 videos]
 
-# [Flat Earth](https://www.youtube.com/watch?v=UbYtkrTquXE&list=PL7X63Sm3kODMi6OX15TRIqXzc3usAkf2-) [English playlist]
+# [Flat Earth](https://www.youtube.com/watch?v=UbYtkrTquXE&list=PL7X63Sm3kODMi6OX15TRIqXzc3usAkf2-) [English Flat Earth playlist]
 
-# [Плоская Земля](https://www.youtube.com/watch?v=qvyytQUnL8o&list=PL7X63Sm3kODMXewMFI3c50-mBggHpIIDF) [Russian playlist]
+# [Tierra Plana](https://www.youtube.com/playlist?list=PL7X63Sm3kODP0KENF_nh8zcMTDPSIXvPe) [Spanish Flat Earth playlist]
 
-# [Tierra Plana](https://www.youtube.com/playlist?list=PL7X63Sm3kODP0KENF_nh8zcMTDPSIXvPe) [Spanish playlist]
+# [Плоская Земля](https://www.youtube.com/watch?v=qvyytQUnL8o&list=PL7X63Sm3kODMXewMFI3c50-mBggHpIIDF) [Russian Flat Earth playlist]
 
 ### One thing if for sure, this has taught me how to put my ego to the side.
 
@@ -74,19 +74,19 @@
 
 ![dubai-flat-earth-ruler-comparison](images/dubai-flat-earth-ruler-comparison.png)
 
-# YouTube Search "[Flat Earth](https://www.youtube.com/results?search_query=flat+earth)" [English]
+# YouTube Search "[Flat Earth](https://www.youtube.com/results?search_query=flat+earth)" [English YouTube Search]
 
-# YouTube Buscar "[tierra plana](https://www.youtube.com/results?search_query=tierra+plana)" [Spanish]
+# YouTube Buscar "[tierra plana](https://www.youtube.com/results?search_query=tierra+plana)" [Spanish YouTube Search]
 
-# Ютуб Поиск "[Плоская Земля](https://www.youtube.com/results?search_query=%D0%9F%D0%BB%D0%BE%D1%81%D0%BA%D0%B0%D1%8F+%D0%97%D0%B5%D0%BC%D0%BB%D1%8F)" [Russian]
+# Ютуб Поиск "[Плоская Земля](https://www.youtube.com/results?search_query=%D0%9F%D0%BB%D0%BE%D1%81%D0%BA%D0%B0%D1%8F+%D0%97%D0%B5%D0%BC%D0%BB%D1%8F)" [Russian YouTube Search]
 
-# YouTube Recherche "[Terre Plate](https://www.youtube.com/results?search_query=plate+terre)" [French]
+# YouTube Recherche "[Terre Plate](https://www.youtube.com/results?search_query=plate+terre)" [French YouTube Search]
 
-# YouTube 検索 "[フラット・アース](https://www.youtube.com/results?search_query=%E3%83%95%E3%83%A9%E3%83%83%E3%83%88%E3%83%BB%E3%82%A2%E3%83%BC%E3%82%B9)" [Japanese]
+# YouTube 検索 "[フラット・アース](https://www.youtube.com/results?search_query=%E3%83%95%E3%83%A9%E3%83%83%E3%83%88%E3%83%BB%E3%82%A2%E3%83%BC%E3%82%B9)" [Japanese YouTube Search]
 
-)[الأرض المسطحة] #https://www.youtube.com/results?search_query=%D8%A7%D9%84%D8%A3%D8%B1%D8%B6+%D8%A7%D9%84%D9%85%D8%B3%D8%B7%D8%AD%D8%A9) [Arabic]
+)[الأرض المسطحة] #https://www.youtube.com/results?search_query=%D8%A7%D9%84%D8%A3%D8%B1%D8%B6+%D8%A7%D9%84%D9%85%D8%B3%D8%B7%D8%AD%D8%A9) [Arabic YouTube Search]
 
-#)[שטוח כדור הארץ] https://www.youtube.com/results?search_query=%D7%A9%D7%98%D7%95%D7%97+%D7%9B%D7%93%D7%95%D7%A8+%D7%94%D7%90%D7%A8%D7%A5) [Hebrew]
+#)[שטוח כדור הארץ] https://www.youtube.com/results?search_query=%D7%A9%D7%98%D7%95%D7%97+%D7%9B%D7%93%D7%95%D7%A8+%D7%94%D7%90%D7%A8%D7%A5) [Hebrew YouTube Search]
 
 
 ### THE EARTH IS FLAT! NASA GOVERNMENT MAINSTREAM MEDIA LIES! DON'T BE IGNORANT!
