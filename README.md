@@ -74,6 +74,8 @@
 
 [They Live | Based on a True Story ▶️️](https://www.youtube.com/watch?v=6i_msSDvzbg)
 
+[YOU'VE BEEN BRAINWASHED SINCE BIRTH by Captain Obvious](https://www.youtube.com/watch?v=4uBgd8XlYwg)
+
 ### THE EARTH IS FLAT! NASA GOVERNMENT MAINSTREAM MEDIA LIES! DON'T BE IGNORANT!
 
 ![flat-earth-isaiah40-22](images/flat-earth-isaiah40-22.jpg)
