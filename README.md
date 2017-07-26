@@ -40,38 +40,6 @@
 
 # [Плоская Земля](https://www.youtube.com/watch?v=qvyytQUnL8o&list=PL7X63Sm3kODMXewMFI3c50-mBggHpIIDF) [Russian Flat Earth playlist]
 
-### One thing if for sure, this has taught me how to put my ego to the side.
-
-#### What I know is that I don't know anything, so I keep looking for the truth/answers and realize how little I actually know, but the more I keep looking for the truth the more I know that I have a chance to be saved!
-
-### Just trying to spread awareness, so to help save humanity or at least buy some time!
-
-**Note:** You can use [http://listenonrepeat.com](http://listenonrepeat.com) for any videos that you want to listen to on repeat!
-
-## [VIDEOS ON YOUTUBE](VIDEOS.md)
-
-## [MUSIC ON YOUTUBE](MUSIC.md)
-
-## [YOUTUBE CHANNELS](CHANNELS.md)
-
-## [DOCUMENTS TO READ](DOCUMENTS.md)
-
-## [MUST SEE TESTIMONY](https://www.youtube.com/watch?v=UWSCJ5vSus8&index=3&list=PLKDemYz7H5WdDQ7l1l__lDP2VAghKqEzm)
-
-## [IMAGES](IMAGES.md)
-
-## [OLD BOOKS](BOOKS.md)
-
-## [MORE INFO](INFO.md)
-
-## [LINKS ONLINE](LINKS.md)
-
-## [HOW TO INSTALL AND USE AUDIO BIBLE](USAGE.md)
-
-## [HELP WITH THE PROJECT](HELP.md)
-
-## [CHANGES](CHANGES.md)
-
 ![dubai-flat-earth-ruler-comparison](images/dubai-flat-earth-ruler-comparison.png)
 
 # YouTube Search "[Flat Earth](https://www.youtube.com/results?search_query=flat+earth)" [English YouTube Search]
@@ -132,6 +100,38 @@
 ![atheism](images/atheism.png)
 
 ![second-coming-of-jesus-christ_heaven-opened-up](images/second-coming-of-jesus-christ_heaven-opened-up.jpg)
+
+### One thing if for sure, this has taught me how to put my ego to the side.
+
+#### What I know is that I don't know anything, so I keep looking for the truth/answers and realize how little I actually know, but the more I keep looking for the truth the more I know that I have a chance to be saved!
+
+### Just trying to spread awareness, so to help save humanity or at least buy some time!
+
+**Note:** You can use [http://listenonrepeat.com](http://listenonrepeat.com) for any videos that you want to listen to on repeat!
+
+## [VIDEOS ON YOUTUBE](VIDEOS.md)
+
+## [MUSIC ON YOUTUBE](MUSIC.md)
+
+## [YOUTUBE CHANNELS](CHANNELS.md)
+
+## [DOCUMENTS TO READ](DOCUMENTS.md)
+
+## [MUST SEE TESTIMONY](https://www.youtube.com/watch?v=UWSCJ5vSus8&index=3&list=PLKDemYz7H5WdDQ7l1l__lDP2VAghKqEzm)
+
+## [IMAGES](IMAGES.md)
+
+## [OLD BOOKS](BOOKS.md)
+
+## [MORE INFO](INFO.md)
+
+## [LINKS ONLINE](LINKS.md)
+
+## [HOW TO INSTALL AND USE AUDIO BIBLE](USAGE.md)
+
+## [HELP WITH THE PROJECT](HELP.md)
+
+## [CHANGES](CHANGES.md)
 
 
     JN 8:44 Ye are of your father the devil, and the lusts of your father ye will do. He was a murderer from the beginning, and abode not in the truth, because there is no truth in him. When he speaketh a lie, he speaketh of his own: for he is a liar, and the father of it.
