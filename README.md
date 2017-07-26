@@ -4,9 +4,9 @@
 
 [VIDEOS](VIDEOS.md) | [MUSIC](MUSIC.md) | [CHANNELS](CHANNELS.md) | [DOCUMENTS](DOCUMENTS.md) | [IMAGES](IMAGES.md) | [BOOKS](BOOKS.md) | [LINKS](LINKS.md) | [INFO](INFO.md) | **Join The Revolution**
 
-[![thomas-jefferson-educate-and-inform-the-masses-quote](images/thomas-jefferson-educate-and-inform-the-masses-quote.png)](https://www.youtube.com/watch?v=72Lrz0khXP0&list=PL7X63Sm3kODMi6OX15TRIqXzc3usAkf2-&index=8)
+[![thomas-jefferson-educate-and-inform-the-masses-quote](images/thomas-jefferson-educate-and-inform-the-masses-quote.png)](https://www.youtube.com/watch?v=eSjtQiZJGT0)
 
-[https://www.youtube.com/watch?v=72Lrz0khXP0](https://www.youtube.com/watch?v=72Lrz0khXP0&list=PL7X63Sm3kODMi6OX15TRIqXzc3usAkf2-&index=8)
+[https://www.youtube.com/watch?v=eSjtQiZJGT0](https://www.youtube.com/watch?v=eSjtQiZJGT0)
 
 ## NO OFFENSE BUT WE ARE IN TROUBLE AND THE TRUTH MUST BE SEEN AND HEARD!
 
