@@ -20,7 +20,7 @@
 
 [![children-are-too-young-intent-to-sell](images/children-are-too-young-intent-to-sell.png)](https://www.youtube.com/watch?v=Hh6XGGW79qM)
 
-[Children Under Attack | Marketing to Kids is Pedophilia ▶️️](https://www.youtube.com/watch?v=Hh6XGGW79qM)
+[Children Under Attack Marketing to Kids is Pedophilia ▶️️](https://www.youtube.com/watch?v=Hh6XGGW79qM)
 
 ## SILENCE IS BETRAYAL! TRUTH IS HERE NOW! YOU CAN'T ESCAPE IT! LEARN IT!
 
