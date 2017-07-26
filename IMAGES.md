@@ -199,6 +199,10 @@ IMAGES
 
 ![earth-curve-calcuation.jpg](images/earth-curve-calcuation.jpg)
 
+- [fake-news-lies-and-deception.png](images/fake-news-lies-and-deception.png)
+
+![fake-news-lies-and-deception.png](images/fake-news-lies-and-deception.png)
+
 - [false-witness-rudolf-hoss.png](images/false-witness-rudolf-hoss.png)
 
 ![false-witness-rudolf-hoss.png](images/false-witness-rudolf-hoss.png)
