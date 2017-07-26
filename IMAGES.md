@@ -123,6 +123,10 @@ IMAGES
 
 ![NASA_Serpent.jpg](images/NASA_Serpent.jpg)
 
+- [NWO-lucifer.png](images/NWO-lucifer.png)
+
+![NWO-lucifer.png](images/NWO-lucifer.png)
+
 - [OxsM1flZCVw.jpg](images/OxsM1flZCVw.jpg)
 
 ![OxsM1flZCVw.jpg](images/OxsM1flZCVw.jpg)
@@ -162,6 +166,10 @@ IMAGES
 - [closed-minded-open-minded.png](images/closed-minded-open-minded.png)
 
 ![closed-minded-open-minded.png](images/closed-minded-open-minded.png)
+
+- [cnn-nbc-abc-fox-nasa-fake-news.png](images/cnn-nbc-abc-fox-nasa-fake-news.png)
+
+![cnn-nbc-abc-fox-nasa-fake-news.png](images/cnn-nbc-abc-fox-nasa-fake-news.png)
 
 - [david-icke-fake.png](images/david-icke-fake.png)
 
@@ -338,6 +346,10 @@ IMAGES
 - [king-jesus-1.jpg](images/king-jesus-1.jpg)
 
 ![king-jesus-1.jpg](images/king-jesus-1.jpg)
+
+- [knowledge-ignorance-pyramid.png](images/knowledge-ignorance-pyramid.png)
+
+![knowledge-ignorance-pyramid.png](images/knowledge-ignorance-pyramid.png)
 
 - [last-indian-massacre.png](images/last-indian-massacre.png)
 
