@@ -10,7 +10,9 @@
 
 ## NO OFFENSE BUT WE ARE IN TROUBLE AND THE TRUTH MUST BE SEEN AND HEARD!
 
-![dubai-flat-earth-ruler-comparison](images/dubai-flat-earth-ruler-comparison.png)
+[![dubai-flat-earth-ruler-comparison](images/dubai-flat-earth-ruler-comparison.png)](https://www.youtube.com/watch?v=UbYtkrTquXE&list=PL7X63Sm3kODMi6OX15TRIqXzc3usAkf2-&index=3)
+
+[https://www.youtube.com/watch?v=UbYtkrTquXE](https://www.youtube.com/watch?v=UbYtkrTquXE&list=PL7X63Sm3kODMi6OX15TRIqXzc3usAkf2-&index=3)
 
 ## SILENCE IS BETRAYAL! TRUTH IS HERE NOW! YOU CAN'T ESCAPE IT! LEARN IT!
 
