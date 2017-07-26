@@ -195,7 +195,9 @@
 
 ![youtube-search-flat-earth-flier](images/youtube-search-flat-earth-flier.png)
 
-# [DISNEY IS EVIL!](https://www.youtube.com/watch?v=fjtstLZeTIs)
+## [DISNEY IS EVIL!](https://www.youtube.com/watch?v=fjtstLZeTIs)
+
+### [Children Under Attack Marketing to Kids is Pedophilia ▶️️](https://www.youtube.com/watch?v=Hh6XGGW79qM)
 
 # I LOVE YOU ALL!
 
