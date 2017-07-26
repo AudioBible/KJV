@@ -14,6 +14,10 @@
 
 [https://www.youtube.com/watch?v=UbYtkrTquXE](https://www.youtube.com/watch?v=UbYtkrTquXE&list=PL7X63Sm3kODMi6OX15TRIqXzc3usAkf2-&index=3)
 
+### [Oversexualizing Society & Innocent Children ▶️️](https://www.youtube.com/watch?v=fjtstLZeTIs)
+
+### [Children Under Attack Marketing to Kids is Pedophilia ▶️️](https://www.youtube.com/watch?v=Hh6XGGW79qM)
+
 ## SILENCE IS BETRAYAL! TRUTH IS HERE NOW! YOU CAN'T ESCAPE IT! LEARN IT!
 
 ## DO HUMANITY A FAVOR! WAKE UP! CHECK IT OUT! BUST BACK! TIME HAS COME!
@@ -194,10 +198,6 @@
 #### Thank you for taking the time to check this project out. Please share with others! We can take our world back!
 
 ![youtube-search-flat-earth-flier](images/youtube-search-flat-earth-flier.png)
-
-### [Oversexualizing Society & Innocent Children ▶️️](https://www.youtube.com/watch?v=fjtstLZeTIs)
-
-### [Children Under Attack Marketing to Kids is Pedophilia ▶️️](https://www.youtube.com/watch?v=Hh6XGGW79qM)
 
 # I LOVE YOU ALL!
 
