@@ -8,6 +8,8 @@
 
 [Silent Weapons for Quiet Wars Part 1 of 4](https://www.youtube.com/watch?v=eSjtQiZJGT0)
 
+[YOU'VE BEEN BRAINWASHED SINCE BIRTH by Captain Obvious](https://www.youtube.com/watch?v=4uBgd8XlYwg)
+
 ## NO OFFENSE BUT WE ARE IN TROUBLE AND THE TRUTH MUST BE SEEN AND HEARD!
 
 [![dubai-flat-earth-ruler-comparison](images/dubai-flat-earth-ruler-comparison.png)](https://www.youtube.com/watch?v=UbYtkrTquXE&list=PL7X63Sm3kODMi6OX15TRIqXzc3usAkf2-&index=3)
@@ -73,8 +75,6 @@
 [![they-live-kick-ass-no-bubble-gum](images/they-live-kick-ass-no-bubble-gum.png)](https://www.youtube.com/watch?v=6i_msSDvzbg)
 
 [They Live Based on a True Story ▶️️](https://www.youtube.com/watch?v=6i_msSDvzbg)
-
-[YOU'VE BEEN BRAINWASHED SINCE BIRTH by Captain Obvious](https://www.youtube.com/watch?v=4uBgd8XlYwg)
 
 ### THE EARTH IS FLAT! NASA GOVERNMENT MAINSTREAM MEDIA LIES! DON'T BE IGNORANT!
 
