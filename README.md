@@ -60,10 +60,6 @@
 
 **ISAIAH 40:22:** It is he that sitteth upon the circle of the earth, and the inhabitants thereof are as grasshoppers; that stretcheth out the heavens as a curtain, and spreadeth them out as a tent to dwell in:
 
-**ISAIAH 40:23:** That bringeth the princes to nothing; he maketh the judges of the earth as vanity.
-
-**ISAIAH 40:24:** Yea, they shall not be planted; yea, they shall not be sown: yea, their stock shall not take root in the earth: and he shall also blow upon them, and they shall wither, and the whirlwind shall take them away as stubble.
-
 #### God is so kind that it is impossible to imagine His unbounded kindness
 
 ## [Praise GOD Everyday!](https://www.youtube.com/watch?v=i2U3Ld-ZYpM)
