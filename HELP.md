@@ -31,7 +31,7 @@ I got kicked out of a church yesterday, First time in my life! I told them I was
 
 **Note:** When you see a person, ask them. "Do you watch videos on youtube?", doesn't matter what they say to the question, just say to them "Check it out! search on youtube, you will find some info about how they been lying to us all these years" and give them the flier. If they ask questions, just tell them that you don't want to pull things out of thin air, that you don't have pictures to show them, but if they go to youtube, and do a search for Flat Earth they will see pictures and videos of people talking about it. Pray for the people who accept this flier to understand the word of God better! Tell them to just watch the videos, so they know the truth and about how the government been lying to us all these years!
 
-![youtube-search-flat-earth-letter](images/youtube-search-flat-earth-letter.jpg)
+![youtube-search-flat-earth-flier](images/youtube-search-flat-earth-flier.png)
 
 ### 3. Leave this comment all over the internet, on youtube, twitter, facebook, etc; on all posts and/or videos you can get your hands on, trending, new, old, on all content. make sure the link can lead people back here to watch the videos and share this with others. 
 
