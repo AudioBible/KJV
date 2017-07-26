@@ -193,6 +193,34 @@
     JN 14:6 Jesus saith unto him, I am the way, the truth, and the life: no man cometh unto the Father, but by me.
 
 
+# audiobible find "up into the holy city" -A5
+    
+    
+    MATTHEW 4:5 Then the devil taketh him up into the holy city, and setteth him on a pinnacle of the temple,
+    
+    MATTHEW 4:6 And saith unto him, If thou be the Son of God, cast thyself down: for it is written, He shall give his angels charge concerning thee: and in their hands they shall bear thee up, lest at any time thou dash thy foot against a stone.
+    
+    MATTHEW 4:7 Jesus said unto him, It is written again, Thou shalt not tempt the Lord thy God.
+    
+    MATTHEW 4:8 Again, the devil taketh him up into an exceeding high mountain, and sheweth him all the kingdoms of the world, and the glory of them;
+    
+    MATTHEW 4:9 And saith unto him, All these things will I give thee, if thou wilt fall down and worship me.
+    
+    MATTHEW 4:10 Then saith Jesus unto him, Get thee hence, Satan: for it is written, Thou shalt worship the Lord thy God, and him only shalt thou serve.
+
+
+# audiobible find "taking him up into an high mountain" -A3
+
+
+    LUKE 4:5 And the devil, taking him up into an high mountain, shewed unto him all the kingdoms of the world in a moment of time.
+    
+    LUKE 4:6 And the devil said unto him, All this power will I give thee, and the glory of them: for that is delivered unto me; and to whomsoever I will I give it.
+    
+    LUKE 4:7 If thou therefore wilt worship me, all shall be thine.
+    
+    LUKE 4:8 And Jesus answered and said unto him, Get thee behind me, Satan: for it is written, Thou shalt worship the Lord thy God, and him only shalt thou serve.
+
+
 ### Praised be Jesus Christ, Lord of Lords, King of Kings' name! Praise Jesus for the Flat Earth Truth! Amen.
 
 **Note:** This project is not associated with AudioBible.com, please purchase a KJV Bible from [audiobible.com](http://audiobible.com/kjv-audio-bible-king-james/) if you like this.
