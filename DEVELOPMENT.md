@@ -7,6 +7,8 @@
 Development
 ===========
 
+### [https://github.com/AudioBible/AudioBible](https://github.com/AudioBible/AudioBible)
+
 ## make some changes and create a pull request
 
 #### download the project using git
