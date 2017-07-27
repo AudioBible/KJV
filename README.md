@@ -268,3 +268,5 @@ VIEW [CODE ON GITHUB](https://github.com/AudioBible/AudioBible)
     - add more videos and songs to the collection
     - organize videos into categories and/or playlists
     - create a billboard or a few all over the world!
+    - create bots for different sites to post comments
+    
