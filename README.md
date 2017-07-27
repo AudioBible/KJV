@@ -264,7 +264,7 @@ VIEW [CODE ON GITHUB](https://github.com/AudioBible/AudioBible)
 ### TODO
 
     - translate these page into other languages
-    - fix some bugs in the program
+    - fix some bugs in the program and re-write it eventually to be better
     - add more videos and songs to the collection
     - organize videos into categories and/or playlists
     - create a billboard or a few all over the world!
