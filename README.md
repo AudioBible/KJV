@@ -6,8 +6,6 @@
 
 [![fake-news-lies-and-deception](images/fake-news-lies-and-deception.png)](https://www.youtube.com/watch?v=4uBgd8XlYwg)
 
-[Warning:🚸Schools After Your Children's Identity](https://www.youtube.com/watch?v=NTc1D_K0XeY)
-
 [YOU'VE BEEN BRAINWASHED SINCE BIRTH by Captain Obvious](https://www.youtube.com/watch?v=4uBgd8XlYwg)
 
 [![thomas-jefferson-educate-and-inform-the-masses-quote](images/thomas-jefferson-educate-and-inform-the-masses-quote.png)](https://www.youtube.com/watch?v=eSjtQiZJGT0)
@@ -25,6 +23,10 @@
 [![children-are-too-young-intent-to-sell](images/children-are-too-young-intent-to-sell.png)](https://www.youtube.com/watch?v=Hh6XGGW79qM)
 
 [Children Under Attack Marketing to Kids is Pedophilia ▶️️](https://www.youtube.com/watch?v=Hh6XGGW79qM)
+
+[![canada-gender-neutral](images/canada-gender-neutral.png)](https://www.youtube.com/watch?v=NTc1D_K0XeY)
+
+[Warning:🚸Schools After Your Children's Identity](https://www.youtube.com/watch?v=NTc1D_K0XeY)
 
 ## NO OFFENSE BUT WE ARE IN TROUBLE AND THE TRUTH MUST BE SEEN AND HEARD!
 

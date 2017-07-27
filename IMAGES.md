@@ -1243,6 +1243,10 @@ IMAGES
 
 ![c56a239f3de743f2b577f6a50c8734e7.jpg](images/c56a239f3de743f2b577f6a50c8734e7.jpg)
 
+- [canada-gender-neutral.png](images/canada-gender-neutral.png)
+
+![canada-gender-neutral.png](images/canada-gender-neutral.png)
+
 - [cell-phone-brain-damage.png](images/cell-phone-brain-damage.png)
 
 ![cell-phone-brain-damage.png](images/cell-phone-brain-damage.png)
