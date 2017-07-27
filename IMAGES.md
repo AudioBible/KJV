@@ -1551,6 +1551,10 @@ IMAGES
 
 ![the-firmament.jpeg](images/the-firmament.jpeg)
 
+- [the-three-heavens-of-the-bible.png](images/the-three-heavens-of-the-bible.png)
+
+![the-three-heavens-of-the-bible.png](images/the-three-heavens-of-the-bible.png)
+
 - [they-live-facts.png](images/they-live-facts.png)
 
 ![they-live-facts.png](images/they-live-facts.png)
