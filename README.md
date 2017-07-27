@@ -30,7 +30,7 @@
 
 [Warning:🚸Schools After Your Children's Identity](https://www.youtube.com/watch?v=NTc1D_K0XeY)
 
-[![NASA_Serpent](images/NASA_Serpent.jpg)](https://www.youtube.com/watch?v=tNDz75-9bps)
+[![aims-of-the-frankfurt-school](images/aims-of-the-frankfurt-school.png)](https://www.youtube.com/watch?v=tNDz75-9bps)
 
 [The Devil's Playbook (How He Deceives You)! Part 1](https://www.youtube.com/watch?v=tNDz75-9bps)
 
@@ -127,6 +127,8 @@
 ![space-junk](images/space-junk.png)
 
 ![atheism](images/atheism.png)
+
+![NASA_Serpent](images/NASA_Serpent.jpg)
 
 ![second-coming-of-jesus-christ_heaven-opened-up](images/second-coming-of-jesus-christ_heaven-opened-up.jpg)
 

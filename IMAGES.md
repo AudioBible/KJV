@@ -1227,6 +1227,10 @@ IMAGES
 
 ![SunAnimation.gif](images/SunAnimation.gif)
 
+- [aims-of-the-frankfurt-school.png](images/aims-of-the-frankfurt-school.png)
+
+![aims-of-the-frankfurt-school.png](images/aims-of-the-frankfurt-school.png)
+
 - [alex-jones-fake.png](images/alex-jones-fake.png)
 
 ![alex-jones-fake.png](images/alex-jones-fake.png)
