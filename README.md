@@ -64,6 +64,8 @@
 
 ### THE EARTH IS FLAT! NASA GOVERNMENT MAINSTREAM MEDIA LIES! DON'T BE IGNORANT! WAKE UP!
 
+### WATCH OUT FOR CIA OPERATIVES ZOMBIES CLOWNS AND THOSE WHO GET PAID TO HIDE THE TRUTH!
+
 [![ODD-TV-Living-In-Hell-Playlist](images/ODD-TV-Living-In-Hell-Playlist.png)](https://www.youtube.com/watch?v=TlTR7QQZQ8I&list=PL7X63Sm3kODPV43FyewOSadSnZwZGZQHU&index=1)
 
 # [Truth Music - **MUST SEE AND HEAR**](https://www.youtube.com/watch?v=TlTR7QQZQ8I&list=PL7X63Sm3kODPV43FyewOSadSnZwZGZQHU&index=1) [playlist with ~700 songs]
