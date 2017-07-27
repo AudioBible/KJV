@@ -257,4 +257,14 @@
 
 CONTACT [audiobible.life@gmail.com](mailto:audiobible.life@gmail.com)
 
-SUBSCRIBE TO [Audio Bible Life on YouTube](https://www.youtube.com/channel/UC18JDfFFpUdw82Fm3KAMDmA)
+SUBSCRIBE TO [AUDIO BIBLE LIFE ON YOUTUBE](https://www.youtube.com/channel/UC18JDfFFpUdw82Fm3KAMDmA)
+
+VIEW [CODE ON GITHUB](https://github.com/AudioBible/AudioBible)
+
+### TODO
+
+    - translate these page into other languages
+    - fix some bugs in the program
+    - add more videos and songs
+    - organize videos into categories and/or playlists
+    - create a billboard or a few all over the world!
