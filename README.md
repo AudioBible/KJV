@@ -86,9 +86,9 @@
 
 [https://twitter.com/R_Roddy_Piper/status/383693269068050432](https://twitter.com/R_Roddy_Piper/status/383693269068050432)
 
-[![they-live-kick-ass-no-bubble-gum](images/they-live-kick-ass-no-bubble-gum.png)](https://www.youtube.com/watch?v=6i_msSDvzbg)
+[![they-live-kick-ass-no-bubble-gum](images/they-live-kick-ass-no-bubble-gum.png)](https://www.youtube.com/watch?v=_urOCJ78Sg4&list=PLm6Vq0bTTCDjvTd6TkzCNNajMpcydFHkU)
 
-[They Live Based on a True Story ▶️️](https://www.youtube.com/watch?v=6i_msSDvzbg)
+[Symbolic Cinema Playlist by ODD Reality](https://www.youtube.com/watch?v=_urOCJ78Sg4&list=PLm6Vq0bTTCDjvTd6TkzCNNajMpcydFHkU)
 
 [![flat-earth-isaiah40-22](images/flat-earth-isaiah40-22.jpg)](https://www.youtube.com/watch?v=0jdBiz_vwe0)
 
