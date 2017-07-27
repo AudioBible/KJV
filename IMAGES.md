@@ -1551,10 +1551,6 @@ IMAGES
 
 ![the-firmament.jpeg](images/the-firmament.jpeg)
 
-- [the-three-heavens-of-the-bible.png](images/the-three-heavens-of-the-bible.png)
-
-![the-three-heavens-of-the-bible.png](images/the-three-heavens-of-the-bible.png)
-
 - [they-live-facts.png](images/they-live-facts.png)
 
 ![they-live-facts.png](images/they-live-facts.png)
@@ -1578,6 +1574,10 @@ IMAGES
 - [thomas-jefferson-educate-and-inform-the-masses-quote.png](images/thomas-jefferson-educate-and-inform-the-masses-quote.png)
 
 ![thomas-jefferson-educate-and-inform-the-masses-quote.png](images/thomas-jefferson-educate-and-inform-the-masses-quote.png)
+
+- [three_heavens_religious_tradition.jpg](images/three_heavens_religious_tradition.jpg)
+
+![three_heavens_religious_tradition.jpg](images/three_heavens_religious_tradition.jpg)
 
 - [united-states-antarctic-program.png](images/united-states-antarctic-program.png)
 
