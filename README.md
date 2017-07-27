@@ -237,7 +237,7 @@
 - [Russian Audio Bible Download for MP3 or iPod devices](http://www.audiobible.com/download-russian-audio-bible-mp3-and-ipod/)
 - [Mandarin Chinese Audio Bible Download for MP3, iPhone or iPod](http://www.audiobible.com/mandarin-chinese-audio-bible-download-mp3-ipod-devices/)
 
-### They got us trusting them and not each other, this war on the people is no joke bothers and sisters!
+### They got us trusting them and not each other, this war on the people is no joke brothers and sisters!
 
 #### Thank you for taking the time to check this project out. Please share with others! We can take our world back!
 
