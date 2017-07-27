@@ -43,7 +43,7 @@ There was a good reason why you hated school! The Earth is Flat! YouTube search 
 
 Our life is like that of a fetus inside the womb, the womb determines the sex male/female, features and the person is born into life, same with life, determines heaven or hell﻿ in the afterlife based not only on how good of a person you are, but if you keep Gods Law and worship Jesus Christ as your one and only Savior. Jesus determines if you can go to heaven! If you don't know him now, how will you expect to know him then? Please get to know him! Let the word of God and the Holy Spirit and the collection of information on AudioBible github project help you along the way!
 
-http://audiobible.life плоская земля! Tierra Plana! Flat Earth! Do the research! Don't be a clown!
+http://audiobible.life плоская земля! Tierra Plana! Terre Plate! Flat Earth! Do the research! Don't be a clown!
 
 https://www.youtube.com/watch?v=CqrN8iOMg5k&list=PL7X63Sm3kODPV43FyewOSadSnZwZGZQHU&index=2
 
