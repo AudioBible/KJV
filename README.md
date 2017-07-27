@@ -94,7 +94,9 @@
 
 ## [Praise GOD Everyday!](https://www.youtube.com/watch?v=i2U3Ld-ZYpM)
 
-![the-firmament](images/the-firmament.jpeg)
+[![the-firmament](images/the-firmament.jpeg)](https://www.youtube.com/watch?v=0F7zNIJWAoM)
+
+[How many firmaments are there? And how can birds fly in the firmament??](https://www.youtube.com/watch?v=0F7zNIJWAoM)
 
 ![firmament](images/firmament.jpg)
 
