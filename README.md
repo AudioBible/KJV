@@ -30,6 +30,10 @@
 
 [Warning:🚸Schools After Your Children's Identity](https://www.youtube.com/watch?v=NTc1D_K0XeY)
 
+[![NASA_Serpent](images/NASA_Serpent.jpg)](https://www.youtube.com/watch?v=tNDz75-9bps)
+
+[The Devil's Playbook (How He Deceives You)! Part 1](https://www.youtube.com/watch?v=tNDz75-9bps)
+
 ## NO OFFENSE BUT WE ARE IN TROUBLE AND THE TRUTH MUST BE SEEN AND HEARD!
 
 ## SILENCE IS BETRAYAL! TRUTH IS HERE NOW! YOU CAN'T ESCAPE IT! LEARN IT!
@@ -117,8 +121,6 @@
 ![mqdefault](images/mqdefault.jpg)
 
 ![jtot_genesis_cosmology](images/jtot_genesis_cosmology.jpg)
-
-![NASA_Serpent](images/NASA_Serpent.jpg)
 
 ![HkAHHM3c](images/HkAHHM3c.png)
 
