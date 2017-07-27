@@ -14,6 +14,10 @@
 
 [Silent Weapons for Quiet Wars Part 1 of 4](https://www.youtube.com/watch?v=eSjtQiZJGT0)
 
+[![indoctrination-camps-are-schools](images/indoctrination-camps-are-schools.png)](https://www.youtube.com/watch?v=72Lrz0khXP0)
+
+[Forced Government Indoctrination Camps](https://www.youtube.com/watch?v=72Lrz0khXP0)
+
 [![dubai-flat-earth-ruler-comparison](images/dubai-flat-earth-ruler-comparison.png)](https://www.youtube.com/watch?v=UbYtkrTquXE&list=PL7X63Sm3kODMi6OX15TRIqXzc3usAkf2-&index=3)
 
 [IMPOSSIBALL 🌎 Flat Earth Documentary (2017)](https://www.youtube.com/watch?v=UbYtkrTquXE&list=PL7X63Sm3kODMi6OX15TRIqXzc3usAkf2-&index=3)

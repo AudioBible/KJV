@@ -1415,6 +1415,10 @@ IMAGES
 
 ![img_0478.jpg](images/img_0478.jpg)
 
+- [indoctrination-camps-are-schools.png](images/indoctrination-camps-are-schools.png)
+
+![indoctrination-camps-are-schools.png](images/indoctrination-camps-are-schools.png)
+
 - [jesse-owens-story.png](images/jesse-owens-story.png)
 
 ![jesse-owens-story.png](images/jesse-owens-story.png)
