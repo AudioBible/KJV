@@ -90,6 +90,8 @@
 
 #### God is so kind that it is impossible to imagine His unbounded kindness
 
+[The Genesis Revelation - How the Bible absolutely describes an enclosed world cosmology](https://www.youtube.com/watch?v=0jdBiz_vwe0)
+
 ## [Praise GOD Everyday!](https://www.youtube.com/watch?v=i2U3Ld-ZYpM)
 
 ![the-firmament](images/the-firmament.jpeg)
