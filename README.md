@@ -50,6 +50,8 @@
 
 ## YOU THINK YOUR LACK OF COMMON SENSE DON'T HAVE A CONSEQUENCE? RESIST!
 
+### THE EARTH IS FLAT! NASA GOVERNMENT MAINSTREAM MEDIA LIES! DON'T BE IGNORANT!
+
 # [Truth Music - **MUST SEE AND HEAR**](https://www.youtube.com/watch?v=TlTR7QQZQ8I&list=PL7X63Sm3kODPV43FyewOSadSnZwZGZQHU&index=1) [playlist with ~700 videos]
 
 # [Flat Earth](https://www.youtube.com/watch?v=UbYtkrTquXE&list=PL7X63Sm3kODMi6OX15TRIqXzc3usAkf2-) [English Flat Earth playlist]
@@ -81,8 +83,6 @@
 [![they-live-kick-ass-no-bubble-gum](images/they-live-kick-ass-no-bubble-gum.png)](https://www.youtube.com/watch?v=6i_msSDvzbg)
 
 [They Live Based on a True Story ▶️️](https://www.youtube.com/watch?v=6i_msSDvzbg)
-
-### THE EARTH IS FLAT! NASA GOVERNMENT MAINSTREAM MEDIA LIES! DON'T BE IGNORANT!
 
 [![flat-earth-isaiah40-22](images/flat-earth-isaiah40-22.jpg)](https://www.youtube.com/watch?v=0jdBiz_vwe0)
 
