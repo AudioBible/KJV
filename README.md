@@ -84,13 +84,13 @@
 
 ### THE EARTH IS FLAT! NASA GOVERNMENT MAINSTREAM MEDIA LIES! DON'T BE IGNORANT!
 
-![flat-earth-isaiah40-22](images/flat-earth-isaiah40-22.jpg)
+[![flat-earth-isaiah40-22](images/flat-earth-isaiah40-22.jpg)](https://www.youtube.com/watch?v=0jdBiz_vwe0)
+
+[The Genesis Revelation - How the Bible absolutely describes an enclosed world cosmology](https://www.youtube.com/watch?v=0jdBiz_vwe0)
 
 **ISAIAH 40:22:** It is he that sitteth upon the circle of the earth, and the inhabitants thereof are as grasshoppers; that stretcheth out the heavens as a curtain, and spreadeth them out as a tent to dwell in:
 
 #### God is so kind that it is impossible to imagine His unbounded kindness
-
-[The Genesis Revelation - How the Bible absolutely describes an enclosed world cosmology](https://www.youtube.com/watch?v=0jdBiz_vwe0)
 
 ## [Praise GOD Everyday!](https://www.youtube.com/watch?v=i2U3Ld-ZYpM)
 
