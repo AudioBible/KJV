@@ -528,6 +528,7 @@ You can trust a regular person more than you can trust a corporation or a govern
 - [Flat Earth Facts - Top 5 Reasons I No Longer Believe in the Globe](https://www.youtube.com/watch?v=YJ4qZoUJ3C0)
 - [Blocking the Sun with NASA](https://www.youtube.com/watch?v=0ZLkYzRwuJM)
 - [Blueprints are now available to build your own Quantum Computer](https://www.youtube.com/watch?v=cnMeeBZNZjE)
+- [40 Bible verses that prove the Earth is FLAT!](https://www.youtube.com/watch?v=tuqqPS5z3uw)
 
 ## 
 
