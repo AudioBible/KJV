@@ -66,6 +66,10 @@
 
 ### WATCH OUT FOR CIA OPERATIVES ZOMBIES CLOWNS AND THOSE WHO GET PAID TO HIDE THE TRUTH!
 
+### PLEASE SHARE! TELL EVERYONE! SCIENCE IS A FALSE RELIGION CALLED SCIENTISM!
+
+### THE BEST THING YOU CAN DO WITH YOUR TIME IS SHARE THE INFO AND MAKE PEOPLE AWARE!
+
 [![ODD-TV-Living-In-Hell-Playlist](images/ODD-TV-Living-In-Hell-Playlist.png)](https://www.youtube.com/watch?v=TlTR7QQZQ8I&list=PL7X63Sm3kODPV43FyewOSadSnZwZGZQHU&index=1)
 
 # [Truth Music - **MUST SEE AND HEAR**](https://www.youtube.com/watch?v=TlTR7QQZQ8I&list=PL7X63Sm3kODPV43FyewOSadSnZwZGZQHU&index=1) [playlist with ~700 songs]
@@ -259,7 +263,7 @@
 
 ![youtube-search-flat-earth-flier](images/youtube-search-flat-earth-flier.png)
 
-# I LOVE YOU ALL!
+NASA never went to the moon because it's not possible to land on the moon. The moon is a transparent light, your eyes will even show you the clouds through the moon at times. The sun light is hot and sun shade is cooler, while the moon light is cold and moon shade is warmer. Which means that the sun doesn't light up the moon they are both their own lights in the sky and also they are both not far away like science tells us. 
 
 CONTACT [audiobible.life@gmail.com](mailto:audiobible.life@gmail.com)
 
@@ -279,3 +283,5 @@ VIEW [CODE ON GITHUB](https://github.com/AudioBible/AudioBible)
     - find truth seekers to join the project operation
     
 http://audiobible.life плоская земля! Плоска Земя! Płaskie Ziemie! Yassı Toprak! 평지! 平地球! フラットアース! زمین تخت !شقة الأرض! terra flat! Flache Erde! Platte Aarde! Pământ plat! Tierra Plana! Terre Plate! Flat Earth! Do the research! Don't be a clown!
+
+# I LOVE YOU ALL!
