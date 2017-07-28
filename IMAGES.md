@@ -1231,6 +1231,14 @@ IMAGES
 
 ![SunAnimation.gif](images/SunAnimation.gif)
 
+- [Uk1rtqeeGpQ.jpg](images/Uk1rtqeeGpQ.jpg)
+
+![Uk1rtqeeGpQ.jpg](images/Uk1rtqeeGpQ.jpg)
+
+- [Y_7s3E5eul0.jpg](images/Y_7s3E5eul0.jpg)
+
+![Y_7s3E5eul0.jpg](images/Y_7s3E5eul0.jpg)
+
 - [aims-of-the-frankfurt-school.png](images/aims-of-the-frankfurt-school.png)
 
 ![aims-of-the-frankfurt-school.png](images/aims-of-the-frankfurt-school.png)
@@ -1462,6 +1470,10 @@ IMAGES
 - [last-indian-massacre.png](images/last-indian-massacre.png)
 
 ![last-indian-massacre.png](images/last-indian-massacre.png)
+
+- [mS8vY3Mdmhk.jpg](images/mS8vY3Mdmhk.jpg)
+
+![mS8vY3Mdmhk.jpg](images/mS8vY3Mdmhk.jpg)
 
 - [manufactured-terrorism.png](images/manufactured-terrorism.png)
 
