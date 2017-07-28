@@ -284,6 +284,4 @@ VIEW [CODE ON GITHUB](https://github.com/AudioBible/AudioBible)
     
 http://audiobible.life плоская земля! Плоска Земя! Płaskie Ziemie! Yassı Toprak! 평지! 平地球! フラットアース! زمین تخت !شقة الأرض! terra flat! Flache Erde! Platte Aarde! Pământ plat! Tierra Plana! Terre Plate! Flat Earth! Do the research! Don't be a clown!
 
-# I LOVE YOU ALL!
-
-🌏🔫﻿
+# I LOVE YOU ALL! 🌏🔫﻿
