@@ -9,6 +9,8 @@
 > Pride aside. The earth is flat and that's not even the important bit..the reasons they're lying will lead you to the origins of earth, who and what we are, where we live and what we are doing here, free energy, frequencies and magnesium. good luck.﻿
 - JJN
 
+![12790840_469275703272169_3170264075263137737_n](images/12790840_469275703272169_3170264075263137737_n.jpg)
+
 [![fake-news-lies-and-deception](images/fake-news-lies-and-deception.png)](https://www.youtube.com/watch?v=4uBgd8XlYwg)
 
 [YOU'VE BEEN BRAINWASHED SINCE BIRTH by Captain Obvious](https://www.youtube.com/watch?v=4uBgd8XlYwg)
@@ -44,8 +46,6 @@
 [![all-truth-passes-thru-three-stages](images/all-truth-passes-thru-three-stages.png)](https://www.youtube.com/watch?v=tuqqPS5z3uw)
 
 [40 Bible verses that prove the Earth is FLAT!](https://www.youtube.com/watch?v=tuqqPS5z3uw)
-
-![12790840_469275703272169_3170264075263137737_n](images/12790840_469275703272169_3170264075263137737_n.jpg)
 
 ## NO OFFENSE BUT WE ARE IN TROUBLE AND THE TRUTH MUST BE SEEN AND HEARD!
 
