@@ -271,6 +271,8 @@ SUBSCRIBE TO [AUDIO BIBLE LIFE ON YOUTUBE](https://www.youtube.com/channel/UC18J
 
 VIEW [CODE ON GITHUB](https://github.com/AudioBible/AudioBible)
 
+> Pride aside. The earth is flat and that's not even the important bit..the reasons they're lying will lead you to the origins of earth, who and what we are, where we live and what we are doing here, free energy, frequencies and magnesium. good luck.﻿
+
 ### TODO
 
     - translate these page into other languages
