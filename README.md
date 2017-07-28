@@ -6,6 +6,9 @@
 
 **Note**: Some images are links to a youtube video, obviously the blue text is a link to a video or playlist or a page on the site.
 
+> Pride aside. The earth is flat and that's not even the important bit..the reasons they're lying will lead you to the origins of earth, who and what we are, where we live and what we are doing here, free energy, frequencies and magnesium. good luck.﻿
+- JJN
+
 [![fake-news-lies-and-deception](images/fake-news-lies-and-deception.png)](https://www.youtube.com/watch?v=4uBgd8XlYwg)
 
 [YOU'VE BEEN BRAINWASHED SINCE BIRTH by Captain Obvious](https://www.youtube.com/watch?v=4uBgd8XlYwg)
@@ -270,9 +273,6 @@ CONTACT [audiobible.life@gmail.com](mailto:audiobible.life@gmail.com)
 SUBSCRIBE TO [AUDIO BIBLE LIFE ON YOUTUBE](https://www.youtube.com/channel/UC18JDfFFpUdw82Fm3KAMDmA)
 
 VIEW [CODE ON GITHUB](https://github.com/AudioBible/AudioBible)
-
-> Pride aside. The earth is flat and that's not even the important bit..the reasons they're lying will lead you to the origins of earth, who and what we are, where we live and what we are doing here, free energy, frequencies and magnesium. good luck.﻿
-- JJN
 
 ### TODO
 
