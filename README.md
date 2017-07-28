@@ -6,10 +6,10 @@
 
 **Note**: Some images are links to a youtube video, obviously the blue text is a link to a video or playlist or a page on the site.
 
+![12790840_469275703272169_3170264075263137737_n](images/12790840_469275703272169_3170264075263137737_n.jpg)
+
 > Pride aside. The earth is flat and that's not even the important bit..the reasons they're lying will lead you to the origins of earth, who and what we are, where we live and what we are doing here, free energy, frequencies and magnesium. good luck.﻿
 - JJN
-
-![12790840_469275703272169_3170264075263137737_n](images/12790840_469275703272169_3170264075263137737_n.jpg)
 
 [![fake-news-lies-and-deception](images/fake-news-lies-and-deception.png)](https://www.youtube.com/watch?v=4uBgd8XlYwg)
 
