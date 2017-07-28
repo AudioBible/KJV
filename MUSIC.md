@@ -11,7 +11,7 @@ MUSIC VIDEOS
 
 **Note:** Some songs may have explicit language. Please don't judge people for the language they use or their personality. Listen the message they are saying. Most of all please share the love with others! It's a lot worse to be out there killing people over oil, than to say a four letter word. Who's side are you on?
 
-#### [Reality Check Music Playlist](https://www.youtube.com/watch?v=TlTR7QQZQ8I&list=PL7X63Sm3kODPV43FyewOSadSnZwZGZQHU&index=1) [playlist] this list has a lot of the music below in it
+#### [Truth Music - **MUST SEE AND HEAR**](https://www.youtube.com/watch?v=TlTR7QQZQ8I&list=PL7X63Sm3kODPV43FyewOSadSnZwZGZQHU&index=1) [playlist with ~700 songs] this playlist has a lot of the music that can be found in the list below
 
 ![12004556-explicit-content](images/12004556-explicit-content.jpg)
 
@@ -41,7 +41,7 @@ MUSIC VIDEOS
 - [Jedi Mind Tricks (Vinnie Paz + Stoupe) - "Heavy Metal Kings" (feat. Ill Bill) [Official Video]](https://www.youtube.com/watch?v=axmpxbtzSZY&list=RDaxmpxbtzSZY) [playlist]
 - [Immortal Technique - Bin laden Lyrics](https://www.youtube.com/watch?v=hdagSIa-UQ8&list=RDhdagSIa-UQ8) [playlist]
 - [New World (Fuck You) - OverDose Denver (ODD TV)](https://www.youtube.com/watch?v=KcQ6hwXKRYs&list=PLyZQ2CmNz-znUp5b0UmmK_3-V6oXwyrDI) [playlist]
-- [Living in Hell | OverDose Denver (Anti NWO Music)](https://www.youtube.com/watch?v=niPwn6AS7Lg&index=35&list=RD4-4V9g6bUqc) [playlist]
+- [Living in Hell OverDose Denver (Anti NWO Music)](https://www.youtube.com/watch?v=niPwn6AS7Lg&index=35&list=RD4-4V9g6bUqc) [playlist]
 
 **Note:** Some of these videos are already in playlists above, some are not!
 
