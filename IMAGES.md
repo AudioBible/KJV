@@ -1259,6 +1259,10 @@ IMAGES
 
 ![alex-jones-fake.png](images/alex-jones-fake.png)
 
+- [all-truth-passes-thru-three-stages.png](images/all-truth-passes-thru-three-stages.png)
+
+![all-truth-passes-thru-three-stages.png](images/all-truth-passes-thru-three-stages.png)
+
 - [american-genocide.png](images/american-genocide.png)
 
 ![american-genocide.png](images/american-genocide.png)
@@ -1290,6 +1294,10 @@ IMAGES
 - [cnn-nbc-abc-fox-nasa-fake-news.png](images/cnn-nbc-abc-fox-nasa-fake-news.png)
 
 ![cnn-nbc-abc-fox-nasa-fake-news.png](images/cnn-nbc-abc-fox-nasa-fake-news.png)
+
+- [cognitive-dissonance-sometimes-people-hold-a-core-belief.png](images/cognitive-dissonance-sometimes-people-hold-a-core-belief.png)
+
+![cognitive-dissonance-sometimes-people-hold-a-core-belief.png](images/cognitive-dissonance-sometimes-people-hold-a-core-belief.png)
 
 - [david-icke-fake.png](images/david-icke-fake.png)
 
@@ -1614,6 +1622,10 @@ IMAGES
 - [three_heavens_religious_tradition.jpg](images/three_heavens_religious_tradition.jpg)
 
 ![three_heavens_religious_tradition.jpg](images/three_heavens_religious_tradition.jpg)
+
+- [truth-may-hurt-for-a-little-while-but-a-lie-hurts-forever.png](images/truth-may-hurt-for-a-little-while-but-a-lie-hurts-forever.png)
+
+![truth-may-hurt-for-a-little-while-but-a-lie-hurts-forever.png](images/truth-may-hurt-for-a-little-while-but-a-lie-hurts-forever.png)
 
 - [united-states-antarctic-program.png](images/united-states-antarctic-program.png)
 

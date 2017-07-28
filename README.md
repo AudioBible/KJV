@@ -290,3 +290,6 @@ VIEW [CODE ON GITHUB](https://github.com/AudioBible/AudioBible)
 http://audiobible.life плоская земля! Плоска Земя! Płaskie Ziemie! Yassı Toprak! 평지! 平地球! フラットアース! زمین تخت !شقة الأرض! terra flat! Flache Erde! Platte Aarde! Pământ plat! Tierra Plana! Terre Plate! Flat Earth! Do the research! Don't be a clown!
 
 # I LOVE YOU ALL! 🌏🔫﻿
+
+> It is amazing that there are no pending lawsuit against NASA about the earth rotates 1000mph and the earth is a sphere.  I can hardly wait to see the outcome of this case.  People need to file a federal law suit against fraud, negligent for punitive damages and shut down NASA.  There are no proof that the earth is a sphere nor it's moving 1000mph.  These statements are heresay and no concrete evidences to support them.  Pictures or movies are man made.  If the earth is sphere then they can prove to us by flying from NY to China thru the South Pole like they are going thru the North Pole right now.  Flat earth is true 100% and it needs no proof by the simple scientific fact that we are using water to level every building, structure and high-way.
+- TT
