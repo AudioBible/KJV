@@ -8,3 +8,4 @@ DOCUMENTS
 =========
 
 - [SILENT_WEAPONS_for_QUIET_WARS.pdf](documents/SILENT_WEAPONS_for_QUIET_WARS.pdf)
+- [weather-as-a-weapon-vol3ch15.pdf](documents/weather-as-a-weapon-vol3ch15.pdf)

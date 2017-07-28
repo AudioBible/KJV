@@ -526,6 +526,8 @@ You can trust a regular person more than you can trust a corporation or a govern
 - [Finding the Curve - Episode 4 (Flat Earth Documentary)](https://www.youtube.com/watch?v=ESWskcWtRU4)
 - [Obama Flat Earth compilation](https://www.youtube.com/watch?v=h0X4umYepHk)
 - [Flat Earth Facts - Top 5 Reasons I No Longer Believe in the Globe](https://www.youtube.com/watch?v=YJ4qZoUJ3C0)
+- [Blocking the Sun with NASA](https://www.youtube.com/watch?v=0ZLkYzRwuJM)
+- [Blueprints are now available to build your own Quantum Computer](https://www.youtube.com/watch?v=cnMeeBZNZjE)
 
 ## 
 
