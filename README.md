@@ -296,15 +296,15 @@ VIEW [CODE ON GITHUB](https://github.com/AudioBible/AudioBible)
     
 http://audiobible.life плоская земля! Плоска Земя! Płaskie Ziemie! Yassı Toprak! 평지! 平地球! フラットアース! زمین تخت !شقة الأرض! terra flat! Flache Erde! Platte Aarde! Pământ plat! Tierra Plana! Terre Plate! Flat Earth! Do the research! Don't be a clown!
 
-[![flat-earth-truth-t-shirt-1-front](images/flat-earth-truth-mens-t-shirt-1-front.png)](https://teespring.com/flat-earth-truth-ndt-ahc#pid=2&cid=2122&sid=front)
+[![flat-earth-truth-store-t-shirts](images/flat-earth-truth-store-t-shirts.png)](https://teespring.com/flat-earth-truth-ndt-ahc#pid=2&cid=2122&sid=front)
 
 [BUY $12.99 MENS HANES TAGLESS WHITE T-SHIRT WITH NEIL DEGRASSE TYSON TWEET ON FRONT AND ANCIENT HEBREW CONCEPTION OF UNIVERSE ON BACK](https://teespring.com/flat-earth-truth-ndt-ahc#pid=2&cid=2122&sid=front)
 
 [BUY $15.99 MENS PREMIUM WHITE T-SHIRT WITH NEIL DEGRASSE TYSON TWEET ON FRONT AND ANCIENT HEBREW CONCEPTION OF UNIVERSE ON BACK](https://teespring.com/flat-earth-truth-ndt-ahc-9552#pid=369&cid=6512&sid=front)
 
-[![flat-earth-truth-womens-t-shirt-1-back](images/flat-earth-truth-womens-t-shirt-1-back.png)](https://teespring.com/flat-earth-truth-ndt-ahc-gilda#pid=87&cid=2324&sid=back)
-
 [BUY $15.09 WOMENS GILDAN WHITE T-SHIRT WITH NEIL DEGRASSE TYSON TWEET ON FRONT AND ANCIENT HEBREW CONCEPTION OF UNIVERSE ON BACK](https://teespring.com/flat-earth-truth-ndt-ahc-gilda#pid=87&cid=2324&sid=back)
+
+[BUY $15.99 WOMENS PREMIUM WHITE T-SHIRT WITH NEIL DEGRASSE TYSON TWEET ON FRONT AND ANCIENT HEBREW CONCEPTION OF UNIVERSE ON BACK](https://teespring.com/flat-earth-truth-ndt-ahc-premi#pid=370&cid=6530&sid=back)
 
 **Idea:** [Make your own](https://teespring.com/design-launcher) using images found on the [images page](IMAGES.md). Spread awareness!
 
