@@ -298,13 +298,13 @@ http://audiobible.life плоская земля! Плоска Земя! Płaski
 
 [![flat-earth-truth-store-t-shirts](images/flat-earth-truth-store-t-shirts.png)](https://teespring.com/stores/flatearthtruth)
 
-[BUY $12.99 MENS HANES TAGLESS WHITE T-SHIRT WITH NEIL DEGRASSE TYSON TWEET ON FRONT AND ANCIENT HEBREW CONCEPTION OF UNIVERSE ON BACK](https://teespring.com/flat-earth-truth-ndt-ahc#pid=2&cid=2122&sid=front)
+[BUY $13 MENS HANES TAGLESS WHITE T-SHIRT WITH NEIL DEGRASSE TYSON TWEET ON FRONT AND ANCIENT HEBREW CONCEPTION OF UNIVERSE ON BACK](https://teespring.com/flat-earth-truth-ndt-ahc#pid=2&cid=2122&sid=front)
 
-[BUY $15.99 MENS PREMIUM WHITE T-SHIRT WITH NEIL DEGRASSE TYSON TWEET ON FRONT AND ANCIENT HEBREW CONCEPTION OF UNIVERSE ON BACK](https://teespring.com/flat-earth-truth-ndt-ahc-9552#pid=369&cid=6512&sid=front)
+[BUY $16 MENS PREMIUM WHITE T-SHIRT WITH NEIL DEGRASSE TYSON TWEET ON FRONT AND ANCIENT HEBREW CONCEPTION OF UNIVERSE ON BACK](https://teespring.com/flat-earth-truth-ndt-ahc-9552#pid=369&cid=6512&sid=front)
 
-[BUY $15.09 WOMENS GILDAN WHITE T-SHIRT WITH NEIL DEGRASSE TYSON TWEET ON FRONT AND ANCIENT HEBREW CONCEPTION OF UNIVERSE ON BACK](https://teespring.com/flat-earth-truth-ndt-ahc-gilda#pid=87&cid=2324&sid=back)
+[BUY $15 WOMENS GILDAN WHITE T-SHIRT WITH NEIL DEGRASSE TYSON TWEET ON FRONT AND ANCIENT HEBREW CONCEPTION OF UNIVERSE ON BACK](https://teespring.com/flat-earth-truth-ndt-ahc-gilda#pid=87&cid=2324&sid=back)
 
-[BUY $15.99 WOMENS PREMIUM WHITE T-SHIRT WITH NEIL DEGRASSE TYSON TWEET ON FRONT AND ANCIENT HEBREW CONCEPTION OF UNIVERSE ON BACK](https://teespring.com/flat-earth-truth-ndt-ahc-premi#pid=370&cid=6530&sid=back)
+[BUY $16 WOMENS PREMIUM WHITE T-SHIRT WITH NEIL DEGRASSE TYSON TWEET ON FRONT AND ANCIENT HEBREW CONCEPTION OF UNIVERSE ON BACK](https://teespring.com/flat-earth-truth-ndt-ahc-premi#pid=370&cid=6530&sid=back)
 
 **Idea:** [Make your own](https://teespring.com/design-launcher) using images found on the [images page](IMAGES.md). Spread awareness!
 
