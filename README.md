@@ -303,4 +303,4 @@ http://audiobible.life плоская земля! Плоска Земя! Płaski
 
 [![flat-earth-truth-t-shirt-1-back](images/flat-earth-truth-t-shirt-1-back.png)](https://teespring.com/flat-earth-truth-ndt-ahc#pid=2&cid=2122&sid=back)
 
-[BUY $12.99 HANES T-SHIRT WITH NEIL DEGRASSE TYSON TWEET ON FRONT AND ANCIENT HEBREW CONCEPTION OF UNIVERSE ON BACK](https://teespring.com/flat-earth-truth-ndt-ahc#pid=2&cid=2122&sid=back)
+[BUY $12.99 HANES TAGLESS WHITE T-SHIRT WITH NEIL DEGRASSE TYSON TWEET ON FRONT AND ANCIENT HEBREW CONCEPTION OF UNIVERSE ON BACK](https://teespring.com/flat-earth-truth-ndt-ahc#pid=2&cid=2122&sid=back)
