@@ -1367,6 +1367,10 @@ IMAGES
 
 ![flat-earth-proof-comparison.png](images/flat-earth-proof-comparison.png)
 
+- [flat-earth-public-with-dome_orig.png](images/flat-earth-public-with-dome_orig.png)
+
+![flat-earth-public-with-dome_orig.png](images/flat-earth-public-with-dome_orig.png)
+
 - [flat-earth-reality.png](images/flat-earth-reality.png)
 
 ![flat-earth-reality.png](images/flat-earth-reality.png)
