@@ -1375,6 +1375,14 @@ IMAGES
 
 ![flat-earth-reality.png](images/flat-earth-reality.png)
 
+- [flat-earth-truth-t-shirt-1-back.png](images/flat-earth-truth-t-shirt-1-back.png)
+
+![flat-earth-truth-t-shirt-1-back.png](images/flat-earth-truth-t-shirt-1-back.png)
+
+- [flat-earth-truth.jpg](images/flat-earth-truth.jpg)
+
+![flat-earth-truth.jpg](images/flat-earth-truth.jpg)
+
 - [flat.jpg](images/flat.jpg)
 
 ![flat.jpg](images/flat.jpg)
@@ -1522,6 +1530,10 @@ IMAGES
 - [nasa-un-flat-earth-bs.jpg](images/nasa-un-flat-earth-bs.jpg)
 
 ![nasa-un-flat-earth-bs.jpg](images/nasa-un-flat-earth-bs.jpg)
+
+- [neil-degrasse-tyson-flat-earth-truth.jpg](images/neil-degrasse-tyson-flat-earth-truth.jpg)
+
+![neil-degrasse-tyson-flat-earth-truth.jpg](images/neil-degrasse-tyson-flat-earth-truth.jpg)
 
 - [nikola-tesla-energy-frequency-vibration.png](images/nikola-tesla-energy-frequency-vibration.png)
 
