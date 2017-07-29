@@ -296,7 +296,7 @@ VIEW [CODE ON GITHUB](https://github.com/AudioBible/AudioBible)
     
 http://audiobible.life плоская земля! Плоска Земя! Płaskie Ziemie! Yassı Toprak! 평지! 平地球! フラットアース! زمین تخت !شقة الأرض! terra flat! Flache Erde! Platte Aarde! Pământ plat! Tierra Plana! Terre Plate! Flat Earth! Do the research! Don't be a clown!
 
-[![flat-earth-truth-store-t-shirts](images/flat-earth-truth-store-t-shirts.png)](https://teespring.com/flat-earth-truth-ndt-ahc#pid=2&cid=2122&sid=front)
+[![flat-earth-truth-store-t-shirts](images/flat-earth-truth-store-t-shirts.png)](https://teespring.com/stores/flatearthtruth)
 
 [BUY $12.99 MENS HANES TAGLESS WHITE T-SHIRT WITH NEIL DEGRASSE TYSON TWEET ON FRONT AND ANCIENT HEBREW CONCEPTION OF UNIVERSE ON BACK](https://teespring.com/flat-earth-truth-ndt-ahc#pid=2&cid=2122&sid=front)
 
