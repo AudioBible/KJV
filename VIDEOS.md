@@ -530,7 +530,7 @@ You can trust a regular person more than you can trust a corporation or a govern
 - [Blueprints are now available to build your own Quantum Computer](https://www.youtube.com/watch?v=cnMeeBZNZjE)
 - [40 Bible verses that prove the Earth is FLAT!](https://www.youtube.com/watch?v=tuqqPS5z3uw)
 
-## 
+## World Truth
 
 - [Why Do We See So Much Of THIS In Hollywood Movies Lately? (2017)](https://www.youtube.com/watch?v=dyRep1ZPl3w)
 - [THEY ARE TEACHING US TO EAT EACH OTHER (2017)](https://www.youtube.com/watch?v=az84I1VUg-o)
