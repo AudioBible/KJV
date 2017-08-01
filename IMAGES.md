@@ -1267,6 +1267,10 @@ IMAGES
 
 ![NASA_Serpent.jpg](images/NASA_Serpent.jpg)
 
+- [NDT-vs-FEA.png](images/NDT-vs-FEA.png)
+
+![NDT-vs-FEA.png](images/NDT-vs-FEA.png)
+
 - [NWO-lucifer.png](images/NWO-lucifer.png)
 
 ![NWO-lucifer.png](images/NWO-lucifer.png)

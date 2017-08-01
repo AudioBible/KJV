@@ -51,6 +51,10 @@
 
 [Flat Earth - Who, What, When, Where, Why, and How!](https://www.youtube.com/watch?v=OBCsoAvgXmg)
 
+[![NDT-vs-FEA](images/NDT-vs-FEA.png)](https://www.youtube.com/watch?v=pildmrRi8XE)
+
+[Neil Degrasse Tyson vs Flat Earth Asshole](https://www.youtube.com/watch?v=pildmrRi8XE)
+
 ## NO OFFENSE BUT WE ARE IN TROUBLE AND THE TRUTH MUST BE SEEN AND HEARD!
 
 ## SILENCE IS BETRAYAL! TRUTH IS HERE NOW! YOU CAN'T ESCAPE IT! LEARN IT!
