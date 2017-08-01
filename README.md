@@ -47,6 +47,10 @@
 
 [40 Bible verses that prove the Earth is FLAT!](https://www.youtube.com/watch?v=tuqqPS5z3uw)
 
+[![GlobeBusters](images/GlobeBusters.png)](https://www.youtube.com/watch?v=OBCsoAvgXmg)
+
+[Flat Earth - Who, What, When, Where, Why, and How!](https://www.youtube.com/watch?v=OBCsoAvgXmg)
+
 ## NO OFFENSE BUT WE ARE IN TROUBLE AND THE TRUTH MUST BE SEEN AND HEARD!
 
 ## SILENCE IS BETRAYAL! TRUTH IS HERE NOW! YOU CAN'T ESCAPE IT! LEARN IT!
