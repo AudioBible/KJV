@@ -1199,6 +1199,10 @@ IMAGES
 
 ![Common-sense-is-a-flower-that-doesnt-grow-in-everyones-garden.-Anonymous.png](images/Common-sense-is-a-flower-that-doesnt-grow-in-everyones-garden.-Anonymous.png)
 
+- [Dr.Lawrence-Cohen-quote.png](images/Dr.Lawrence-Cohen-quote.png)
+
+![Dr.Lawrence-Cohen-quote.png](images/Dr.Lawrence-Cohen-quote.png)
+
 - [Flammarion_Woodcut_1888_Color_2.jpg](images/Flammarion_Woodcut_1888_Color_2.jpg)
 
 ![Flammarion_Woodcut_1888_Color_2.jpg](images/Flammarion_Woodcut_1888_Color_2.jpg)
