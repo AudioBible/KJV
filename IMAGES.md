@@ -1283,6 +1283,10 @@ IMAGES
 
 ![ODD-TV-Living-In-Hell-Playlist.png](images/ODD-TV-Living-In-Hell-Playlist.png)
 
+- [Operation-Earnest-Voice-Facts.png](images/Operation-Earnest-Voice-Facts.png)
+
+![Operation-Earnest-Voice-Facts.png](images/Operation-Earnest-Voice-Facts.png)
+
 - [OxsM1flZCVw.jpg](images/OxsM1flZCVw.jpg)
 
 ![OxsM1flZCVw.jpg](images/OxsM1flZCVw.jpg)

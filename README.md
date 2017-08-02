@@ -55,7 +55,7 @@
 
 [Neil Degrasse Tyson vs Flat Earth Asshole](https://www.youtube.com/watch?v=pildmrRi8XE)
 
-[![Dr.Lawrence-Cohen-quote](images/Dr.Lawrence-Cohen-quote.png)](https://www.youtube.com/watch?v=zR-T2Ocksqo)
+[![Operation-Earnest-Voice-Facts](images/Operation-Earnest-Voice-Facts.png)](https://www.youtube.com/watch?v=zR-T2Ocksqo)
 
 [OPERATION EARNEST VOICE IS DESTROYING NASA/.GOV WHISTLEBLOWERS by Captain Obvious](https://www.youtube.com/watch?v=zR-T2Ocksqo)
 
