@@ -16,3 +16,5 @@ BOOKS
 - [The Flat-Earth Conspiracy](https://www.amazon.com/Flat-Earth-Conspiracy-Eric-Dubay/dp/1312627166)
 - [The Blueprint: World's Secret's Declassified Bible](https://www.amazon.com/Blueprint-Worlds-Secrets-Declassified-Bible/dp/1522962190)
 - [The Greatest Lie on Earth: Proof That Our World Is Not a Moving Globe](https://www.amazon.com/Greatest-Lie-Earth-Proof-Moving/dp/1943056013)
+- [Placebo - Howard Pittman](https://www.amazon.com/Placebo-Howard-O-Pittman/dp/B0017YQLLU)
+- [Demons: An Eyewitness Account](https://www.amazon.com/Demons-Eyewitness-Howard-O-Pittman/dp/B000HCWBCG)
