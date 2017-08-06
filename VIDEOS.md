@@ -27,6 +27,7 @@ You can trust a regular person more than you can trust a corporation or a govern
 - [ODD TV's 33 Movies for a Conspiracist ▶️️](https://www.youtube.com/watch?v=L_ApQ4prG7Q)
 - [ODD TV's 33 Movies Dystopian Edition ▶️️](https://www.youtube.com/watch?v=W51wAhgn-8E)
 - [Battle in Seattle - Full Movie (Channing Tatum, Charlize Theron)](https://www.youtube.com/watch?v=YwnVYzyAQoI) [0.75x]
+- [The Principle Movie](https://www.amazon.com/dp/B01K90NVNI)
 
 ## Movies from The Books
 
@@ -108,10 +109,9 @@ You can trust a regular person more than you can trust a corporation or a govern
 - [We Are Becoming the Internet, the Internet Is Becoming Us](https://www.youtube.com/watch?v=GnLyjsO7mZc)
 - [6 Secret Cities That Prove We Don't Know What's Really Going On](https://www.youtube.com/watch?v=wYyBcOLq8bs)
 - [Two Top Secret Missions Disguised As Historic Moments You Thought Were Real](https://www.youtube.com/watch?v=1ZiQUngMhr4)
-- [AGENDA 21 THE MOVIE: THE MEGACITIES ARE COMING.](https://www.youtube.com/watch?v=mZhI9vvZ2Wo)
 - [POWERUL TESTIMONY!! THIS MAN SAW HITLER AND OTHER EVIL PEOPLE IN HELL DURING A NEAR DEATH EXPERIENCE](https://www.youtube.com/watch?v=xt9xodhZ5KI)
 - [INDIA IMPLEMENTING THE BEAST SYSTEM. CAN'T BUY OR SELL UNLESS YOU TAKE A 12 DIGIT NUMBER](https://www.youtube.com/watch?v=ppEDMsnMfJw)
-- [HITLER: Negroes are The True Jews](https://www.youtube.com/watch?v=NE-X985_prM)
+- [HITLER: Negroes are The True Jews](https://www.youtube.com/watch?v=4kVTR8OCS_k)
 - [Blacks are in fact the true jews of the bible](https://www.youtube.com/watch?v=FaqCyBlwCxQ&list=PLA3OCbJL135SGuahCKhuQ20eKMiSdXm2t) [playlist]
 - [THE TRUTH ON THE REAL HEBREW ISRAELITES IS OUT AND THE NATIONS ARE TERRIFIED !!!!!!](https://www.youtube.com/watch?v=mP2ivfkfHVM)
 - [Video 10- Testimonies of Edomites/Gentiles Telling Blacks They Are the True Hebrew Israelites](https://www.youtube.com/watch?v=qhjajMbTX1Y)
@@ -134,7 +134,7 @@ You can trust a regular person more than you can trust a corporation or a govern
 - [Israelis Are Not Jews and American Leaders Are Not Christian](https://www.youtube.com/watch?v=PrWguVsEih0)
 - [Ahmadinejad on Jews - Larry King](https://www.youtube.com/watch?v=_vYXcna8Pxw)
 - [Charlie Rose - Dr. Mahmoud Ahmadinejad, President of Islamic Republic of Iran Sept. 20, 2010](https://www.youtube.com/watch?v=Im_bRb8CKDk)
-- [Mein Kampf - Audio Book](https://www.youtube.com/watch?v=xDOPHZC936c)
+- [Mein Kampf - Audio Book](https://www.youtube.com/watch?v=YoYajnOICzo)
 - [08/08/2006 President Ahmadinejad Interview](https://www.youtube.com/watch?v=bFCUX5JSA14)
 - [Assad say’s “Trumps a Puppet” to Indian media مقابلة الرئيس الأسد مع قناة ويون الهندية](https://www.youtube.com/watch?v=SxpvoVGXURM)
 - [Assad smashes journalist with facts in Interview, Oct 6 (مقابلة الرئيس الأسد مع قناة TV2 الدانماركية](https://www.youtube.com/watch?v=7ItP5bLZ8H8)
@@ -153,17 +153,16 @@ You can trust a regular person more than you can trust a corporation or a govern
 - [7 CONFIRMED False Flag Attacks](https://www.youtube.com/watch?v=Gst2pwtzz1w)
 - [Steve Hughes on war on terror, global warming and X-factor.](https://www.youtube.com/watch?v=Nea-MpVgRL0&list=RDhMcS82DpjSU) [playlist]
 - [Jim Jeffries on America's "freedom"](https://www.youtube.com/watch?v=bjeq3NYUw2M)
-- [Donald Trump False Flag Assassination](https://www.youtube.com/watch?v=f9zUeCztKCA)
+- [Donald Trump False Flag Assassination](https://www.youtube.com/watch?v=NRsP474bm3U)
 - [The Untold Story of Adolf Hitler - RFG Chosen 1 & Bro. Sanchez](https://www.youtube.com/watch?v=Q7HhLS7584g)
 - [Hillary Clinton & Donald Trump are Cousins EXPOSED!](https://www.youtube.com/watch?v=LuEaf_6P7QY)
-- [Biggest False Flag Operation Since 9 11 Happening Right Now!](https://www.youtube.com/watch?v=r_aozYvb_Rs)
+- [Biggest False Flag Operation Since 9 11 Happening Right Now!](https://www.youtube.com/watch?v=ODltW7WIFqY)
 - [THIS IS HAPPENING RIGHT BEFORE OUR EYES AND NO ONE SEE'S THE BIGGER ](https://www.youtube.com/watch?v=KjkDqzhCq0c)
 - [WHAT DO BANKS, RAILROADS, RETAIL STORES, STANDARD OIL, LUMBER & THE FOOD ](https://www.youtube.com/watch?v=ZI1YUe2oYEQ)
 - [A PICTURE IS WORTH A THOUSAND WORDS!](https://www.youtube.com/watch?v=HFTcjSHzyxM)
 - [Playing the Trump Card: Obama’s 3rd Term and WW3 (Trump's false flag assassination](https://www.youtube.com/watch?v=HuF14oF2D2Q)
 - [IS A 3RD TERM FOR BARACK OBAMA STILL POSSIBLE??? (RIGGED ELECTIONS 2016)](https://www.youtube.com/watch?v=Ol44a2xChqM)
 - [This is why Scalia was Murdered](https://www.youtube.com/watch?v=wyPFbDP8W6I)
-- [SGTreport: The Paris False Flag of "TRUTH" -- Dr. Paul Craig Roberts](https://www.youtube.com/watch?v=6kSugZtgXsc)
 - [Donald Trump - Illuminati Puppet Exposed - Part 1](https://www.youtube.com/watch?v=SL_uAY63IWo)
 - [Donald Trump - Illuminati Puppet Exposed - Part 2](https://www.youtube.com/watch?v=7vRHwTZCt7Q&list=RD7vRHwTZCt7Q) [playlist]
 - [Donald Trump - Controlled by the Illuminati? New World Order MUST WATCH](https://www.youtube.com/watch?v=TXpOiB2kdIM)
@@ -213,7 +212,6 @@ You can trust a regular person more than you can trust a corporation or a govern
 - [Hitler's War - What the Historians Neglect to Mention](https://www.youtube.com/watch?v=7mA0kk29DBA)
 - [Israel Banned Documentary](https://www.youtube.com/watch?v=IZZvTZAKgro)
 - [Christopher Hitchens on Charlie Rose - On David Irving's controversial biography (May 8, 1996](https://www.youtube.com/watch?v=fdxTsWXZdFc)
-- [Hey PewDiePie Watch This The Truth About Nazis / Brown Shirts](https://www.youtube.com/watch?v=tTcMje9Ok7Q)
 - [KANYE WEST MK ULTRA PROGRAMMING ERASED! ILLUMINATI MEMORY LOSS MIND CONTROL BREAKDOWN EXPOSED!](https://www.youtube.com/watch?v=q5r8IwaJwo4)
 - [Jr Smith Has Glitche, Illuminati, Mk Ultra Mind Control Meltdown W/Alter Ego](https://www.youtube.com/watch?v=9yoVauEuCmc)
 - [Celebrities Expose Occult Entertainment Industry. MK Ultra & Disney Exposed. ](https://www.youtube.com/watch?v=AAd0BDc8gtw)
@@ -222,7 +220,6 @@ You can trust a regular person more than you can trust a corporation or a govern
 - [The Mass Deception Of Turning Things Upside Down Agenda](https://www.youtube.com/watch?v=mh_5ceDAiCU)
 - [Kanye West Rant Decoded (Unedited Version Is BANNED On YouTube)](https://www.youtube.com/watch?v=e6Ii9dUKFVQ)
 - [Johnny Depp's Illuminati MK Ultra Meltdown Continues](https://www.youtube.com/watch?v=BrfV75xQuw8)
-- [24/7 Flat Earth LIVE! 100% Proof NASA Lies & Earth is Not a Globe Research Flat Earth](https://www.youtube.com/watch?v=kcRlxKW07GA)
 - [DICK GREGORY: A $lave CANNOT Know G0D! HUMBLE YO' SELF!!!](https://www.youtube.com/watch?v=59KilX9SNCI)
 - [Watch U.S. Soldiers Expose The Illuminati (Illuminati Exposed) (2017)](https://www.youtube.com/watch?v=a8t4LzGwFp4)
 - [Tim Allen Exposes What's Going on in Hollywood! (2017)](https://www.youtube.com/watch?v=Z-DkF98uBm8)
@@ -232,13 +229,13 @@ You can trust a regular person more than you can trust a corporation or a govern
 - [Listen to Trump's eye-opening talk about End Times.. (2017)](https://www.youtube.com/watch?v=v_rpJLqnRv0)
 - [Increase Human Energy by Nikola Tesla](https://www.youtube.com/watch?v=PUZ73HqugYg)
 - [[ MUST WATCH ] -The lost secrets of Nikola Tesla!](https://www.youtube.com/watch?v=_IWqPV9p0pk)
-- [Tesla 369 Law of Attraction, Energy Frequency Vibration](https://www.youtube.com/watch?v=G1gceUefXBc)
+- [Tesla 369 Law of Attraction, Energy Frequency Vibration](https://www.youtube.com/watch?v=0XZG2dWxsT8)
 - [Magnetism & Frequency (Knowledge is literally POWER !!!)](https://www.youtube.com/watch?v=JQ7ekeTPBWk)
 - [The Secrets Of Vibration 528hz) Hidden truths of sound! Law Of Attraction Part 1](https://www.youtube.com/watch?v=cUiSMPHRrhc)
 - [Healing Codes for the Biological Apocalypse - Clip 1 of 3](https://www.youtube.com/watch?v=rtZB9zeKDCM&list=PLD6DAFB7B2FE2C9BF) [playlist]
 - [Adolf Hitler vs The Jew World Order](https://www.youtube.com/watch?v=ssCkc8t9sho)
 - [Hitler didn't hate Jews. He hated zionism](https://www.youtube.com/watch?v=bYYTp29xA3o)
-- [Why Did Adolf Hitler Hate Jews?](https://www.youtube.com/watch?v=PtEzozK9_Ww)
+- [Why Did Adolf Hitler Hate Jews?](https://www.youtube.com/watch?v=A5TMQ4eIgKs)
 - [THE TIME HAS COME! THE NAKED TRUTH ABOUT JEWS](https://www.youtube.com/watch?v=dTrrHtcdES0)
 - [Leonard Horowitz speaks about 528 HZ Healing Frequency in Vancouver, Washington (2008)](https://www.youtube.com/watch?v=A8SMtbQ7mfk)
 - [IN LIES WE TRUST - The Secret Pharmaceutical Drug Conspiracy](https://www.youtube.com/watch?v=NkHcEGZ8oVs)
@@ -251,7 +248,7 @@ You can trust a regular person more than you can trust a corporation or a govern
 - [Flat Earth people you have to watch this!!](https://www.youtube.com/watch?v=AbtmxCBi7xs)
 - [Flat Earth people need to read the KJV!!](https://www.youtube.com/watch?v=dBx_0EhkP0M)
 - [Was Hitler Walt Disney ? You Decide !](https://www.youtube.com/watch?v=hIhBHPyEmzg)
-- [Walt Disney WAS Adolf Hitler (Mirror) Flat Earth ExJW](https://www.youtube.com/watch?v=SBFRUQdkAls)
+- [Walt Disney WAS Adolph Hitler. You be the Judge History Channeled](https://www.youtube.com/watch?v=gJ7dIEecCBg)
 - [The Biggest Scam in the History of Mankind](https://www.youtube.com/watch?v=n3Lt_fbSSxk)
 - [President Trump Signs Space Council Executive order with Buzz Aldrin at White House](https://www.youtube.com/watch?v=dC3SzbZU3P8)
 - [TRUMP Was Chosen The Proof is Out " A▶️️MUST WATCH "](https://www.youtube.com/watch?v=ni1TKPpTEJ4)
@@ -286,6 +283,7 @@ You can trust a regular person more than you can trust a corporation or a govern
 - [NASAs EPIC Satelite PROVE thier LIE](https://www.youtube.com/watch?v=zK7iYR2yI50)
 - [All satellite dishes face south?! -Lets ask the guy who installs them.](https://www.youtube.com/watch?v=JO3zkoP9MKI)
 - [Flat Earth - "satellites " and " DirectTV " debunked..... ( again)](https://www.youtube.com/watch?v=aBFJOYg0FG4)
+- [Why the VATICAN really Owns the LUCIFER Telescope.](https://www.youtube.com/watch?v=_TgXHA-Ap_8)
 
 ## Devolving/Dark Culture
 
@@ -307,10 +305,6 @@ You can trust a regular person more than you can trust a corporation or a govern
 - [Alex Jones is a Woman. Bill Hicks 2! Part 1](https://www.youtube.com/watch?v=GqpzxccLW_0)
 
 
-## Health
-
-- [WHAT THE HEALTH Documentary [MUST SEE]](https://www.youtube.com/watch?v=4MetYF9hbvI)
-
 ## Spiritual
 
 - [The Devil's Playbook (How He Deceives You)! Part 1](https://www.youtube.com/watch?v=tNDz75-9bps)
@@ -324,7 +318,7 @@ You can trust a regular person more than you can trust a corporation or a govern
 - [HOWARD PITTMAN END TIME WARNING - PLUS HIS AMAZING LIFE-AFTER-DEATH-ENCOUNTER](https://www.youtube.com/watch?v=UWSCJ5vSus8)
 - [BELIEVING ONCE SAVED ALWAYS SAVED SENT ME TO HELL!](https://www.youtube.com/watch?v=9tspaGtBnrs)
 - [SANTA IS THE DEVIL -- THIS WILL SHOCK YOU](https://www.youtube.com/watch?v=rPbB1Er0v5k)
-- [CHURCH GONE WILD ILLUMINATI SATANIST PASTORS EXPOSED!!](https://www.youtube.com/watch?v=uRHahaoPk34)
+- [ILLUMINATI PASTORS EXPOSED !!!!](https://www.youtube.com/watch?v=k5azmloxpCw)
 - [Why Can't Lost People Understand The Bible?](https://www.youtube.com/watch?v=zYMfd0_ViZs)
 - [What Does The Bible Say About Smoking? Part 1](https://www.youtube.com/watch?v=7fK7a4jggp4)
 - [What Does The Bible Say About Smoking? Part 2](https://www.youtube.com/watch?v=njd3HUWrmaM)
@@ -334,7 +328,7 @@ You can trust a regular person more than you can trust a corporation or a govern
 - [Joel Osteen Exposed - Reptilian False Prophets](https://www.youtube.com/watch?v=Gba8BtJAOqg)
 - [JOEL OSTEEN DENIES JESUS CHRIST & OPRAH WINFREY EXPOSED! Joel Osteen hoax ](https://www.youtube.com/watch?v=weEWl52wevI)
 - [Beware: The Greatest Deception of All - Billions will be Deceived](https://www.youtube.com/watch?v=8Gsj9Ed8qkU)
-- [528 HZ Healing Frequency Of Satan & Vibes New Age Belief Breakdowns Part 4](https://www.youtube.com/watch?v=1OQ-2faooKw)
+- [528 HZ Healing Frequency Of Satan & Vibes New Age Belief Breakdowns Part 4](https://www.youtube.com/watch?v=1OQ-2faooKw&index=4&list=PLycjKVl_BHNaSg9Zdwm0w2JRomyosxxGL) [playlist]
 - [The Secret Satanic Law of Attraction EXPOSED !!! Illuminati Spirituality !!!](https://www.youtube.com/watch?v=Ri2zfQCoTGc)
 - [Yoga is a Satanic Spiritual Practice BEWARE !!! X Yoga Instructor Speaks Out !!!](https://www.youtube.com/watch?v=wKwEkXcmEUQ)
 - [Did The Illuminati Change or Write The Bible !?!?!](https://www.youtube.com/watch?v=dOMFbsTZVlc)
@@ -357,7 +351,7 @@ You can trust a regular person more than you can trust a corporation or a govern
 - [Visions Of The Rapture, Heaven, Hell, And The Great Tribulation A Real Encounter With Jesus Christ](https://www.youtube.com/watch?v=gW2k6M-5NwE)
 - [STUNNING DISCOVERY!!! 4000 Year Old Artifact IDENTIFIES ALLAH as LUCIFER, the BEAST! ASTOUNDING!!!](https://www.youtube.com/watch?v=F9vbw3sIu2w)
 - [A Case for Believing Obama is a Clone of Akhenaten](https://www.youtube.com/watch?v=63cqS3R_jck)
-- [Barack Obama, Secret Service Codename Renegade, Is A Clone Of The Akhenaten Pharaoh!](https://www.youtube.com/watch?v=_Apwfhm9eWs)
+- [SHOCKING! Obama Hints He Is Clone of Pharaoh Akhenaten 666 (WATCH THIS UNDENIABLE PROOF!)](https://www.youtube.com/watch?v=56hGgHdSWhE)
 - [% OBAMA !!! * has a cloned image that speaks ! obama is not obama * IM SERIOUS !](https://www.youtube.com/watch?v=A-lSNH3cSS0)
 - [Ex Satan Worshipper John Ramirez Testimony](https://www.youtube.com/watch?v=I11L71PD3Lw)
 - [Why They REMOVED The Book Of Enoch!!](https://www.youtube.com/watch?v=xUQaKOWPZEE)
@@ -428,7 +422,7 @@ You can trust a regular person more than you can trust a corporation or a govern
 - [Russianvids Responds To Daniel Tosh - Flat Earth Mocked On Tosh.0](https://www.youtube.com/watch?v=kKMI354O4YQ)
 - [We Never Have and Will Never Go To The Moon. NASA: You Suck! (fix)](https://www.youtube.com/watch?v=Xt0RW6qMbLw)
 - [The Flat Earth Last Video From Aaron Dover Before they Killed Him](https://www.youtube.com/watch?v=nhoQSee-5h0)
-- [Enoch's Bible says the Lucifer lives in Antarctica !!!](https://www.youtube.com/watch?v=YA1hYIpQcys)
+- [Enoch's Bible says the Lucifer lives in Antarctica !!!](https://www.youtube.com/watch?v=qHFcwUUWiv0)
 - [Jesuits Erasing our Flat Earth - Documentary](https://www.youtube.com/watch?v=olbyJDou4qQ)
 - [The Jesuit Conspiracy - Flat Earth](https://www.youtube.com/watch?v=6lSgsOU9OiI)
 - [Flat Earth: Bible Truth in an Unstable World](https://www.youtube.com/watch?v=v5onXxxITqo)
@@ -448,7 +442,7 @@ You can trust a regular person more than you can trust a corporation or a govern
 - [IMPOSSIBALL Flat Earth Documentary (2017)](https://www.youtube.com/watch?v=UbYtkrTquXE)
 - [THE BEST Flat Earth VIDEO 1000% Proof The Earth Is Flat Lets See You Debunk This!!!!](https://www.youtube.com/watch?v=p7lDq4dOlIk)
 - [THE BEST Flat Earth VIDEO FOR All PEOPLE 100% PROOF THE EARTH IS FLAT](https://www.youtube.com/watch?v=ynnFwTiQlxM)
-- [FLAT EARTH - 'Absolute Proof' Rocket Hitting The Dome](https://www.youtube.com/watch?v=echpThvHli8)
+- [FLAT EARTH - 'Absolute Proof' Rocket Hitting The Dome](https://www.youtube.com/watch?v=iAjS7RjE_GA)
 - [200 Proofs Earth is Not a Spinning Ball Videobook](https://www.youtube.com/watch?v=h5i_iDyUTCg)
 - [The Zionists, Freemasons, and NASA's Biggest Secret](https://www.youtube.com/watch?v=dTqmcvdm4hM)
 - [There are no forests on Flat Earth Wake Up](https://www.youtube.com/watch?v=UHkiZNT3cyE)
@@ -461,12 +455,12 @@ You can trust a regular person more than you can trust a corporation or a govern
 - [NASA ISS HOAX! INTERNATIONAL SPACE STATION DOES NOT EXIST!](https://www.youtube.com/watch?v=TSQjerWbRfo)
 - [Flat Earth PROOF of God [6/9/2017]](https://www.youtube.com/watch?v=YI3BrH5t7oQ)
 - [Flat Earth Dome Explained 100% & the Entrance to Agartha](https://www.youtube.com/watch?v=fDBRhxryfZM)
-- [No One Has Been To Space~Watch This!](https://www.youtube.com/watch?v=WHMzgKB_uhY)
+- [No One Has Been To Space~Watch This!](https://www.youtube.com/watch?v=z9YHyUDzGTA)
 - [Flat Earth Evidence and Proof June 2017](https://www.youtube.com/watch?v=-utWNUnrT9g)
 - [BEST FLAT EARTH PROOF 2017 - YOU CANT DENY THIS EVIDENCE](https://www.youtube.com/watch?v=awl8Eel7fgg)
 - [How to Quit Your Slave Job (and Live Your Dream Life!)](https://www.youtube.com/watch?v=HLwNG5l0Yoo)
 - [The Most Important Thing in Your Life](https://www.youtube.com/watch?v=sKH-NmLFDH4)
-- [Satan's Computer; What you Where Not Taught In School, This Will Blow Your Mind - Flat Earth Stream](https://www.youtube.com/watch?v=jwK6aUfTrvQ)
+- [Satan's Computer; What you Where Not Taught In School, This Will Blow Your Mind - Flat Earth Stream](https://www.youtube.com/watch?v=axFvBkobMWQ)
 - [CHRISTIANS MUST WATCH we are being LIED TO ISRAELITES](https://www.youtube.com/watch?v=xNTdajfE14Y)
 - [The TRUE Hebrew Israelites defined by Scripture and history. WARNING you will be shocked!!!](https://www.youtube.com/watch?v=bEDfrBBPZzg)
 - [A History of the True Hebrews (Documentary)](https://www.youtube.com/watch?v=biPDp8pGqGg)
@@ -485,7 +479,7 @@ You can trust a regular person more than you can trust a corporation or a govern
 - [Satan's Global Lie - The Truth of God's Enclosed Flat Earth](https://www.youtube.com/watch?v=CGZcBdarJ8E)
 - [What if Satan, Flat Earth, and Jesus are NOT what you think](https://www.youtube.com/watch?v=uXos3efIVFA)
 - [Bigger than Flat Earth. Must Watch! Marijuana is the Christ.](https://www.youtube.com/watch?v=0lNv5-kBBi8)
-- [Reptilians & the Saturn/Moon Matrix simplified. Seriously!](https://www.youtube.com/watch?v=sU6vasGQL8I)
+- [Reptilians & the Saturn/Moon Matrix simplified. Seriously!](https://www.youtube.com/watch?v=CwyGRQbaDy8)
 - [It Won't End Peacefully 😧](https://www.youtube.com/watch?v=MlYheQTmfwA)
 - [Flat Earth is REAL 🌎](https://www.youtube.com/watch?v=wMfUKDGMVpM)
 - [THEY LOOK LIKE PEOPLE!](https://www.youtube.com/watch?v=8QJdC4L0URQ)

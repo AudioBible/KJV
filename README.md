@@ -4,9 +4,13 @@
 
 [VIDEOS](VIDEOS.md) | [MUSIC](MUSIC.md) | [CHANNELS](CHANNELS.md) | [DOCUMENTS](DOCUMENTS.md) | [IMAGES](IMAGES.md) | [BOOKS](BOOKS.md) | [LINKS](LINKS.md) | [INFO](INFO.md) | **Join The Revolution**
 
+[![flat-earth-truth](images/flat-earth-truth.jpg)](http://audiobible.life)
+
+It's all connected to the biggest lie in the world, about the shape of the world, once you understand you will see how to tell through their lies of deception. Check out the collection of youtube videos and do some research on these topics. Arm yourself with knowledge! Don't be a clown!
+
 **Note**: Some images are links to a youtube video, obviously the blue text is a link to a video or playlist or a page on the site.
 
-[![12790840_469275703272169_3170264075263137737_n](images/12790840_469275703272169_3170264075263137737_n.jpg)](https://www.youtube.com/results?search_query=flat+earth+live)
+[![JUST KEEP WATCHING FLAT EARTH VIDEOS AND ANTI NEW WORLD ORDER VIDEOS](images/12790840_469275703272169_3170264075263137737_n.jpg)](https://www.youtube.com/results?search_query=flat+earth+live)
 
 [https://www.youtube.com/results?search_query=flat+earth+live](https://www.youtube.com/results?search_query=flat+earth+live)
 
@@ -60,6 +64,18 @@
 [![Operation-Earnest-Voice-Facts](images/Operation-Earnest-Voice-Facts.png)](https://www.youtube.com/watch?v=zR-T2Ocksqo)
 
 [OPERATION EARNEST VOICE IS DESTROYING NASA/.GOV WHISTLEBLOWERS by Captain Obvious](https://www.youtube.com/watch?v=zR-T2Ocksqo)
+
+[![dr.robert-sungenis-presentation-on-geocentrism-in-dalas-tx](images/dr.robert-sungenis-presentation-on-geocentrism-in-dalas-tx.png)](https://www.youtube.com/watch?v=Rwx7bYEUIF4)
+
+[Dr. Robert Sungenis presentation on Geocentrism in Dallas, Texas](https://www.youtube.com/watch?v=Rwx7bYEUIF4)
+
+[![drink-the-kool-aid-means-blindly-follow](images/drink-the-kool-aid-means-blindly-follow.png)](https://www.youtube.com/watch?v=E4sdGMx0gcg)
+
+[The Kool-Aid Man Cometh](https://www.youtube.com/watch?v=E4sdGMx0gcg)
+
+[![666-chip](images/666-chip.png)](https://www.youtube.com/watch?v=t4jUWgHhDvU)
+
+[THE MOST DISTURBING VIDEO OF 2017 by Captain Obvious](https://www.youtube.com/watch?v=t4jUWgHhDvU)
 
 ## NO OFFENSE BUT WE ARE IN TROUBLE AND THE TRUTH MUST BE SEEN AND HEARD!
 
