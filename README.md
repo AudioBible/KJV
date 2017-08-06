@@ -304,6 +304,8 @@ It's all connected to the biggest lie in the world, about the shape of the world
 
 ![youtube-search-flat-earth-flier](images/youtube-search-flat-earth-flier.png)
 
+![flat-earth-channels-flier.jpg](images/flat-earth-channels-flier.jpg)
+
 NASA never went to the moon because it's not possible to land on the moon. The moon is a transparent light, your eyes will even show you the clouds through the moon at times. The sun light is hot and sun shade is cooler, while the moon light is cold and moon shade is warmer. Which means that the sun doesn't light up the moon they are both their own lights in the sky and also they are both not far away like science tells us. 
 
 CONTACT [audiobible.life@gmail.com](mailto:audiobible.life@gmail.com)

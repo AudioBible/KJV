@@ -25,6 +25,8 @@ First click the subscribe button, then click the button with bell icon, then che
 
 This is by no means an exhaustive list of channels, it should be enough to get you started!
 
+![flat-earth-channels-flier](images/flat-earth-channels-flier.jpg)
+
 - [Whats Going On](https://www.youtube.com/channel/UCzxX0x3B5FsHcPKY3o5z0BA)
 - [RichieFromBoston](https://www.youtube.com/channel/UCuNfok7ozooi0LZgp6JJS4A)
 - [PreciousTestimonies](https://www.youtube.com/channel/UCUFfRr75RtMmT3ArGNZeZgg)
