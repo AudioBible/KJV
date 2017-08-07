@@ -18,3 +18,4 @@ BOOKS
 - [The Greatest Lie on Earth: Proof That Our World Is Not a Moving Globe](https://www.amazon.com/Greatest-Lie-Earth-Proof-Moving/dp/1943056013)
 - [Placebo - Howard Pittman](https://www.amazon.com/Placebo-Howard-O-Pittman/dp/B0017YQLLU)
 - [Demons: An Eyewitness Account](https://www.amazon.com/Demons-Eyewitness-Howard-O-Pittman/dp/B000HCWBCG)
+- [Tracking Inmates and Locating Staff with Active Radio-Frequency Identification (RFID): Early Lessons Learned in One U.S. Correctional Facility - Scholar's Choice Edition](https://www.amazon.com/Tracking-Inmates-Locating-Radio-Frequency-Identification/dp/1296047962)
