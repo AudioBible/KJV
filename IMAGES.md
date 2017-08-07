@@ -2015,6 +2015,10 @@ IMAGES
 
 ![three_heavens_religious_tradition.jpg](images/three_heavens_religious_tradition.jpg)
 
+- [trump-and-clinton-are-distant-relatives.png](images/trump-and-clinton-are-distant-relatives.png)
+
+![trump-and-clinton-are-distant-relatives.png](images/trump-and-clinton-are-distant-relatives.png)
+
 - [truth-may-hurt-for-a-little-while-but-a-lie-hurts-forever.png](images/truth-may-hurt-for-a-little-while-but-a-lie-hurts-forever.png)
 
 ![truth-may-hurt-for-a-little-while-but-a-lie-hurts-forever.png](images/truth-may-hurt-for-a-little-while-but-a-lie-hurts-forever.png)
