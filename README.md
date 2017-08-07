@@ -89,6 +89,10 @@ It's all connected to the biggest lie in the world, about the shape of the world
 
 [Look Like a Walmart Location To You? - This Reveals All Their Plans!](https://www.youtube.com/watch?v=GHFzwkC42-0)
 
+[![google-leaks-walmwart-fema-camps](images/google-leaks-walmwart-fema-camps.png)](https://www.youtube.com/watch?v=4Cm4D1xLE9c)
+
+[The VIDEO that WALMART DOESN'T Want You To See!! Future RFID Chipping Hubs...](https://www.youtube.com/watch?v=4Cm4D1xLE9c)
+ 
 ## NO OFFENSE BUT WE ARE IN TROUBLE AND THE TRUTH MUST BE SEEN AND HEARD!
 
 ## SILENCE IS BETRAYAL! TRUTH IS HERE NOW! YOU CAN'T ESCAPE IT! LEARN IT!

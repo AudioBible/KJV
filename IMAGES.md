@@ -1743,6 +1743,10 @@ IMAGES
 
 ![globe_1.jpg](images/globe_1.jpg)
 
+- [google-leaks-walmwart-fema-camps.png](images/google-leaks-walmwart-fema-camps.png)
+
+![google-leaks-walmwart-fema-camps.png](images/google-leaks-walmwart-fema-camps.png)
+
 - [government-mind-control.png](images/government-mind-control.png)
 
 ![government-mind-control.png](images/government-mind-control.png)
