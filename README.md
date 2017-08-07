@@ -93,6 +93,10 @@ It's all connected to the biggest lie in the world, about the shape of the world
 
 [The VIDEO that WALMART DOESN'T Want You To See!! Future RFID Chipping Hubs...](https://www.youtube.com/watch?v=4Cm4D1xLE9c)
  
+[![walmart-fema-martial-law1](images/walmart-fema-martial-law1.png)](https://www.youtube.com/watch?v=SYCjGUhU5Dc)
+
+[Walmart Does NOT Want You To See This Video - FEMA Camps Exposed (Illuminati Exposed) (2017)](https://www.youtube.com/watch?v=SYCjGUhU5Dc)
+
 ## NO OFFENSE BUT WE ARE IN TROUBLE AND THE TRUTH MUST BE SEEN AND HEARD!
 
 ## SILENCE IS BETRAYAL! TRUTH IS HERE NOW! YOU CAN'T ESCAPE IT! LEARN IT!

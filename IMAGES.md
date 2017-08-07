@@ -2051,6 +2051,10 @@ IMAGES
 
 ![walmart-fema-martial-law.png](images/walmart-fema-martial-law.png)
 
+- [walmart-fema-martial-law1.png](images/walmart-fema-martial-law1.png)
+
+![walmart-fema-martial-law1.png](images/walmart-fema-martial-law1.png)
+
 - [walmart-martial-law.png](images/walmart-martial-law.png)
 
 ![walmart-martial-law.png](images/walmart-martial-law.png)
