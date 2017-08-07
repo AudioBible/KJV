@@ -81,6 +81,10 @@ It's all connected to the biggest lie in the world, about the shape of the world
 
 [Do You Know How It Will All End? - This Man Reveals All Their Plans (P3)](https://www.youtube.com/watch?v=RNYgEfStYn4)
 
+[![walmart-martial-law](images/walmart-martial-law.png)](https://www.youtube.com/watch?v=EG48HsywpHU)
+
+[It's no longer a theory, Its reality(WALMART-MART-LAW) Pt.2](https://www.youtube.com/watch?v=EG48HsywpHU)
+
 ## NO OFFENSE BUT WE ARE IN TROUBLE AND THE TRUTH MUST BE SEEN AND HEARD!
 
 ## SILENCE IS BETRAYAL! TRUTH IS HERE NOW! YOU CAN'T ESCAPE IT! LEARN IT!

@@ -2043,6 +2043,10 @@ IMAGES
 
 ![walmart-fema-camps.png](images/walmart-fema-camps.png)
 
+- [walmart-martial-law.png](images/walmart-martial-law.png)
+
+![walmart-martial-law.png](images/walmart-martial-law.png)
+
 - [western-powers-are-liars.png](images/western-powers-are-liars.png)
 
 ![western-powers-are-liars.png](images/western-powers-are-liars.png)
