@@ -2039,6 +2039,10 @@ IMAGES
 
 ![usa-mexican-repatriation-act2.png](images/usa-mexican-repatriation-act2.png)
 
+- [walmart-fema-camps.png](images/walmart-fema-camps.png)
+
+![walmart-fema-camps.png](images/walmart-fema-camps.png)
+
 - [western-powers-are-liars.png](images/western-powers-are-liars.png)
 
 ![western-powers-are-liars.png](images/western-powers-are-liars.png)

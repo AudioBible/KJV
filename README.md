@@ -77,6 +77,10 @@ It's all connected to the biggest lie in the world, about the shape of the world
 
 [THE MOST DISTURBING VIDEO OF 2017 by Captain Obvious](https://www.youtube.com/watch?v=t4jUWgHhDvU)
 
+[![walmart-fema-camps](images/walmart-fema-camps.png)](https://www.youtube.com/watch?v=RNYgEfStYn4)
+
+[Do You Know How It Will All End? - This Man Reveals All Their Plans (P3)](https://www.youtube.com/watch?v=RNYgEfStYn4)
+
 ## NO OFFENSE BUT WE ARE IN TROUBLE AND THE TRUTH MUST BE SEEN AND HEARD!
 
 ## SILENCE IS BETRAYAL! TRUTH IS HERE NOW! YOU CAN'T ESCAPE IT! LEARN IT!
