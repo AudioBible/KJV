@@ -101,6 +101,10 @@ It's all connected to the biggest lie in the world, about the shape of the world
 
 [Jesuits Have Seized The White House.](https://www.youtube.com/watch?v=YtRBexcpFTA)
 
+[![the-secret-instructions-of-the-jesuits](images/the-secret-instructions-of-the-jesuits.png)](https://www.youtube.com/watch?v=ixZrnHDrESg)
+
+[Old Jesuit Book Reveals True Agenda !!! (Must see)](https://www.youtube.com/watch?v=ixZrnHDrESg)
+
 ## NO OFFENSE BUT WE ARE IN TROUBLE AND THE TRUTH MUST BE SEEN AND HEARD!
 
 ## SILENCE IS BETRAYAL! TRUTH IS HERE NOW! YOU CAN'T ESCAPE IT! LEARN IT!

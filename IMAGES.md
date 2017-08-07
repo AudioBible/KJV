@@ -1983,6 +1983,10 @@ IMAGES
 
 ![the-firmament.jpeg](images/the-firmament.jpeg)
 
+- [the-secret-instructions-of-the-jesuits.png](images/the-secret-instructions-of-the-jesuits.png)
+
+![the-secret-instructions-of-the-jesuits.png](images/the-secret-instructions-of-the-jesuits.png)
+
 - [they-live-facts.png](images/they-live-facts.png)
 
 ![they-live-facts.png](images/they-live-facts.png)
