@@ -2043,6 +2043,10 @@ IMAGES
 
 ![walmart-fema-camps.png](images/walmart-fema-camps.png)
 
+- [walmart-fema-martial-law.png](images/walmart-fema-martial-law.png)
+
+![walmart-fema-martial-law.png](images/walmart-fema-martial-law.png)
+
 - [walmart-martial-law.png](images/walmart-martial-law.png)
 
 ![walmart-martial-law.png](images/walmart-martial-law.png)

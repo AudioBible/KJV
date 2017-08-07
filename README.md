@@ -85,6 +85,10 @@ It's all connected to the biggest lie in the world, about the shape of the world
 
 [It's no longer a theory, Its reality(WALMART-MART-LAW) Pt.2](https://www.youtube.com/watch?v=EG48HsywpHU)
 
+[![walmart-fema-martial-law](images/walmart-fema-martial-law.png)](https://www.youtube.com/watch?v=GHFzwkC42-0)
+
+[Look Like a Walmart Location To You? - This Reveals All Their Plans!](https://www.youtube.com/watch?v=GHFzwkC42-0)
+
 ## NO OFFENSE BUT WE ARE IN TROUBLE AND THE TRUTH MUST BE SEEN AND HEARD!
 
 ## SILENCE IS BETRAYAL! TRUTH IS HERE NOW! YOU CAN'T ESCAPE IT! LEARN IT!
