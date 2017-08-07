@@ -8,3 +8,4 @@ ARTICLES
 ========
 
 - [Pastor with 666 tattoo claims to be divine](http://www.cnn.com/2007/US/02/16/miami.preacher/index.html?_s=PM:US)
+- [Google business listing shows many Walmarts being "closed"](http://www.4029tv.com/article/google-business-listing-shows-many-walmarts-being-closed/4958793)
