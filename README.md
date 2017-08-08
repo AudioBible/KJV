@@ -113,6 +113,10 @@ It's all connected to the biggest lie in the world, about the shape of the world
 
 [Rapture Not Biblical Part 1](https://www.youtube.com/watch?v=zMWV1spomZc)
 
+[![rapture-is-not-biblical](images/rapture-is-not-biblical.png)](https://www.youtube.com/watch?v=i3hXKNTMuEY)
+
+[Jesuits Created The Secret Rapture & 7 Year Tribulation, & Both Are False Doctrines And Unbiblical](https://www.youtube.com/watch?v=i3hXKNTMuEY)
+
 ## NO OFFENSE BUT WE ARE IN TROUBLE AND THE TRUTH MUST BE SEEN AND HEARD!
 
 ## SILENCE IS BETRAYAL! TRUTH IS HERE NOW! YOU CAN'T ESCAPE IT! LEARN IT!

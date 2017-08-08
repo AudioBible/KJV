@@ -1931,6 +1931,10 @@ IMAGES
 
 ![q3tdtb.jpg](images/q3tdtb.jpg)
 
+- [rapture-is-not-biblical.png](images/rapture-is-not-biblical.png)
+
+![rapture-is-not-biblical.png](images/rapture-is-not-biblical.png)
+
 - [rapture-is-not-what-youve-been-led-to-believe-all-your-life.png](images/rapture-is-not-what-youve-been-led-to-believe-all-your-life.png)
 
 ![rapture-is-not-what-youve-been-led-to-believe-all-your-life.png](images/rapture-is-not-what-youve-been-led-to-believe-all-your-life.png)
