@@ -83,7 +83,7 @@ It's all connected to the biggest lie in the world, about the shape of the world
 
 [![walmart-martial-law](images/walmart-martial-law.png)](https://www.youtube.com/watch?v=EG48HsywpHU)
 
-[It's no longer a theory, Its reality(WALMART-MART-LAW) Pt.2](https://www.youtube.com/watch?v=EG48HsywpHU)
+[It's no longer a theory, Its reality(WALMART-MART-LAW)](https://www.youtube.com/watch?v=xe_Bjxoe5ts)
 
 [![walmart-fema-martial-law](images/walmart-fema-martial-law.png)](https://www.youtube.com/watch?v=GHFzwkC42-0)
 
@@ -108,6 +108,8 @@ It's all connected to the biggest lie in the world, about the shape of the world
 [![illuminate-card-game-is-complete](images/illuminate-card-game-is-complete.png)](https://www.youtube.com/watch?v=5XDxgKnv7eE)
 
 [Illuminati card game Complete .](https://www.youtube.com/watch?v=5XDxgKnv7eE)
+
+[![rapture-is-not-what-youve-been-led-to-believe-all-your-life](images/rapture-is-not-what-youve-been-led-to-believe-all-your-life.png)]()
 
 ## NO OFFENSE BUT WE ARE IN TROUBLE AND THE TRUTH MUST BE SEEN AND HEARD!
 
