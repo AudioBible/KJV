@@ -117,6 +117,10 @@ It's all connected to the biggest lie in the world, about the shape of the world
 
 [Jesuits Created The Secret Rapture & 7 Year Tribulation, & Both Are False Doctrines And Unbiblical](https://www.youtube.com/watch?v=i3hXKNTMuEY)
 
+[![beware-the-greatest-deception-of-all](images/beware-the-greatest-deception-of-all.png)](https://www.youtube.com/watch?v=8Gsj9Ed8qkU)
+
+[Beware: The Greatest Deception of All - Billions will be Deceived](https://www.youtube.com/watch?v=8Gsj9Ed8qkU)
+
 ## NO OFFENSE BUT WE ARE IN TROUBLE AND THE TRUTH MUST BE SEEN AND HEARD!
 
 ## SILENCE IS BETRAYAL! TRUTH IS HERE NOW! YOU CAN'T ESCAPE IT! LEARN IT!

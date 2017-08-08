@@ -1371,6 +1371,10 @@ IMAGES
 
 ![basic-pyramid-structure.jpg](images/basic-pyramid-structure.jpg)
 
+- [beware-the-greatest-deception-of-all.png](images/beware-the-greatest-deception-of-all.png)
+
+![beware-the-greatest-deception-of-all.png](images/beware-the-greatest-deception-of-all.png)
+
 - [c56a239f3de743f2b577f6a50c8734e7.jpg](images/c56a239f3de743f2b577f6a50c8734e7.jpg)
 
 ![c56a239f3de743f2b577f6a50c8734e7.jpg](images/c56a239f3de743f2b577f6a50c8734e7.jpg)
