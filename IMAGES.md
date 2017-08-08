@@ -1783,6 +1783,10 @@ IMAGES
 
 ![hqdefault.jpg](images/hqdefault.jpg)
 
+- [illuminate-card-game-is-complete.png](images/illuminate-card-game-is-complete.png)
+
+![illuminate-card-game-is-complete.png](images/illuminate-card-game-is-complete.png)
+
 - [img_0478.jpg](images/img_0478.jpg)
 
 ![img_0478.jpg](images/img_0478.jpg)

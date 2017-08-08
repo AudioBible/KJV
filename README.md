@@ -105,6 +105,10 @@ It's all connected to the biggest lie in the world, about the shape of the world
 
 [Old Jesuit Book Reveals True Agenda !!! (Must see)](https://www.youtube.com/watch?v=ixZrnHDrESg)
 
+[![illuminate-card-game-is-complete](images/illuminate-card-game-is-complete.png)](https://www.youtube.com/watch?v=5XDxgKnv7eE)
+
+[Illuminati card game Complete .](https://www.youtube.com/watch?v=5XDxgKnv7eE)
+
 ## NO OFFENSE BUT WE ARE IN TROUBLE AND THE TRUTH MUST BE SEEN AND HEARD!
 
 ## SILENCE IS BETRAYAL! TRUTH IS HERE NOW! YOU CAN'T ESCAPE IT! LEARN IT!
