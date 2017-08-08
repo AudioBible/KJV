@@ -109,7 +109,7 @@ It's all connected to the biggest lie in the world, about the shape of the world
 
 [Illuminati card game Complete .](https://www.youtube.com/watch?v=5XDxgKnv7eE)
 
-[![rapture-is-not-what-youve-been-led-to-believe-all-your-life](images/rapture-is-not-what-youve-been-led-to-believe-all-your-life.png)]()
+[![rapture-is-not-what-youve-been-led-to-believe-all-your-life](images/rapture-is-not-what-youve-been-led-to-believe-all-your-life.png)](http://www.kingjamesbibledictionary.com/Dictionary/rapture)
 
 ## NO OFFENSE BUT WE ARE IN TROUBLE AND THE TRUTH MUST BE SEEN AND HEARD!
 
