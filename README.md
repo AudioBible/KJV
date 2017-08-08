@@ -111,6 +111,8 @@ It's all connected to the biggest lie in the world, about the shape of the world
 
 [![rapture-is-not-what-youve-been-led-to-believe-all-your-life](images/rapture-is-not-what-youve-been-led-to-believe-all-your-life.png)](http://www.kingjamesbibledictionary.com/Dictionary/rapture)
 
+[Rapture Not Biblical Part 1](https://www.youtube.com/watch?v=zMWV1spomZc)
+
 ## NO OFFENSE BUT WE ARE IN TROUBLE AND THE TRUTH MUST BE SEEN AND HEARD!
 
 ## SILENCE IS BETRAYAL! TRUTH IS HERE NOW! YOU CAN'T ESCAPE IT! LEARN IT!
