@@ -129,6 +129,10 @@ It's all connected to the biggest lie in the world, about the shape of the world
 
 [DEPARTMENT OF DEFENSE SAYS EARTH IS FLAT & STATIONARY. THE END TO FAKE SPINNING GLOBE](https://www.youtube.com/watch?v=EGk3jW95bbA)
 
+[![un-plan-to-destroy-america-control-food-fema-camps](images/un-plan-to-destroy-america-control-food-fema-camps.png)](https://www.youtube.com/watch?v=ZC5BdOsASpc)
+
+[Shocking Military Letter Confirms UN Plans To Soon Destroy America and More!](https://www.youtube.com/watch?v=ZC5BdOsASpc)
+
 ## EVERYTHING THEY SAY IS REALLY THE OPPOSITE OF WHAT THEY SAY!
 
 ## NO OFFENSE BUT WE ARE IN TROUBLE AND THE TRUTH MUST BE SEEN AND HEARD!
