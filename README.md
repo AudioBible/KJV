@@ -125,6 +125,10 @@ It's all connected to the biggest lie in the world, about the shape of the world
 
 [IS FLAT EARTH A PSYOP TO DISCREDIT A GEOCENTRIC EARTH? Rick DeLano Interview for THE PRINCIPLE](https://www.youtube.com/watch?v=HxeKoII1UPk)
 
+[![dod-flat-earth](images/dod-flat-earth.png)](https://www.youtube.com/watch?v=EGk3jW95bbA)
+
+[DEPARTMENT OF DEFENSE SAYS EARTH IS FLAT & STATIONARY. THE END TO FAKE SPINNING GLOBE](https://www.youtube.com/watch?v=EGk3jW95bbA)
+
 ## EVERYTHING THEY SAY IS REALLY THE OPPOSITE OF WHAT THEY SAY!
 
 ## NO OFFENSE BUT WE ARE IN TROUBLE AND THE TRUTH MUST BE SEEN AND HEARD!
