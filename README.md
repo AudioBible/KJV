@@ -121,6 +121,12 @@ It's all connected to the biggest lie in the world, about the shape of the world
 
 [Beware: The Greatest Deception of All - Billions will be Deceived](https://www.youtube.com/watch?v=8Gsj9Ed8qkU)
 
+[![science-vs-religion](images/science-vs-religion.png)](https://www.youtube.com/watch?v=HxeKoII1UPk)
+
+[IS FLAT EARTH A PSYOP TO DISCREDIT A GEOCENTRIC EARTH? Rick DeLano Interview for THE PRINCIPLE](https://www.youtube.com/watch?v=HxeKoII1UPk)
+
+## EVERYTHING THEY SAY IS REALLY THE OPPOSITE OF WHAT THEY SAY!
+
 ## NO OFFENSE BUT WE ARE IN TROUBLE AND THE TRUTH MUST BE SEEN AND HEARD!
 
 ## SILENCE IS BETRAYAL! TRUTH IS HERE NOW! YOU CAN'T ESCAPE IT! LEARN IT!

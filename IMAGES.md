@@ -1975,6 +1975,10 @@ IMAGES
 
 ![science-max-planck.png](images/science-max-planck.png)
 
+- [science-vs-religion.png](images/science-vs-religion.png)
+
+![science-vs-religion.png](images/science-vs-religion.png)
+
 - [second-coming-of-jesus-christ_heaven-opened-up.jpg](images/second-coming-of-jesus-christ_heaven-opened-up.jpg)
 
 ![second-coming-of-jesus-christ_heaven-opened-up.jpg](images/second-coming-of-jesus-christ_heaven-opened-up.jpg)
