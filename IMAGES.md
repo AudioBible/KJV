@@ -1799,6 +1799,10 @@ IMAGES
 
 ![illuminati-card-game-flat-earthers-nasa.png](images/illuminati-card-game-flat-earthers-nasa.png)
 
+- [illuminati-card-game-hillary-clinton.png](images/illuminati-card-game-hillary-clinton.png)
+
+![illuminati-card-game-hillary-clinton.png](images/illuminati-card-game-hillary-clinton.png)
+
 - [img_0478.jpg](images/img_0478.jpg)
 
 ![img_0478.jpg](images/img_0478.jpg)

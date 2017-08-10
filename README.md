@@ -141,6 +141,10 @@ It's all connected to the biggest lie in the world, about the shape of the world
 
 [ILLUMINATI CARD GAME EXPOSED!!! Just A Game? Or Really The TRUTH?](https://www.youtube.com/watch?v=5dhV5xlWFw0)
 
+[![illuminati-card-game-hillary-clinton](images/illuminati-card-game-hillary-clinton.png)](https://www.youtube.com/watch?v=NHFGImDon24)
+
+[ILLUMINATI CARD GAME EXPOSED!!! PART TWO!](https://www.youtube.com/watch?v=NHFGImDon24)
+
 ## EVERYTHING THEY SAY IS REALLY THE OPPOSITE OF WHAT THEY SAY!
 
 ## NO OFFENSE BUT WE ARE IN TROUBLE AND THE TRUTH MUST BE SEEN AND HEARD!
