@@ -133,6 +133,10 @@ It's all connected to the biggest lie in the world, about the shape of the world
 
 [Shocking Military Letter Confirms UN Plans To Soon Destroy America and More!](https://www.youtube.com/watch?v=ZC5BdOsASpc)
 
+[![the-first-sign-of-Jesus-return-is-deception](images/the-first-sign-of-Jesus-return-is-deception.png)](https://www.youtube.com/watch?v=TCaMSo4bcxA)
+
+[I was Forced to Leave my Church](https://www.youtube.com/watch?v=TCaMSo4bcxA)
+
 ## EVERYTHING THEY SAY IS REALLY THE OPPOSITE OF WHAT THEY SAY!
 
 ## NO OFFENSE BUT WE ARE IN TROUBLE AND THE TRUTH MUST BE SEEN AND HEARD!

@@ -2007,6 +2007,10 @@ IMAGES
 
 ![the-firmament.jpeg](images/the-firmament.jpeg)
 
+- [the-first-sign-of-Jesus-return-is-deception.png](images/the-first-sign-of-Jesus-return-is-deception.png)
+
+![the-first-sign-of-Jesus-return-is-deception.png](images/the-first-sign-of-Jesus-return-is-deception.png)
+
 - [the-secret-instructions-of-the-jesuits.png](images/the-secret-instructions-of-the-jesuits.png)
 
 ![the-secret-instructions-of-the-jesuits.png](images/the-secret-instructions-of-the-jesuits.png)
