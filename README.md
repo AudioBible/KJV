@@ -137,6 +137,10 @@ It's all connected to the biggest lie in the world, about the shape of the world
 
 [I was Forced to Leave my Church](https://www.youtube.com/watch?v=TCaMSo4bcxA)
 
+[![illuminati-card-game-flat-earthers-nasa](images/illuminati-card-game-flat-earthers-nasa.png)](https://www.youtube.com/watch?v=5dhV5xlWFw0)
+
+[ILLUMINATI CARD GAME EXPOSED!!! Just A Game? Or Really The TRUTH?](https://www.youtube.com/watch?v=5dhV5xlWFw0)
+
 ## EVERYTHING THEY SAY IS REALLY THE OPPOSITE OF WHAT THEY SAY!
 
 ## NO OFFENSE BUT WE ARE IN TROUBLE AND THE TRUTH MUST BE SEEN AND HEARD!
