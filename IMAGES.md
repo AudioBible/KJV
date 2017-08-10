@@ -1803,6 +1803,10 @@ IMAGES
 
 ![illuminati-card-game-hillary-clinton.png](images/illuminati-card-game-hillary-clinton.png)
 
+- [illuminati-card-game-plague-of-demons.png](images/illuminati-card-game-plague-of-demons.png)
+
+![illuminati-card-game-plague-of-demons.png](images/illuminati-card-game-plague-of-demons.png)
+
 - [img_0478.jpg](images/img_0478.jpg)
 
 ![img_0478.jpg](images/img_0478.jpg)

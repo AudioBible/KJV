@@ -145,6 +145,10 @@ It's all connected to the biggest lie in the world, about the shape of the world
 
 [ILLUMINATI CARD GAME EXPOSED!!! PART TWO!](https://www.youtube.com/watch?v=NHFGImDon24)
 
+[![illuminati-card-game-plague-of-demons](images/illuminati-card-game-plague-of-demons.png)](https://www.youtube.com/watch?v=qaSngXGfvdY)
+
+[ILLUMINATI CARD GAME EXPOSED!!! PART THREE!](https://www.youtube.com/watch?v=qaSngXGfvdY)
+
 ## EVERYTHING THEY SAY IS REALLY THE OPPOSITE OF WHAT THEY SAY!
 
 ## NO OFFENSE BUT WE ARE IN TROUBLE AND THE TRUTH MUST BE SEEN AND HEARD!
