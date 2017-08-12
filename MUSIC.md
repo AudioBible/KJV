@@ -4,12 +4,14 @@
 
 [VIDEOS](VIDEOS.md) | [MUSIC](MUSIC.md) | [CHANNELS](CHANNELS.md) | [DOCUMENTS](DOCUMENTS.md) | [IMAGES](IMAGES.md) | [BOOKS](BOOKS.md) | [LINKS](LINKS.md) | [INFO](INFO.md) | **Join The Revolution**
 
-MUSIC VIDEOS
-============
+MUSIC
+=====
+
+- [https://soundcloud.com/waynelevi](https://soundcloud.com/waynelevi)
 
 **Note:** You can use [http://listenonrepeat.com](http://listenonrepeat.com) for any videos that you want to listen to on repeat!
 
-**Note:** Some songs may have explicit language. Please don't judge people for the language they use or their personality. Listen the message they are saying. Most of all please share the love with others! It's a lot worse to be out there killing people over oil, than to say a four letter word. Who's side are you on?
+**Note:** Some songs may have explicit language. Please don't judge people for the language they use or their personality. Lest you be judged the way you judge! Listen the message they are saying. Most of all please share the love with others! It's a lot worse to be out there killing people over oil, than to say a four letter word. Who's side are you on?
 
 #### [Truth Music - **MUST SEE AND HEAR**](https://www.youtube.com/watch?v=TlTR7QQZQ8I&list=PL7X63Sm3kODPV43FyewOSadSnZwZGZQHU&index=1) [playlist with ~700 songs] this playlist has a lot of the music that can be found in the list below
 
