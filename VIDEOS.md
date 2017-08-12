@@ -46,7 +46,7 @@ You can trust a regular person more than you can trust a corporation or a govern
 - [Sodom & Gomorrah FULL VIDEO](https://www.youtube.com/watch?v=WWpknxvxLpk) [MOVIE]
 - [The Story of Joseph and His Brethren (1962)](https://www.youtube.com/watch?v=u2dM_kW-SOI) [MOVIE]
 - [Abraham, Sarah, Isaac, Jacob ( Full Movie )](https://www.youtube.com/watch?v=V5WNbtj3gZs) [MOVIE]
-- [The Ten Commandments.Full Movie HD.](https://www.youtube.com/watch?v=4s320VeVUQA) [MOVIE]
+- [The Ten Commandments.Full Movie HD.](https://www.youtube.com/watch?v=5agCW-tM5Bo) [MOVIE]
 - [Jesus Of Nazareth (Original Bible Movie) 1977](https://www.youtube.com/watch?v=pG6Y88iQhCE) [MOVIE]
 - [Jesus is Coming Full Movie](https://www.youtube.com/watch?v=Gi0eW2BEOXM) [MOVIE]
 - [The Books Of Enoch: COMPLETE EDITION, All 3 Books - Flat Earth](https://www.youtube.com/watch?v=s7TynhdCPI4)
