@@ -7,6 +7,7 @@
 LINKS
 =====
 
+- [https://flatearthscienceandbible.com/](https://flatearthscienceandbible.com/)
 - [http://bewareofspiritualdeception.com/](http://bewareofspiritualdeception.com/)
 - [http://www.false-teachers.com/](http://www.false-teachers.com/)
 - [http://www.flatearthconspiracy.com/](http://www.flatearthconspiracy.com/)
