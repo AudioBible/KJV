@@ -106,3 +106,4 @@ This is by no means an exhaustive list of channels, it should be enough to get y
 - [TallPaulToo](https://www.youtube.com/user/TallPaulToo)
 - [TheCompleteTruthBlog](https://www.youtube.com/user/TheCompleteTruthBlog/videos)
 - [GLOBEBUSTERS](https://www.youtube.com/channel/UCXIovaBdnA4UHdd-TZ-MqRg)
+- [carlos peguero](https://www.youtube.com/channel/UCzNoCSJlEtFubP9fwDvo3CQ)
