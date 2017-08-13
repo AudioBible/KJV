@@ -1871,6 +1871,10 @@ IMAGES
 
 ![img_0478.jpg](images/img_0478.jpg)
 
+- [img_4493.jpg](images/img_4493.jpg)
+
+![img_4493.jpg](images/img_4493.jpg)
+
 - [img_9972.jpeg](images/img_9972.jpeg)
 
 ![img_9972.jpeg](images/img_9972.jpeg)
