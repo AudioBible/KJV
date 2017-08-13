@@ -386,7 +386,7 @@ You can trust a regular person more than you can trust a corporation or a govern
 
 **Note:** Watch more videos on youtube [The Mind of God (Pastor Charles Lawson)](https://www.youtube.com/watch?v=RoF9iBRyLAI&list=PLHjf9oqszTVaOR3XenoMOBHKY1SrBFYFu) [playlist]
 
-- [King James Video Ministries KICKED OFF Sermon Audio!!!](https://www.youtube.com/watch?v=NbTbMpvhSVo)
+- [FULL SERMON - Pastor Dean Odle lays out the Flat Earth to his congregation ✅](https://www.youtube.com/watch?v=z5sE0ZHFMdY)
 - [Are You Serious? Flat Earth?](https://www.youtube.com/watch?v=VkGm0rcxCBU)
 - [Illumination of the Third Eye - Pastor Charles Lawson](https://www.youtube.com/watch?v=8B-KT94bWHg)
 - [The Fruits Of The Holy Spirit](https://www.youtube.com/watch?v=AFNAriKobp8)
