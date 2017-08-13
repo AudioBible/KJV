@@ -19,3 +19,6 @@ BOOKS
 - [Placebo - Howard Pittman](https://www.amazon.com/Placebo-Howard-O-Pittman/dp/B0017YQLLU)
 - [Demons: An Eyewitness Account](https://www.amazon.com/Demons-Eyewitness-Howard-O-Pittman/dp/B000HCWBCG)
 - [Tracking Inmates and Locating Staff with Active Radio-Frequency Identification (RFID): Early Lessons Learned in One U.S. Correctional Facility - Scholar's Choice Edition](https://www.amazon.com/Tracking-Inmates-Locating-Radio-Frequency-Identification/dp/1296047962)
+- [Worlds Beyond the Poles: Physical Continuity of the UniverseOct 7, 2016 by F. Amadeo Giannini](https://www.amazon.com/Worlds-Beyond-Poles-Physical-Continuity/dp/0986130532)
+- [The Missing Diary Of Admiral Richard E. ByrdDec 20, 2013 by Adm Richard E. Byrd](https://www.amazon.com/Missing-Diary-Admiral-Richard-Byrd/dp/0938294911)
+- [Firmament: Vaulted Dome of the EarthApr 24, 2017 by Zen Garcia](https://www.amazon.com/Firmament-Vaulted-Earth-Zen-Garcia/dp/136507384X)
