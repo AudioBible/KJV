@@ -13,6 +13,8 @@ MUSIC
 
 **Note:** Some songs may have explicit language. Please don't judge people for the language they use or their personality. Lest you be judged the way you judge! Listen the message they are saying. Most of all please share the love with others! It's a lot worse to be out there killing people over oil, than to say a four letter word. Who's side are you on?
 
+#### You not only F***ing yourself but also your neighbor and me by not listening to people like PyaDay Monsanto, K-Rino, ODD TV and Eric Dubay! 
+
 #### [Truth Music - **MUST SEE AND HEAR**](https://www.youtube.com/watch?v=TlTR7QQZQ8I&list=PL7X63Sm3kODPV43FyewOSadSnZwZGZQHU&index=1) [playlist with ~700 songs] this playlist has a lot of the music that can be found in the list below
 
 ![12004556-explicit-content](images/12004556-explicit-content.jpg)
