@@ -183,6 +183,8 @@ It's all connected to the biggest lie in the world, about the shape of the world
 
 ### THE BEST THING YOU CAN DO WITH YOUR TIME IS SHARE THE INFO AND MAKE PEOPLE AWARE!
 
+### IT'S NOT POSSIBLE FOR YOU TO BE OPEN MINDED WHEN YOUR MIND IS IN A MENTAL PRISON!
+
 [![ODD-TV-Living-In-Hell-Playlist](images/ODD-TV-Living-In-Hell-Playlist.png)](https://www.youtube.com/watch?v=TlTR7QQZQ8I&list=PL7X63Sm3kODPV43FyewOSadSnZwZGZQHU&index=1)
 
 ## послушай музыку анти ню ворлд ордер﻿! Listen to anti new world order music!
