@@ -700,7 +700,7 @@ You can trust a regular person more than you can trust a corporation or a govern
 - [Natural Free Birthing For Bible Believers](https://www.youtube.com/watch?v=jZ4GuLTLBF4)
 - [Gravity Doesn't Exist - It's Only A Theory - Series 1 Episode 8 Preview - BBC Four - YouTube](https://www.youtube.com/watch?v=k-W2kQZgIoU)
 
-**Note:** Not all videos made it to this list, so do your research and watch out for disinformation. After a while you will be able to tell what is the truth, by the message content. Be smart! Don't trust "Credentials" and don't put faith into humanity, technology or science, only put your faith in the Godhead(Father, Son and Holy Ghost) and Prayer!
+**Note:** Not all videos made it to this list, so do your research and watch out for disinformation. After a while you will be able to tell what is the truth, by the message content. Be smart! Don't trust "Credentials" and don't put faith into humanity, technology or science, only put your faith in the Godhead(Father, Son and Holy Ghost) and Prayer! [https://www.youtube.com/watch?v=Bh3n1Y_J_ak](https://www.youtube.com/watch?v=Bh3n1Y_J_ak)
 
 
 # audiobible show 1_j 5
