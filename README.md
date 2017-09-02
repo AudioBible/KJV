@@ -17,6 +17,8 @@ It's all connected to the biggest lie in the world, about the shape of the world
 > Pride aside. The earth is flat and that's not even the important bit..the reasons they're lying will lead you to the origins of earth, who and what we are, where we live and what we are doing here, free energy, frequencies and magnesium. good luck.﻿
 - JJN
 
+[![plane-flying-thru-the-sun](images/plane-flying-thru-the-sun.png)](https://www.youtube.com/watch?v=eN8yhUzqLCA)
+
 [![fake-news-lies-and-deception](images/fake-news-lies-and-deception.png)](https://www.youtube.com/watch?v=4uBgd8XlYwg)
 
 [YOU'VE BEEN BRAINWASHED SINCE BIRTH by Captain Obvious](https://www.youtube.com/watch?v=4uBgd8XlYwg)
