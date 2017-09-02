@@ -19,6 +19,8 @@ It's all connected to the biggest lie in the world, about the shape of the world
 
 [![plane-flying-thru-the-sun](images/plane-flying-thru-the-sun.png)](https://www.youtube.com/watch?v=eN8yhUzqLCA)
 
+[I witnessed the most mysterious thing ever - Plane flying THROUGH the Sun](https://www.youtube.com/watch?v=eN8yhUzqLCA)
+
 [![fake-news-lies-and-deception](images/fake-news-lies-and-deception.png)](https://www.youtube.com/watch?v=4uBgd8XlYwg)
 
 [YOU'VE BEEN BRAINWASHED SINCE BIRTH by Captain Obvious](https://www.youtube.com/watch?v=4uBgd8XlYwg)
