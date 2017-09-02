@@ -33,6 +33,8 @@ I got kicked out of a church yesterday, First time in my life! I told them I was
 
 ![youtube-search-flat-earth-flier](images/youtube-search-flat-earth-flier.png)
 
+![flat-earth-channels-flier.jpg](images/flat-earth-channels-flier.jpg)
+
 ### 3. Leave this comment all over the internet, on youtube, twitter, facebook, etc; on all posts and/or videos you can get your hands on, trending, new, old, on all content. make sure the link can lead people back here to watch the videos and share this with others. 
 
 **tip:** you may want to have multiple tabs open and mute the tabs and switch back and forth between the tabs to to more commenting with your time. Copy and paste this comment all over the internets. Formulate the message payload to fit within the message length limits, and translate to your native language or other languages, if you like.
