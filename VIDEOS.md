@@ -312,6 +312,7 @@ You can trust a regular person more than you can trust a corporation or a govern
 - [Demons Exposed - How People Open Portals - Part 1](https://www.youtube.com/watch?v=P6h_bjoh-Uw)
 - [Demons Exposed - How People Open Portals - Part 2](https://www.youtube.com/watch?v=LolFyWi6TwA)
 - [Demons Exposed - How People Open Portals - Part 3](https://www.youtube.com/watch?v=xwf93UEiWY0)
+- [Demons Exposed - Suicide Spirit](https://www.youtube.com/watch?v=7isqkpn2Hlo)
 - [The Devil's Playbook (How He Deceives You)! Part 1](https://www.youtube.com/watch?v=tNDz75-9bps)
 - [The Devil's Playbook (How He Deceives You)! Part 2](https://www.youtube.com/watch?v=yZ6IgXQc2m0)
 - [The Devil's Playbook (How He Deceives You)! Part 3](https://www.youtube.com/watch?v=HzSpQRT3k_g)
