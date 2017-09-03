@@ -25,7 +25,7 @@ MUSIC
 
 [ODD TV - Never Sleep Again - Full Album Lyrics - 432hz Truth Music ▶️️](https://www.youtube.com/watch?v=TlTR7QQZQ8I)
 
-#### You not only screwing yourself but also your neighbor and me by not listening to people like PyaDay Monsanto, K-Rino, ODD TV and Eric Dubay. It's called Truth Music. Stop being a homo!
+#### You not only screwing yourself but also your neighbor and me by not listening to people like PayDay Monsanto, K-Rino, ODD TV, B.o.B and Eric Dubay. It's called Truth Music. Stop being a homo!
 
 #### [Truth Music - **MUST SEE AND HEAR**](https://www.youtube.com/watch?v=TlTR7QQZQ8I&list=PL7X63Sm3kODPV43FyewOSadSnZwZGZQHU&index=1) [playlist with ~700 songs] this playlist has a lot of the music that can be found in the list below
 
