@@ -189,7 +189,7 @@ It's all connected to the biggest lie in the world, about the shape of the world
 
 ### IT'S IMPOSSIBLE TO BE TRULY FREE WHEN YOUR MIND IS IN A MENTAL PRISON!
 
-## TRUTH HURTS WHEN YOU BELIEVE LIES!
+# TRUTH HURTS WHEN YOU BELIEVE LIES!
 
 [![ODD-TV-Living-In-Hell-Playlist](images/ODD-TV-Living-In-Hell-Playlist.png)](https://www.youtube.com/watch?v=TlTR7QQZQ8I&list=PL7X63Sm3kODPV43FyewOSadSnZwZGZQHU&index=1)
 
