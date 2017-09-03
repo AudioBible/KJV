@@ -7,6 +7,8 @@
 MUSIC
 =====
 
+# TRUTH HURTS WHEN YOU BELIEVE LIES!
+
 - [https://soundcloud.com/waynelevi](https://soundcloud.com/waynelevi)
 
 **Note:** You can use [http://listenonrepeat.com](http://listenonrepeat.com) for any videos that you want to listen to on repeat!
