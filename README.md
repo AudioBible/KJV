@@ -430,6 +430,124 @@ http://audiobible.life плоская земля! Плоска Земя! Płaski
 - TT
 
 
+# audiobible find ignor -A1
+
+
+    LEVITICUS 4:2 Speak unto the children of Israel, saying, If a soul shall sin through ignorance against any of the commandments of the LORD concerning things which ought not to be done, and shall do against any of them:
+
+    LEVITICUS 4:3 If the priest that is anointed do sin according to the sin of the people; then let him bring for his sin, which he hath sinned, a young bullock without blemish unto the LORD for a sin offering.
+
+    LEVITICUS 4:13 And if the whole congregation of Israel sin through ignorance, and the thing be hid from the eyes of the assembly, and they have done somewhat against any of the commandments of the LORD concerning things which should not be done, and are guilty;
+
+    LEVITICUS 4:14 When the sin, which they have sinned against it, is known, then the congregation shall offer a young bullock for the sin, and bring him before the tabernacle of the congregation.
+
+    LEVITICUS 4:22 When a ruler hath sinned, and done somewhat through ignorance against any of the commandments of the LORD his God concerning things which should not be done, and is guilty;
+
+    LEVITICUS 4:23 Or if his sin, wherein he hath sinned, come to his knowledge; he shall bring his offering, a kid of the goats, a male without blemish:
+
+    LEVITICUS 4:27 And if any one of the common people sin through ignorance, while he doeth somewhat against any of the commandments of the LORD concerning things which ought not to be done, and be guilty;
+
+    LEVITICUS 4:28 Or if his sin, which he hath sinned, come to his knowledge: then he shall bring his offering, a kid of the goats, a female without blemish, for his sin which he hath sinned.
+
+    LEVITICUS 5:15 If a soul commit a trespass, and sin through ignorance, in the holy things of the LORD; then he shall bring for his trespass unto the LORD a ram without blemish out of the flocks, with thy estimation by shekels of silver, after the shekel of the sanctuary, for a trespass offering.
+
+    LEVITICUS 5:16 And he shall make amends for the harm that he hath done in the holy thing, and shall add the fifth part thereto, and give it unto the priest: and the priest shall make an atonement for him with the ram of the trespass offering, and it shall be forgiven him.
+
+    LEVITICUS 5:18 And he shall bring a ram without blemish out of the flock, with thy estimation, for a trespass offering, unto the priest: and the priest shall make an atonement for him concerning his ignorance wherein he erred and wist it not, and it shall be forgiven him.
+
+    LEVITICUS 5:19 It is a trespass offering: he hath certainly trespassed against the LORD.
+
+    NUMBERS 15:24 Then it shall be, if ought be committed by ignorance without the knowledge of the congregation, that all the congregation shall offer one young bullock for a burnt offering, for a sweet savor unto the LORD, with his meat offering, and his drink offering, according to the manner, and one kid of the goats for a sin offering.
+
+    NUMBERS 15:25 And the priest shall make an atonement for all the congregation of the children of Israel, and it shall be forgiven them; for it is ignorance: and they shall bring their offering, a sacrifice made by fire unto the LORD, and their sin offering before the LORD, for their ignorance:
+
+    NUMBERS 15:26 And it shall be forgiven all the congregation of the children of Israel, and the stranger that sojourneth among them; seeing all the people were in ignorance.
+
+    NUMBERS 15:27 And if any soul sin through ignorance, then he shall bring a she goat of the first year for a sin offering.
+
+    NUMBERS 15:28 And the priest shall make an atonement for the soul that sinneth ignorantly, when he sinneth by ignorance before the LORD, to make an atonement for him; and it shall be forgiven him.
+
+    NUMBERS 15:29 Ye shall have one law for him that sinneth through ignorance, both for him that is born among the children of Israel, and for the stranger that sojourneth among them.
+
+    NUMBERS 15:30 But the soul that doeth ought presumptuously, whether he be born in the land, or a stranger, the same reproacheth the LORD; and that soul shall be cut off from among his people.
+
+    DEUTERONOMY 19:4 And this is the case of the slayer, which shall flee thither, that he may live: Whoso killeth his neighbor ignorantly, whom he hated not in time past;
+
+    DEUTERONOMY 19:5 As when a man goeth into the wood with his neighbor to hew wood, and his hand fetcheth a stroke with the axe to cut down the tree, and the head slippeth from the helve, and lighteth upon his neighbor, that he die; he shall flee unto one of those cities, and live:
+
+    PSALMS 73:22 So foolish was I, and ignorant: I was as a beast before thee.
+
+    PSALMS 73:23 Nevertheless I am continually with thee: thou hast holden me by my right hand.
+
+    ISAIAH 56:10 His watchmen are blind: they are all ignorant, they are all dumb dogs, they cannot bark; sleeping, lying down, loving to slumber.
+
+    ISAIAH 56:11 Yea, they are greedy dogs which can never have enough, and they are shepherds that cannot understand: they all look to their own way, every one for his gain, from his quarter.
+
+    ISAIAH 63:16 Doubtless thou art our father, though Abraham be ignorant of us, and Israel acknowledge us not: thou, O LORD, art our father, our redeemer; thy name is from everlasting.
+
+    ISAIAH 63:17 O LORD, why hast thou made us to err from thy ways, and hardened our heart from thy fear? Return for thy servants' sake, the tribes of thine inheritance.
+
+    ACTS 3:17 And now, brethren, I wot that through ignorance ye did it, as did also your rulers.
+
+    ACTS 3:18 But those things, which God before had shewed by the mouth of all his prophets, that Christ should suffer, he hath so fulfilled.
+
+    ACTS 4:13 Now when they saw the boldness of Peter and John, and perceived that they were unlearned and ignorant men, they marvelled; and they took knowledge of them, that they had been with Jesus.
+
+    ACTS 4:14 And beholding the man which was healed standing with them, they could say nothing against it.
+
+    ACTS 17:23 For as I passed by, and beheld your devotions, I found an altar with this inscription, TO THE UNKNOWN GOD. Whom therefore ye ignorantly worship, him declare I unto you.
+
+    ACTS 17:24 God that made the world and all things therein, seeing that he is Lord of heaven and earth, dwelleth not in temples made with hands;
+
+    ACTS 17:30 And the times of this ignorance God winked at; but now commandeth all men every where to repent:
+
+    ACTS 17:31 Because he hath appointed a day, in the which he will judge the world in righteousness by that man whom he hath ordained; whereof he hath given assurance unto all men, in that he hath raised him from the dead.
+
+    ROMANS 1:13 Now I would not have you ignorant, brethren, that oftentimes I purposed to come unto you, (but was let hitherto,) that I might have some fruit among you also, even as among other Gentiles.
+
+    ROMANS 1:14 I am debtor both to the Greeks, and to the Barbarians; both to the wise, and to the unwise.
+
+    ROMANS 10:3 For they being ignorant of God's righteousness, and going about to establish their own righteousness, have not submitted themselves unto the righteousness of God.
+
+    ROMANS 10:4 For Christ is the end of the law for righteousness to every one that believeth.
+
+    ROMANS 11:25 For I would not, brethren, that ye should be ignorant of this mystery, lest ye should be wise in your own conceits; that blindness in part is happened to Israel, until the fulness of the Gentiles be come in.
+
+    ROMANS 11:26 And so all Israel shall be saved: as it is written, There shall come out of Sion the Deliverer, and shall turn away ungodliness from Jacob:
+
+    2_CORINTHIANS 1:8 For we would not, brethren, have you ignorant of our trouble which came to us in Asia, that we were pressed out of measure, above strength, insomuch that we despaired even of life:
+
+    2_CORINTHIANS 1:9 But we had the sentence of death in ourselves, that we should not trust in ourselves, but in God which raiseth the dead:
+
+    2_CORINTHIANS 2:11 Lest Satan should get an advantage of us: for we are not ignorant of his devices.
+
+    2_CORINTHIANS 2:12 Furthermore, when I came to Troas to preach Christ's gospel, and a door was opened unto me of the Lord,
+
+    EPHESIANS 4:18 Having the understanding darkened, being alienated from the life of God through the ignorance that is in them, because of the blindness of their heart:
+
+    EPHESIANS 4:19 Who being past feeling have given themselves over unto lasciviousness, to work all uncleanness with greediness.
+
+    1_TIMOTHY 1:13 Who was before a blasphemer, and a persecutor, and injurious: but I obtained mercy, because I did it ignorantly in unbelief.
+
+    1_TIMOTHY 1:14 And the grace of our Lord was exceeding abundant with faith and love which is in Christ Jesus.
+
+    HEBREWS 5:2 Who can have compassion on the ignorant, and on them that are out of the way; for that he himself also is compassed with infirmity.
+
+    HEBREWS 5:3 And by reason hereof he ought, as for the people, so also for himself, to offer for sins.
+
+    1_PETER 1:14 As obedient children, not fashioning yourselves according to the former lusts in your ignorance:
+
+    1_PETER 1:15 But as he which hath called you is holy, so be ye holy in all manner of conversation;
+
+    2_PETER 3:5 For this they willingly are ignorant of, that by the word of God the heavens were of old, and the earth standing out of the water and in the water:
+
+    2_PETER 3:6 Whereby the world that then was, being overflowed with water, perished:
+
+    2_PETER 3:8 But, beloved, be not ignorant of this one thing, that one day is with the Lord as a thousand years, and a thousand years as one day.
+
+    2_PETER 3:9 The Lord is not slack concerning his promise, as some men count slackness; but is longsuffering to us-ward, not willing that any should perish, but that all should come to repentance.
+
+
 # audiobible find respect -A1
 
 
