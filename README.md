@@ -430,6 +430,154 @@ http://audiobible.life плоская земля! Плоска Земя! Płaski
 - TT
 
 
+# audiobible find respect -A1
+
+
+    GENESIS 4:4 And Abel, he also brought of the firstlings of his flock and of the fat thereof. And the LORD had respect unto Abel and to his offering:
+
+    GENESIS 4:5 But unto Cain and to his offering he had not respect. And Cain was very wroth, and his countenance fell.
+
+    GENESIS 4:6 And the LORD said unto Cain, Why art thou wroth? and why is thy countenance fallen?
+
+    EXODUS 2:25 And God looked upon the children of Israel, and God had respect unto them.
+
+    EXODUS 3:1 Now Moses kept the flock of Jethro his father in law, the priest of Midian: and he led the flock to the backside of the desert, and came to the mountain of God, even to Horeb.
+
+    LEVITICUS 19:15 Ye shall do no unrighteousness in judgment: thou shalt not respect the person of the poor, nor honor the person of the mighty: but in righteousness shalt thou judge thy neighbor.
+
+    LEVITICUS 19:16 Thou shalt not go up and down as a talebearer among thy people: neither shalt thou stand against the blood of thy neighbor; I am the LORD.
+
+    LEVITICUS 26:9 For I will have respect unto you, and make you fruitful, and multiply you, and establish my covenant with you.
+
+    LEVITICUS 26:10 And ye shall eat old store, and bring forth the old because of the new.
+
+    NUMBERS 16:15 And Moses was very wroth, and said unto the LORD, Respect not thou their offering: I have not taken one ass from them, neither have I hurt one of them.
+
+    NUMBERS 16:16 And Moses said unto Korah, Be thou and all thy company before the LORD, thou, and they, and Aaron, to morrow:
+
+    DEUTERONOMY 1:17 Ye shall not respect persons in judgment; but ye shall hear the small as well as the great; ye shall not be afraid of the face of man; for the judgment is God's: and the cause that is too hard for you, bring it unto me, and I will hear it.
+
+    DEUTERONOMY 1:18 And I commanded you at that time all the things which ye should do.
+
+    DEUTERONOMY 16:19 Thou shalt not wrest judgment; thou shalt not respect persons, neither take a gift: for a gift doth blind the eyes of the wise, and pervert the words of the righteous.
+
+    DEUTERONOMY 16:20 That which is altogether just shalt thou follow, that thou mayest live, and inherit the land which the LORD thy God giveth thee.
+
+    2_SAMUEL 14:14 For we must needs die, and are as water spilt on the ground, which cannot be gathered up again; neither doth God respect any person: yet doth he devise means, that his banished be not expelled from him.
+
+    2_SAMUEL 14:15 Now therefore that I am come to speak of this thing unto my lord the king, it is because the people have made me afraid: and thy handmaid said, I will now speak unto the king; it may be that the king will perform the request of his handmaid.
+
+    2_KINGS 13:23 And the LORD was gracious unto them, and had compassion on them, and had respect unto them, because of his covenant with Abraham, Isaac, and Jacob, and would not destroy them, neither cast he them from his presence as yet.
+
+    2_KINGS 13:24 So Hazael king of Syria died; and Benhadad his son reigned in his stead.
+
+    2_CHRONICLES 6:19 Have respect therefore to the prayer of thy servant, and to his supplication, O LORD my God, to hearken unto the cry and the prayer which thy servant prayeth before thee:
+
+    2_CHRONICLES 6:20 That thine eyes may be open upon this house day and night, upon the place whereof thou hast said that thou wouldest put thy name there; to hearken unto the prayer which thy servant prayeth toward this place.
+
+    2_CHRONICLES 19:7 Wherefore now let the fear of the LORD be upon you; take heed and do it: for there is no iniquity with the LORD our God, nor respect of persons, nor taking of gifts.
+
+    2_CHRONICLES 19:8 Moreover in Jerusalem did Jehoshaphat set of the Levites, and of the priests, and of the chief of the fathers of Israel, for the judgment of the LORD, and for controversies, when they returned to Jerusalem.
+
+    JOB 37:24 Men do therefore fear him: he respecteth not any that are wise of heart.
+
+    JOB 38:1 Then the LORD answered Job out of the whirlwind, and said,
+
+    PSALMS 40:4 Blessed is that man that maketh the LORD his trust, and respecteth not the proud, nor such as turn aside to lies.
+
+    PSALMS 40:5 Many, O LORD my God, are thy wonderful works which thou hast done, and thy thoughts which are to us-ward: they cannot be reckoned up in order unto thee: if I would declare and speak of them, they are more than can be numbered.
+
+    PSALMS 74:20 Have respect unto the covenant: for the dark places of the earth are full of the habitations of cruelty.
+
+    PSALMS 74:21 O let not the oppressed return ashamed: let the poor and needy praise thy name.
+
+    PSALMS 119:6 Then shall I not be ashamed, when I have respect unto all thy commandments.
+
+    PSALMS 119:7 I will praise thee with uprightness of heart, when I shall have learned thy righteous judgments.
+
+    PSALMS 119:15 I will meditate in thy precepts, and have respect unto thy ways.
+
+    PSALMS 119:16 I will delight myself in thy statutes: I will not forget thy word.
+
+    PSALMS 119:117 Hold thou me up, and I shall be safe: and I will have respect unto thy statutes continually.
+
+    PSALMS 119:118 Thou hast trodden down all them that err from thy statutes: for their deceit is falsehood.
+
+    PSALMS 138:6 Though the LORD be high, yet hath he respect unto the lowly: but the proud he knoweth afar off.
+
+    PSALMS 138:7 Though I walk in the midst of trouble, thou wilt revive me: thou shalt stretch forth thine hand against the wrath of mine enemies, and thy right hand shall save me.
+
+    PROVERBS 24:23 These things also belong to the wise. It is not good to have respect of persons in judgment.
+
+    PROVERBS 24:24 He that saith unto the wicked, Thou are righteous; him shall the people curse, nations shall abhor him:
+
+    PROVERBS 28:21 To have respect of persons is not good: for for a piece of bread that man will transgress.
+
+    PROVERBS 28:22 He that hasteth to be rich hath an evil eye, and considereth not that poverty shall come upon him.
+
+    ISAIAH 17:7 At that day shall a man look to his Maker, and his eyes shall have respect to the Holy One of Israel.
+
+    ISAIAH 17:8 And he shall not look to the altars, the work of his hands, neither shall respect that which his fingers have made, either the groves, or the images.
+
+    ISAIAH 17:9 In that day shall his strong cities be as a forsaken bough, and an uppermost branch, which they left because of the children of Israel: and there shall be desolation.
+
+    ISAIAH 22:11 Ye made also a ditch between the two walls for the water of the old pool: but ye have not looked unto the maker thereof, neither had respect unto him that fashioned it long ago.
+
+    ISAIAH 22:12 And in that day did the Lord GOD of hosts call to weeping, and to mourning, and to baldness, and to girding with sackcloth:
+
+    LAMENTATIONS 4:16 The anger of the LORD hath divided them; he will no more regard them: they respected not the persons of the priests, they favoured not the elders.
+
+    LAMENTATIONS 4:17 As for us, our eyes as yet failed for our vain help: in our watching we have watched for a nation that could not save us.
+
+    ACTS 10:34 Then Peter opened his mouth, and said, Of a truth I perceive that God is no respecter of persons:
+
+    ACTS 10:35 But in every nation he that feareth him, and worketh righteousness, is accepted with him.
+
+    ROMANS 2:11 For there is no respect of persons with God.
+
+    ROMANS 2:12 For as many as have sinned without law shall also perish without law: and as many as have sinned in the law shall be judged by the law;
+
+    2_CORINTHIANS 3:10 For even that which was made glorious had no glory in this respect, by reason of the glory that excelleth.
+
+    2_CORINTHIANS 3:11 For if that which is done away was glorious, much more that which remaineth is glorious.
+
+    EPHESIANS 6:9 And, ye masters, do the same things unto them, forbearing threatening: knowing that your Master also is in heaven; neither is there respect of persons with him.
+
+    EPHESIANS 6:10 Finally, my brethren, be strong in the Lord, and in the power of his might.
+
+    PHILIPPIANS 4:11 Not that I speak in respect of want: for I have learned, in whatsoever state I am, therewith to be content.
+
+    PHILIPPIANS 4:12 I know both how to be abased, and I know how to abound: every where and in all things I am instructed both to be full and to be hungry, both to abound and to suffer need.
+
+    COLOSSIANS 2:16 Let no man therefore judge you in meat, or in drink, or in respect of an holyday, or of the new moon, or of the sabbath days:
+
+    COLOSSIANS 2:17 Which are a shadow of things to come; but the body is of Christ.
+
+    COLOSSIANS 3:25 But he that doeth wrong shall receive for the wrong which he hath done: and there is no respect of persons.
+
+    COLOSSIANS 4:1 Masters, give unto your servants that which is just and equal; knowing that ye also have a Master in heaven.
+
+    HEBREWS 11:26 Esteeming the reproach of Christ greater riches than the treasures in Egypt: for he had respect unto the recompence of the reward.
+
+    HEBREWS 11:27 By faith he forsook Egypt, not fearing the wrath of the king: for he endured, as seeing him who is invisible.
+
+    JAMES 2:1 My brethren, have not the faith of our Lord Jesus Christ, the Lord of glory, with respect of persons.
+
+    JAMES 2:2 For if there come unto your assembly a man with a gold ring, in goodly apparel, and there come in also a poor man in vile raiment;
+
+    JAMES 2:3 And ye have respect to him that weareth the gay clothing, and say unto him, Sit thou here in a good place; and say to the poor, Stand thou there, or sit here under my footstool:
+
+    JAMES 2:4 Are ye not then partial in yourselves, and are become judges of evil thoughts?
+
+    JAMES 2:9 But if ye have respect to persons, ye commit sin, and are convinced of the law as transgressors.
+
+    JAMES 2:10 For whosoever shall keep the whole law, and yet offend in one point, he is guilty of all.
+
+    1_PETER 1:17 And if ye call on the Father, who without respect of persons judgeth according to every man's work, pass the time of your sojourning here in fear:
+
+    1_PETER 1:18 Forasmuch as ye know that ye were not redeemed with corruptible things, as silver and gold, from your vain conversation received by tradition from your fathers;
+
+
 ## WAKE UP! ARE YOU A WARRIOR? OR ARE YOU A BRAINWASHED ZOMBIE CLOWN?
 
 🌏💥🔫﻿﻿
