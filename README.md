@@ -432,4 +432,6 @@ http://audiobible.life плоская земля! Плоска Земя! Płaski
 
 # WAKE UP! ARE YOU A WARRIOR? OR ARE YOU A BRAINWASHED ZOMBIE CLOWN?
 
+🌏💥🔫﻿﻿
+
 ## JESUS CHRIST IS LORD! I LOVE YOU ALL! HOWEVER, I LOVE JESUS CHRIST MORE!
