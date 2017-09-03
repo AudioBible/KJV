@@ -1223,6 +1223,14 @@ IMAGES
 
 ![BVX-CGXCIAArnqL.jpg](images/BVX-CGXCIAArnqL.jpg)
 
+- [Best-of-K-Rino.png](images/Best-of-K-Rino.png)
+
+![Best-of-K-Rino.png](images/Best-of-K-Rino.png)
+
+- [Best-of-PayDay-Monsanto.png](images/Best-of-PayDay-Monsanto.png)
+
+![Best-of-PayDay-Monsanto.png](images/Best-of-PayDay-Monsanto.png)
+
 - [Common-sense-is-a-flower-that-doesnt-grow-in-everyones-garden.-Anonymous.png](images/Common-sense-is-a-flower-that-doesnt-grow-in-everyones-garden.-Anonymous.png)
 
 ![Common-sense-is-a-flower-that-doesnt-grow-in-everyones-garden.-Anonymous.png](images/Common-sense-is-a-flower-that-doesnt-grow-in-everyones-garden.-Anonymous.png)
@@ -1322,6 +1330,10 @@ IMAGES
 - [ODD-TV-Living-In-Hell-Playlist.png](images/ODD-TV-Living-In-Hell-Playlist.png)
 
 ![ODD-TV-Living-In-Hell-Playlist.png](images/ODD-TV-Living-In-Hell-Playlist.png)
+
+- [ODD-TV-Never-Sleep-Again-Truth-Music.png](images/ODD-TV-Never-Sleep-Again-Truth-Music.png)
+
+![ODD-TV-Never-Sleep-Again-Truth-Music.png](images/ODD-TV-Never-Sleep-Again-Truth-Music.png)
 
 - [Operation-Earnest-Voice-Facts.png](images/Operation-Earnest-Voice-Facts.png)
 

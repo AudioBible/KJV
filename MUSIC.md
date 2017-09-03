@@ -11,7 +11,19 @@ MUSIC
 
 **Note:** You can use [http://listenonrepeat.com](http://listenonrepeat.com) for any videos that you want to listen to on repeat!
 
-**Note:** Some songs may have explicit language. Please don't judge people for the language they use or their personality. Lest you be judged the way you judge! Listen the message they are saying. Most of all please share the love with others! It's a lot worse to be out there killing people over oil, than to say a four letter word. Who's side are you on? If it's not blaspheming the name of Jesus Christ then whats the problem, are you conditioned? 
+**Note:** Some songs may have explicit language. Please don't judge people for the language they use or their personality. Lest you be judged the way you judge! Listen the message they are saying. Most of all please share the love with others! It's a lot worse to be out there killing people over oil/dropping a real bomb, than to say a four letter word/dropping the F-bomb. Who's side are you on? If it's not blaspheming the name of Jesus Christ then whats the problem, are you conditioned?
+
+[![Best-of-PayDay-Monsanto](images/Best-of-PayDay-Monsanto.png)](https://www.youtube.com/watch?v=prjXQd7rB5w)
+
+[The Best of Payday Monsanto](https://www.youtube.com/watch?v=prjXQd7rB5w)
+
+[![Best-of-K-Rino](images/Best-of-K-Rino.png)](https://www.youtube.com/watch?v=R_DtZFL_ar0)
+
+[The Very Best of K-Rino](https://www.youtube.com/watch?v=R_DtZFL_ar0)
+
+[![ODD-TV-Never-Sleep-Again-Truth-Music](images/ODD-TV-Never-Sleep-Again-Truth-Music.png)](https://www.youtube.com/watch?v=TlTR7QQZQ8I)
+
+[ODD TV | Never Sleep Again | Full Album | Lyrics | 432hz Truth Music ▶️️](https://www.youtube.com/watch?v=TlTR7QQZQ8I)
 
 #### You not only screwing yourself but also your neighbor and me by not listening to people like PyaDay Monsanto, K-Rino, ODD TV and Eric Dubay. It's called Truth Music. Stop being a homo!
 
