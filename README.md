@@ -239,15 +239,13 @@ You think I'm crazy?! Go pray for me! I will be praying for you too! I pray God 
 
 #### God is so kind that it is impossible to imagine His unbounded kindness.
 
+**PSALMS 47:7:** For God is the King of all the earth: sing ye praises with understanding.
 
-    PSALMS 47:7 For God is the King of all the earth: sing ye praises with understanding.
+**PSALMS 147:5:** Great is our Lord, and of great power: his understanding is infinite.
 
-    PSALMS 147:5 Great is our Lord, and of great power: his understanding is infinite.
+**PSALMS 150:1:** Praise ye the LORD. Praise God in his sanctuary: praise him in the firmament of his power.
 
-    PSALMS 150:1 Praise ye the LORD. Praise God in his sanctuary: praise him in the firmament of his power.
-
-    PROVERBS 2:6 For the LORD giveth wisdom: out of his mouth cometh knowledge and understanding.
-
+**PROVERBS 2:6:** For the LORD giveth wisdom: out of his mouth cometh knowledge and understanding.
 
 ## [Praise GOD Everyday!](https://www.youtube.com/watch?v=i2U3Ld-ZYpM)
 
