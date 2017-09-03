@@ -8,6 +8,8 @@
 
 It's all connected to the biggest lie in the world, about the shape of the world, once you understand you will see how to tell through their lies of deception. Check out the collection of youtube videos and do some research on these topics. Arm yourself with knowledge! Don't be a clown!
 
+If you're always busy making money, come home tired and don't have time to seek truth, Money is your God!
+
 You think I'm crazy?! Go pray for me! I will be praying for you too! I pray God doesn't slap you even harder with the Truth you refuse to seek! I'm not the crazy one! If you have a degree, then you've been successfully brainwashed by the system! Wake up!
 
 **Note**: Some images are links to a youtube video, obviously the blue text is a link to a video or playlist or a page on the site.
@@ -430,4 +432,4 @@ http://audiobible.life плоская земля! Плоска Земя! Płaski
 
 # WAKE UP! ARE YOU A WARRIOR? OR ARE YOU A BRAINWASHED ZOMBIE CLOWN?
 
-# I LOVE YOU ALL! 🌏💥🔫﻿﻿
+## JESUS CHRIST IS LORD! I LOVE YOU ALL! HOWEVER, I LOVE JESUS CHRIST MORE!
