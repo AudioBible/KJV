@@ -429,6 +429,7 @@ http://audiobible.life плоская земля! Плоска Земя! Płaski
 > It is amazing that there are no pending lawsuit against NASA about the earth rotates 1000mph and the earth is a sphere.  I can hardly wait to see the outcome of this case.  People need to file a federal law suit against fraud, negligent for punitive damages and shut down NASA.  There are no proof that the earth is a sphere nor it's moving 1000mph.  These statements are heresay and no concrete evidences to support them.  Pictures or movies are man made.  If the earth is sphere then they can prove to us by flying from NY to China thru the South Pole like they are going thru the North Pole right now.  Flat earth is true 100% and it needs no proof by the simple scientific fact that we are using water to level every building, structure and high-way.
 - TT
 
+# Here's what it says in the Books of the Bible about ignorance or being ignorant!
 
 # audiobible find ignor
 
@@ -495,6 +496,10 @@ http://audiobible.life плоская земля! Плоска Земя! Płaski
 
     2_PETER 3:8 But, beloved, be not ignorant of this one thing, that one day is with the Lord as a thousand years, and a thousand years as one day.
 
+
+# Here's what it says in the Books of the Bible about respect!
+
+**Note:** Everything about respect in the Bible is the opposite of what we've been taught! Satan says the opposite of what God says in the Bible, don't you get it? Notice, PROVERBS 28:21
 
 # audiobible find respect -A1
 
