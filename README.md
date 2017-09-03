@@ -582,4 +582,4 @@ http://audiobible.life плоская земля! Плоска Земя! Płaski
 
 🌏💥🔫﻿﻿
 
-## JESUS CHRIST IS LORD! I LOVE YOU ALL! HOWEVER, I LOVE JESUS CHRIST MORE!
+## JESUS CHRIST IS LORD! I LOVE YOU ALL! HOWEVER, I LOVE GODHEAD MORE!
