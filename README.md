@@ -507,7 +507,7 @@ http://audiobible.life плоская земля! Плоска Земя! Płaski
 
 # Here's what it says in the Books of the Bible about respect!
 
-**Note:** Everything about respect in the Bible is the opposite of what we've been taught! Satan says the opposite of what God says in the Bible, don't you get it? Notice, PROVERBS 28:21. We can see a patterns with Satan filling the word of God, just like with the creation, everything the opposite in the Globe theory compared to the Flat Earth Truth!
+**Note:** Everything about respect in the Bible is the opposite of what we've been taught! Satan says the opposite of what God says in the Bible, don't you get it? Notice, PROVERBS 28:21. We can see a patterns with Satan flipping the word of God, just like with the creation, everything the opposite in the Globe theory compared to the Flat Earth Truth! Do what thou wilt? or do God's will? Which is it? Everyone has there own Truth? or Truth is Truth and Lies are Lies!
 
 # audiobible find respect -A1
 
