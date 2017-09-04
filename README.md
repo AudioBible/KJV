@@ -22,6 +22,10 @@ Why I like to listen to sermons on YouTube is because I can't rewind what the pr
 
 **Note**: Some images are links to a youtube video, obviously the blue text is a link to a video or playlist or a page on the site.
 
+[![Rob-Skiba](images/Rob-Skiba.png)](https://www.youtube.com/watch?v=ISqRpgNZ29w)
+
+[Rob Skiba shares his testimony, the high price of doing research and discusses getting back to SEED](https://www.youtube.com/watch?v=ISqRpgNZ29w)
+
 [![Pastor-Charles-Lawson](images/Pastor-Charles-Lawson.png)](https://www.youtube.com/watch?v=J4uo81V-yyw)
 
 [Making Connections VII: The Major Deception (Pastor Charles Lawson)](https://www.youtube.com/watch?v=J4uo81V-yyw)
