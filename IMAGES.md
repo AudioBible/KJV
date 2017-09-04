@@ -1867,18 +1867,6 @@ IMAGES
 
 ![henry-ford-on-protocols-of-zion.png](images/henry-ford-on-protocols-of-zion.png)
 
-- [hitler-facts.png](images/hitler-facts.png)
-
-![hitler-facts.png](images/hitler-facts.png)
-
-- [hitler-loved-his-people-unlike-stalin.png](images/hitler-loved-his-people-unlike-stalin.png)
-
-![hitler-loved-his-people-unlike-stalin.png](images/hitler-loved-his-people-unlike-stalin.png)
-
-- [hitler-on-zionists.png](images/hitler-on-zionists.png)
-
-![hitler-on-zionists.png](images/hitler-on-zionists.png)
-
 - [holocaust-is-a-hoax.png](images/holocaust-is-a-hoax.png)
 
 ![holocaust-is-a-hoax.png](images/holocaust-is-a-hoax.png)
