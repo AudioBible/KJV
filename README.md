@@ -16,9 +16,9 @@ Why the need for Government? Because God is the only one who is omnipotent! Sata
 
 Don't just believe me! Do the research! I created this site so it would be easier for you to get started doing the research you could do without this site! I have time to do research, maybe you don't, that's why this site is here! Please help spread awareness!
 
-# Here's what it says in the Books of the Bible about respect!
+# Here's what it says in the Gospel/Books of the Bible about respect!
 
-**Note:** Everything about respect in the Bible is the opposite of what we've been taught! Satan says the opposite of what God says in the Bible, don't you get it? Notice, PROVERBS 28:21. We can see a patterns with Satan flipping the word of God, just like with the creation, everything the opposite in the Globe theory compared to the Flat Earth Truth! Do what thou wilt? or do God's will? Which is it? Everyone has there own Truth? or Truth is Truth and Lies are Lies!
+**Note:** Everything about respect in the Gospel is the opposite of what we've been taught! Satan says the opposite of what God says in the Bible, don't you get it? **Notice, PROVERBS 28:21**. We can see a patterns with Satan flipping the word of God, just like with the creation, everything the opposite in the Globe theory compared to the Flat Earth Truth! Do what thou wilt? or do God's will? Which is it? Everyone has there own Truth? or Truth is Truth and Lies are Lies!
 
 # audiobible find respect of persons -A1
 
