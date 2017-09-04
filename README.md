@@ -16,7 +16,7 @@ Why the need for Government? Because God is the only one who is omnipotent! Sata
 
 Don't just believe me! Do the research! I created this site so it would be easier for you to get started doing the research you could do without this site! I have time to do research, maybe you don't, that's why this site is here! Please help spread awareness!
 
-I'll be updating this site to be a lot better as soon as I figure out a good look and a better way to manage the content. This works for now! Don't ever judge anything by its appearance!
+I'll be updating this site to be a lot better as soon as I figure out a good look and a better way to manage the content. This works for now! Don't ever judge anything by its appearance! The news will tell you so many people died, with a smile on their face!
 
 # Here's what it says in the Gospel about respect!
 
