@@ -24,6 +24,8 @@ I'll be updating this site to be a lot better as soon as I figure out a good loo
 
 [Making Connections VII: The Major Deception (Pastor Charles Lawson)](https://www.youtube.com/watch?v=J4uo81V-yyw)
 
+Why I like to listen to sermons on YouTube is because I can't rewind the pastor in real life, sometimes I need to hear it multiple times for it to make sense!
+
 # Here's what it says in the Gospel about respect!
 
 **Note:** Everything about respect in the Bible is the opposite of what we've been taught! Satan says the opposite of what God says in the Bible, don't you get it? **Notice, PROVERBS 28:21**. We can see the patterns with Satan flipping the words of God upside down, just like with the creation, everything the opposite in the Globe theory compared to the Flat Earth Truth!
