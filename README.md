@@ -18,6 +18,8 @@ Don't just believe me! Do the research! I created this site so it would be easie
 
 I'll be updating this site to be a lot better as soon as I figure out a good look and a better way to manage the content. This works for now! Don't ever judge anything by its appearance! The news will tell you many people died, with a smile on their face!
 
+**Note**: Some images are links to a youtube video, obviously the blue text is a link to a video or playlist or a page on the site.
+
 [![Pastor-Charles-Lawson](images/Pastor-Charles-Lawson.png)](https://www.youtube.com/watch?v=J4uo81V-yyw)
 
 [Making Connections VII: The Major Deception (Pastor Charles Lawson)](https://www.youtube.com/watch?v=J4uo81V-yyw)
@@ -63,8 +65,6 @@ Do what thou wilt? or do God's will? Which is it? Everyone has there own Truth? 
 
     1_PETER 1:18 Forasmuch as ye know that ye were not redeemed with corruptible things, as silver and gold, from your vain conversation received by tradition from your fathers;
 
-
-**Note**: Some images are links to a youtube video, obviously the blue text is a link to a video or playlist or a page on the site.
 
 [![JUST KEEP WATCHING FLAT EARTH VIDEOS AND ANTI NEW WORLD ORDER VIDEOS](images/12790840_469275703272169_3170264075263137737_n.jpg)](https://www.youtube.com/results?search_query=flat+earth+live)
 
