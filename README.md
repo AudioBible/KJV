@@ -24,7 +24,7 @@ I'll be updating this site to be a lot better as soon as I figure out a good loo
 
 [Making Connections VII: The Major Deception (Pastor Charles Lawson)](https://www.youtube.com/watch?v=J4uo81V-yyw)
 
-Why I like to listen to sermons on YouTube is because I can't rewind the pastor in real life, sometimes I need to hear it multiple times for it to make sense!
+Why I like to listen to sermons on YouTube is because I can't rewind what the pastor said in real life, sometimes I need to hear it multiple times for it to make sense!
 
 # Here's what it says in the Gospel about respect!
 
