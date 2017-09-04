@@ -48,7 +48,7 @@ Why I like to listen to sermons on YouTube is because I can't rewind what the pr
 
 **Note:** Everything about respect in the Bible is the opposite of what we've been taught! Satan says the opposite of what God says in the Bible, don't you get it? **Notice, PROVERBS 28:21**. We can see the patterns with Satan flipping the words of God upside down, just like with the creation, everything the opposite in the Globe theory compared to the Flat Earth Truth!
 
-Do what thou wilt? or do God's will? Which is it? Everyone has there own Truth? Respect everyone? or Truth is Truth and Lies are Lies! The ones in power tell us to respect everyone while they respect no one, they know the word of God too, probably better than you and they choose to follow Satan instead!
+Do what thou wilt? or do God's will? Which is it? Everyone has there own Truth? Respect everyone? or Truth is Truth and Lies are Lies! The ones in power tell us to respect everyone while they respect no one, they know the word of God too, probably better than you and they choose to follow Satan instead! Respect means speak up, not shut up!
 
 # audiobible find respect of persons -A1
 
