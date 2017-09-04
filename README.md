@@ -16,6 +16,46 @@ Why the need for Government? Because God is the only one who is omnipotent! Sata
 
 Don't just believe me! Do the research! I created this site so it would be easier for you to get started doing the research you could do without this site! I have time to do research, maybe you don't, that's why this site is here! Please help spread awareness!
 
+# Here's what it says in the Books of the Bible about respect!
+
+**Note:** Everything about respect in the Bible is the opposite of what we've been taught! Satan says the opposite of what God says in the Bible, don't you get it? Notice, PROVERBS 28:21. We can see a patterns with Satan flipping the word of God, just like with the creation, everything the opposite in the Globe theory compared to the Flat Earth Truth! Do what thou wilt? or do God's will? Which is it? Everyone has there own Truth? or Truth is Truth and Lies are Lies!
+
+# audiobible find respect of persons -A1
+
+
+    2_CHRONICLES 19:7 Wherefore now let the fear of the LORD be upon you; take heed and do it: for there is no iniquity with the LORD our God, nor respect of persons, nor taking of gifts.
+
+    2_CHRONICLES 19:8 Moreover in Jerusalem did Jehoshaphat set of the Levites, and of the priests, and of the chief of the fathers of Israel, for the judgment of the LORD, and for controversies, when they returned to Jerusalem.
+
+    PROVERBS 24:23 These things also belong to the wise. It is not good to have respect of persons in judgment.
+
+    PROVERBS 24:24 He that saith unto the wicked, Thou are righteous; him shall the people curse, nations shall abhor him:
+
+    PROVERBS 28:21 To have respect of persons is not good: for for a piece of bread that man will transgress.
+
+    PROVERBS 28:22 He that hasteth to be rich hath an evil eye, and considereth not that poverty shall come upon him.
+
+    ROMANS 2:11 For there is no respect of persons with God.
+
+    ROMANS 2:12 For as many as have sinned without law shall also perish without law: and as many as have sinned in the law shall be judged by the law;
+
+    EPHESIANS 6:9 And, ye masters, do the same things unto them, forbearing threatening: knowing that your Master also is in heaven; neither is there respect of persons with him.
+
+    EPHESIANS 6:10 Finally, my brethren, be strong in the Lord, and in the power of his might.
+
+    COLOSSIANS 3:25 But he that doeth wrong shall receive for the wrong which he hath done: and there is no respect of persons.
+
+    COLOSSIANS 4:1 Masters, give unto your servants that which is just and equal; knowing that ye also have a Master in heaven.
+
+    JAMES 2:1 My brethren, have not the faith of our Lord Jesus Christ, the Lord of glory, with respect of persons.
+
+    JAMES 2:2 For if there come unto your assembly a man with a gold ring, in goodly apparel, and there come in also a poor man in vile raiment;
+
+    1_PETER 1:17 And if ye call on the Father, who without respect of persons judgeth according to every man's work, pass the time of your sojourning here in fear:
+
+    1_PETER 1:18 Forasmuch as ye know that ye were not redeemed with corruptible things, as silver and gold, from your vain conversation received by tradition from your fathers;
+
+
 **Note**: Some images are links to a youtube video, obviously the blue text is a link to a video or playlist or a page on the site.
 
 [![JUST KEEP WATCHING FLAT EARTH VIDEOS AND ANTI NEW WORLD ORDER VIDEOS](images/12790840_469275703272169_3170264075263137737_n.jpg)](https://www.youtube.com/results?search_query=flat+earth+live)
@@ -507,46 +547,6 @@ http://audiobible.life плоская земля! Плоска Земя! Płaski
     2_PETER 3:5 For this they willingly are ignorant of, that by the word of God the heavens were of old, and the earth standing out of the water and in the water:
 
     2_PETER 3:8 But, beloved, be not ignorant of this one thing, that one day is with the Lord as a thousand years, and a thousand years as one day.
-
-
-# Here's what it says in the Books of the Bible about respect!
-
-**Note:** Everything about respect in the Bible is the opposite of what we've been taught! Satan says the opposite of what God says in the Bible, don't you get it? Notice, PROVERBS 28:21. We can see a patterns with Satan flipping the word of God, just like with the creation, everything the opposite in the Globe theory compared to the Flat Earth Truth! Do what thou wilt? or do God's will? Which is it? Everyone has there own Truth? or Truth is Truth and Lies are Lies!
-
-# audiobible find respect of persons -A1
-
-
-    2_CHRONICLES 19:7 Wherefore now let the fear of the LORD be upon you; take heed and do it: for there is no iniquity with the LORD our God, nor respect of persons, nor taking of gifts.
-
-    2_CHRONICLES 19:8 Moreover in Jerusalem did Jehoshaphat set of the Levites, and of the priests, and of the chief of the fathers of Israel, for the judgment of the LORD, and for controversies, when they returned to Jerusalem.
-
-    PROVERBS 24:23 These things also belong to the wise. It is not good to have respect of persons in judgment.
-
-    PROVERBS 24:24 He that saith unto the wicked, Thou are righteous; him shall the people curse, nations shall abhor him:
-
-    PROVERBS 28:21 To have respect of persons is not good: for for a piece of bread that man will transgress.
-
-    PROVERBS 28:22 He that hasteth to be rich hath an evil eye, and considereth not that poverty shall come upon him.
-
-    ROMANS 2:11 For there is no respect of persons with God.
-
-    ROMANS 2:12 For as many as have sinned without law shall also perish without law: and as many as have sinned in the law shall be judged by the law;
-
-    EPHESIANS 6:9 And, ye masters, do the same things unto them, forbearing threatening: knowing that your Master also is in heaven; neither is there respect of persons with him.
-
-    EPHESIANS 6:10 Finally, my brethren, be strong in the Lord, and in the power of his might.
-
-    COLOSSIANS 3:25 But he that doeth wrong shall receive for the wrong which he hath done: and there is no respect of persons.
-
-    COLOSSIANS 4:1 Masters, give unto your servants that which is just and equal; knowing that ye also have a Master in heaven.
-
-    JAMES 2:1 My brethren, have not the faith of our Lord Jesus Christ, the Lord of glory, with respect of persons.
-
-    JAMES 2:2 For if there come unto your assembly a man with a gold ring, in goodly apparel, and there come in also a poor man in vile raiment;
-
-    1_PETER 1:17 And if ye call on the Father, who without respect of persons judgeth according to every man's work, pass the time of your sojourning here in fear:
-
-    1_PETER 1:18 Forasmuch as ye know that ye were not redeemed with corruptible things, as silver and gold, from your vain conversation received by tradition from your fathers;
 
 
 ## WAKE UP! ARE YOU A WARRIOR? OR ARE YOU A BRAINWASHED ZOMBIE CLOWN?
