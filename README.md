@@ -52,6 +52,30 @@ Why I like to listen to sermons on YouTube is because I can't rewind what the pr
 
 [BELIEVE YOUR OWN EYES - 9/11 - “NO PLANES”](https://www.youtube.com/watch?v=8W3y3Qh8R1s)
 
+[![The-Godhead-vs-The-Trinity](images/The-Godhead-vs-The-Trinity.png)](https://www.youtube.com/watch?v=Bh3n1Y_J_ak)
+
+[The Godhead vs The "Trinity"](https://www.youtube.com/watch?v=Bh3n1Y_J_ak)
+
+# The word Trinity is nowhere to be found in the KJV!
+
+# audiobible find Trinity
+
+
+    NOTHING FOUND!
+
+
+# The word Godhead on the other hand is in multiple places!
+
+# audiobible find Godhead
+
+
+    ACTS 17:29 Forasmuch then as we are the offspring of God, we ought not to think that the Godhead is like unto gold, or silver, or stone, graven by art and man's device.
+
+    ROMANS 1:20 For the invisible things of him from the creation of the world are clearly seen, being understood by the things that are made, even his eternal power and Godhead; so that they are without excuse:
+
+    COLOSSIANS 2:9 For in him dwelleth all the fulness of the Godhead bodily.
+
+
 # Here's what it says in the Gospel about respect!
 
 **Note:** Everything about respect in the Bible is the opposite of what we've been taught! Satan says the opposite of what God says in the Bible, don't you get it? **Notice, PROVERBS 28:21**. We can see the patterns with Satan flipping the words of God upside down, just like with the creation, everything the opposite in the Globe theory compared to the Flat Earth Truth!
@@ -518,30 +542,6 @@ http://audiobible.life плоская земля! Плоска Земя! Płaski
 
 > It is amazing that there are no pending lawsuit against NASA about the earth rotates 1000mph and the earth is a sphere.  I can hardly wait to see the outcome of this case.  People need to file a federal law suit against fraud, negligent for punitive damages and shut down NASA.  There are no proof that the earth is a sphere nor it's moving 1000mph.  These statements are heresay and no concrete evidences to support them.  Pictures or movies are man made.  If the earth is sphere then they can prove to us by flying from NY to China thru the South Pole like they are going thru the North Pole right now.  Flat earth is true 100% and it needs no proof by the simple scientific fact that we are using water to level every building, structure and high-way.
 - TT
-
-[![The-Godhead-vs-The-Trinity](images/The-Godhead-vs-The-Trinity.png)](https://www.youtube.com/watch?v=Bh3n1Y_J_ak)
-
-[The Godhead vs The "Trinity"](https://www.youtube.com/watch?v=Bh3n1Y_J_ak)
-
-# The word Trinity is nowhere to be found in the KJV!
-
-# audiobible find Trinity
-
-
-    NOTHING FOUND!
-
-    
-# The word Godhead on the other hand is in multiple places!
-
-# audiobible find Godhead
-
-
-    ACTS 17:29 Forasmuch then as we are the offspring of God, we ought not to think that the Godhead is like unto gold, or silver, or stone, graven by art and man's device.
-
-    ROMANS 1:20 For the invisible things of him from the creation of the world are clearly seen, being understood by the things that are made, even his eternal power and Godhead; so that they are without excuse:
-
-    COLOSSIANS 2:9 For in him dwelleth all the fulness of the Godhead bodily.
-
 
 # Here's what it says in the Books of the Bible about ignorance or being ignorant!
 
