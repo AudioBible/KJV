@@ -14,6 +14,8 @@ You think I'm crazy?! Go pray for me! I will be praying for you too! I pray God 
 
 Why the need for Government? Because God is the only one who is omnipotent! Satan can be only at one place at any time! Therefore Satan uses the Government, technology and by other means to be in multiple places at one time! Everything else is lies!
 
+Don't just believe me! Do the research! I created this site so it would be easier for you to get started doing the research you could do without this site! I have the time to do the research, maybe you don't so that's why this site is here!
+
 **Note**: Some images are links to a youtube video, obviously the blue text is a link to a video or playlist or a page on the site.
 
 [![JUST KEEP WATCHING FLAT EARTH VIDEOS AND ANTI NEW WORLD ORDER VIDEOS](images/12790840_469275703272169_3170264075263137737_n.jpg)](https://www.youtube.com/results?search_query=flat+earth+live)
