@@ -44,6 +44,10 @@ Why I like to listen to sermons on YouTube is because I can't rewind what the pr
 
 [Making Connections VII: The Major Deception (Pastor Charles Lawson)](https://www.youtube.com/watch?v=J4uo81V-yyw)
 
+[![TRUTH-TRUMPS-LIES-Full-Documentary-2017](images/TRUTH-TRUMPS-LIES-Full-Documentary-2017.png)](https://www.youtube.com/watch?v=mB-W1xJL4b0)
+
+[TRUTH TRUMPS LIES - Full Documentary (2017) HD](https://www.youtube.com/watch?v=mB-W1xJL4b0)
+
 # Here's what it says in the Gospel about respect!
 
 **Note:** Everything about respect in the Bible is the opposite of what we've been taught! Satan says the opposite of what God says in the Bible, don't you get it? **Notice, PROVERBS 28:21**. We can see the patterns with Satan flipping the words of God upside down, just like with the creation, everything the opposite in the Globe theory compared to the Flat Earth Truth!

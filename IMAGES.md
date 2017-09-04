@@ -1379,6 +1379,10 @@ IMAGES
 
 ![SunAnimation.gif](images/SunAnimation.gif)
 
+- [TRUTH-TRUMPS-LIES-Full-Documentary-2017.png](images/TRUTH-TRUMPS-LIES-Full-Documentary-2017.png)
+
+![TRUTH-TRUMPS-LIES-Full-Documentary-2017.png](images/TRUTH-TRUMPS-LIES-Full-Documentary-2017.png)
+
 - [The-Global-Lie-Flat-Earth-Documentary-2016.png](images/The-Global-Lie-Flat-Earth-Documentary-2016.png)
 
 ![The-Global-Lie-Flat-Earth-Documentary-2016.png](images/The-Global-Lie-Flat-Earth-Documentary-2016.png)
