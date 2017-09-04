@@ -1255,6 +1255,10 @@ IMAGES
 
 ![Flat-Earth-Memes-156-11.jpg](images/Flat-Earth-Memes-156-11.jpg)
 
+- [Flat-Earth-turning-point.png](images/Flat-Earth-turning-point.png)
+
+![Flat-Earth-turning-point.png](images/Flat-Earth-turning-point.png)
+
 - [FlatEarthModel1.jpg](images/FlatEarthModel1.jpg)
 
 ![FlatEarthModel1.jpg](images/FlatEarthModel1.jpg)

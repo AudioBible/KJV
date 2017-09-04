@@ -32,6 +32,10 @@ Why I like to listen to sermons on YouTube is because I can't rewind what the pr
 
 [The Global Lie - Flat Earth Documentary (2016) HD](https://www.youtube.com/watch?v=yi2NbIf_7p4)
 
+[![Flat-Earth-turning-point](images/Flat-Earth-turning-point.png)](https://www.youtube.com/watch?v=vYvxQiTFzFc)
+
+[Flat Earth turning point and Nasa admits no moon landing](https://www.youtube.com/watch?v=vYvxQiTFzFc)
+
 [![Rob-Skiba-Dean-Odle-The-Firmament](images/Rob-Skiba-Dean-Odle-The-Firmament.png)](https://www.youtube.com/watch?v=iH4MnXI0sxQ)
 
 [Rob Skiba and Pastor Dean Odle on the significance of the Firmament enclosed flat Earth](https://www.youtube.com/watch?v=iH4MnXI0sxQ)
