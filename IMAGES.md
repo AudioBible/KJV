@@ -1391,6 +1391,10 @@ IMAGES
 
 ![The-Global-Lie-Flat-Earth-Documentary-2016.png](images/The-Global-Lie-Flat-Earth-Documentary-2016.png)
 
+- [The-Godhead-vs-The-Trinity.png](images/The-Godhead-vs-The-Trinity.png)
+
+![The-Godhead-vs-The-Trinity.png](images/The-Godhead-vs-The-Trinity.png)
+
 - [Uk1rtqeeGpQ.jpg](images/Uk1rtqeeGpQ.jpg)
 
 ![Uk1rtqeeGpQ.jpg](images/Uk1rtqeeGpQ.jpg)

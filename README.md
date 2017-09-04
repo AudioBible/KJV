@@ -519,7 +519,11 @@ http://audiobible.life плоская земля! Плоска Земя! Płaski
 > It is amazing that there are no pending lawsuit against NASA about the earth rotates 1000mph and the earth is a sphere.  I can hardly wait to see the outcome of this case.  People need to file a federal law suit against fraud, negligent for punitive damages and shut down NASA.  There are no proof that the earth is a sphere nor it's moving 1000mph.  These statements are heresay and no concrete evidences to support them.  Pictures or movies are man made.  If the earth is sphere then they can prove to us by flying from NY to China thru the South Pole like they are going thru the North Pole right now.  Flat earth is true 100% and it needs no proof by the simple scientific fact that we are using water to level every building, structure and high-way.
 - TT
 
-# The word Trinity is nowhere to be found in the KJV! The word Godhead on the other hand is in multiple places!
+[![The-Godhead-vs-The-Trinity](images/The-Godhead-vs-The-Trinity.png)](https://www.youtube.com/watch?v=Bh3n1Y_J_ak)
+
+[The Godhead vs The "Trinity"](https://www.youtube.com/watch?v=Bh3n1Y_J_ak)
+
+## The word Trinity is nowhere to be found in the KJV! The word Godhead on the other hand is in multiple places!
 
 # audiobible find Godhead
 
