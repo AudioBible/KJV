@@ -48,6 +48,10 @@ Why I like to listen to sermons on YouTube is because I can't rewind what the pr
 
 [TRUTH TRUMPS LIES - Full Documentary (2017) HD](https://www.youtube.com/watch?v=mB-W1xJL4b0)
 
+[![9-11-no-planes](images/9-11-no-planes.png)](https://www.youtube.com/watch?v=8W3y3Qh8R1s)
+
+[BELIEVE YOUR OWN EYES - 9/11 - “NO PLANES”](https://www.youtube.com/watch?v=8W3y3Qh8R1s)
+
 # Here's what it says in the Gospel about respect!
 
 **Note:** Everything about respect in the Bible is the opposite of what we've been taught! Satan says the opposite of what God says in the Bible, don't you get it? **Notice, PROVERBS 28:21**. We can see the patterns with Satan flipping the words of God upside down, just like with the creation, everything the opposite in the Globe theory compared to the Flat Earth Truth!
