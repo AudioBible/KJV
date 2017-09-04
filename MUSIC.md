@@ -13,7 +13,7 @@ MUSIC
 
 **Note:** You can use [http://listenonrepeat.com](http://listenonrepeat.com) for any videos that you want to listen to on repeat!
 
-**Note:** Some songs may have explicit language. Please don't judge people for the language they use or their personality. Lest you be judged the way you judge! Listen the message they are saying. Most of all please share the love with others! It's a lot worse to be out there killing people over oil/dropping a real bomb, than to say a four letter word/dropping the F-bomb. Who's side are you on? If it's not blaspheming the name of Jesus Christ then whats the problem, are you conditioned?
+**Note:** Some songs may have explicit language. Please don't judge people for the language they use or their personality. Lest you be judged the way you judge! Listen to the message they are saying. Most of all please share the love with others! It's a lot worse to be out there killing people over oil, dropping a real bomb, than saying a four letter word, dropping the F-bomb. Who's side are you on? If it's not blaspheming the name of Jesus Christ then whats the problem, are you conditioned?
 
 [![Best-of-PayDay-Monsanto](images/Best-of-PayDay-Monsanto.png)](https://www.youtube.com/watch?v=prjXQd7rB5w)
 
