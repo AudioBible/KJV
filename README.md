@@ -18,7 +18,7 @@ Don't just believe me! Do the research! I created this site so it would be easie
 
 I'll be updating this site to be a lot better as soon as I figure out a good look and a better way to manage the content. This works for now! Don't ever judge anything by its appearance! The news will tell you many people died, with a smile on their face!
 
-Why I like to listen to sermons on YouTube is because I can't rewind what the preacher said in real life, sometimes I need to hear it multiple times for it to make sense! While I'm thinking about what he said, he's already talking about something else! I dont know about you, but I like to listen, read and watch carefully!
+Why I like to listen to sermons on YouTube is because I can't rewind what the preacher said in real life, sometimes I need to hear it multiple times for it to make sense! While I'm thinking about what he said, he's already talking about something else! I dont know about you, but I like to listen, read and watch carefully! I prefer not to listen to the whole truth not half-truth!
 
 **Note**: Some images are links to a youtube video, obviously the blue text is a link to a video or playlist or a page on the site.
 
