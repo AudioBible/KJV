@@ -12,7 +12,7 @@ If you're always busy making money, come home tired and don't have time to seek 
 
 You think I'm crazy?! Go pray for me! I will be praying for you too! I pray God doesn't slap you even harder with the Truth you refuse to seek! I'm not the crazy one! If you have a degree, then you've been successfully conditioned by Satan's system!
 
-**Want to make a $1,000?** Prove me wrong, show me some non-CGI pictures of the Globe Earth! You can't do it, because the Earth is not a Globe! NASA showing you cartoons and you taking it as reality! If they can do that, what else can they do with your life?
+**Want to make a $1,000?** Prove me wrong, show me non-CGI pictures of the Globe Earth! You can't do it, because the Earth is not a Globe! NASA showing you cartoons and you taking it as reality! If they can do that, what else can they do with your life?
 
 Why the need for Government? Because God is the only one who is omnipotent! Satan can be only at one place at any time! Therefore Satan uses Government, Technology and other ways to be in multiple places at one time! Everything else is lies!
 
