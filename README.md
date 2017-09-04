@@ -12,7 +12,7 @@ If you're always busy making money, come home tired and don't have time to seek 
 
 You think I'm crazy?! Go pray for me! I will be praying for you too! I pray God doesn't slap you even harder with the Truth you refuse to seek! I'm not the crazy one! If you have a degree, then you've been successfully conditioned by Satan's system!
 
-Why the need for Government? Because God is the only one who is omnipotent! Satan can be only at one place at any time! Therefore Satan uses the Government, technology and by other means to be in multiple places at one time!
+Why the need for Government? Because God is the only one who is omnipotent! Satan can be only at one place at any time! Therefore Satan uses the Government, technology and by other means to be in multiple places at one time! Everything else is lies!
 
 **Note**: Some images are links to a youtube video, obviously the blue text is a link to a video or playlist or a page on the site.
 
