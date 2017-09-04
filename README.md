@@ -22,6 +22,14 @@ Why I like to listen to sermons on YouTube is because I can't rewind what the pr
 
 **Note**: Some images are links to a youtube video, obviously the blue text is a link to a video or playlist or a page on the site.
 
+[![Scientism-Exposed-Full-Documentary-2016](images/Scientism-Exposed-Full-Documentary-2016.png)](https://www.youtube.com/watch?v=AeIGrEtPMmE)
+
+[🔬 SCIENTISM EXPOSED 🔭 Full Documentary (2016) HD](https://www.youtube.com/watch?v=AeIGrEtPMmE)
+
+[![Rob-Skiba-Dean-Odle-The-Firmament](images/Rob-Skiba-Dean-Odle-The-Firmament.png)](https://www.youtube.com/watch?v=iH4MnXI0sxQ)
+
+[Rob Skiba and Pastor Dean Odle on the significance of the Firmament enclosed flat Earth](https://www.youtube.com/watch?v=iH4MnXI0sxQ)
+
 [![Rob-Skiba](images/Rob-Skiba.png)](https://www.youtube.com/watch?v=ISqRpgNZ29w)
 
 [Rob Skiba shares his testimony, the high price of doing research and discusses getting back to SEED](https://www.youtube.com/watch?v=ISqRpgNZ29w)

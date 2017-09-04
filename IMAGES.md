@@ -1359,9 +1359,17 @@ IMAGES
 
 ![Public-School-Indoctrination-Center-Lana-Wong.jpg](images/Public-School-Indoctrination-Center-Lana-Wong.jpg)
 
+- [Rob-Skiba-Dean-Odle-The-Firmament.png](images/Rob-Skiba-Dean-Odle-The-Firmament.png)
+
+![Rob-Skiba-Dean-Odle-The-Firmament.png](images/Rob-Skiba-Dean-Odle-The-Firmament.png)
+
 - [Rob-Skiba.png](images/Rob-Skiba.png)
 
 ![Rob-Skiba.png](images/Rob-Skiba.png)
+
+- [Scientism-Exposed-Full-Documentary-2016.png](images/Scientism-Exposed-Full-Documentary-2016.png)
+
+![Scientism-Exposed-Full-Documentary-2016.png](images/Scientism-Exposed-Full-Documentary-2016.png)
 
 - [Scientists-Playing-God.png](images/Scientists-Playing-God.png)
 
