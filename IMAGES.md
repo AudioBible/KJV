@@ -1343,6 +1343,10 @@ IMAGES
 
 ![OxsM1flZCVw.jpg](images/OxsM1flZCVw.jpg)
 
+- [Pastor-Charles-Lawson.png](images/Pastor-Charles-Lawson.png)
+
+![Pastor-Charles-Lawson.png](images/Pastor-Charles-Lawson.png)
+
 - [PlanNowHeader.png](images/PlanNowHeader.png)
 
 ![PlanNowHeader.png](images/PlanNowHeader.png)
