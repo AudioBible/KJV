@@ -211,6 +211,32 @@ Do what thou wilt? or do God's will? Which is it? Everyone has there own Truth? 
 
 [ILLUMINATI CARD GAME EXPOSED!!! PART THREE!](https://www.youtube.com/watch?v=qaSngXGfvdY)
 
+Why are demons helping the world's top magicians and not angels or other spiritual entities? The video below and this description will answer that.
+
+Loads of people in the demon magicians videos have been asking "why does it have to be demons, and not other spirits or even angels? They are not hurting anyone" - thus, I had to make this video.
+
+FAQ:
+
+Why do demons help actors, magicians and musicians?
+
+Answer: These humans make contracts with the demons, the terms are different every time, but the demons benefit in the sense that they get to influence the youth in various ways, by corrupting their morals, and spreading their subliminal messages. In most cases they want to turn these ungodly servants into the idols of the youth. Lady Gaga, Rihanna, Nicki Minaj etc.
+
+Why do only demons answer ouija boards?
+
+Answer: Because angels who serve God, are not deceptive, lie, or pretend to be things they are not. The reason why demons mess around with people a lot who use ouija boards is because most people who use them think they are contacting spirits of dead humans. And the reason why demons like to pretend to be spirits of dead humans is to discredit the bible, because the bible clearly does not teach that our spirits will be able to roam freely on earth after death, and it especially does not teach that we will be able to contact the living or affect the material world in that spirit form. Essentialy they do it to "prove" the bible wrong. Yes, demons are smart. They also pretend to be aliens, or spirits of aliens for the exact same reason.
+
+Why do demons possess people?
+
+Answer:
+
+Demons are only able to possess people who willingly open themselves up to them, (who engage in the occult, try to contact spirits, attempt to channel spirits etc). I have never come across a case where a demon was able to possess a human who did not dabble in the occult in some form.
+
+Where are the angels who serve God?
+
+Answer: They are higher dimensional beings and we can't know where they are at any given point, but you can be certain that they are observing the situation, most likely without interfering in a way we would notice. Our human existance on this earth is a test. I believe the good angels to be observers, while God the creator is the ultimate judge and referee, he is the one that prevents demons from killing us all (since they can harm us but we can't harm them).
+
+That is why demons contract with select humans and use them as their puppets to affect human affairs. (Illuminati, demon magicians, demon musicians, demon actors).
+
 [![God-Way-or-My-Way](images/God-Way-or-My-Way.png)](https://www.youtube.com/watch?v=uLbZtPf8pSo)
 
 [Why are DEMONS helping Magicians and not other "Spirits"? (Dynamo, Criss Angel, Yif etc)](https://www.youtube.com/watch?v=uLbZtPf8pSo)
