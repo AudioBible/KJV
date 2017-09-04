@@ -211,7 +211,11 @@ Do what thou wilt? or do God's will? Which is it? Everyone has there own Truth? 
 
 [ILLUMINATI CARD GAME EXPOSED!!! PART THREE!](https://www.youtube.com/watch?v=qaSngXGfvdY)
 
-## EVERYTHING THEY SAY IS REALLY THE OPPOSITE OF WHAT THEY SAY!
+[![God-Way-or-My-Way](images/God-Way-or-My-Way.png)](https://www.youtube.com/watch?v=uLbZtPf8pSo)
+
+[Why are DEMONS helping Magicians and not other "Spirits"? (Dynamo, Criss Angel, Yif etc)](https://www.youtube.com/watch?v=uLbZtPf8pSo)
+
+## ALMOST EVERYTHING THEY SAY IS REALLY THE OPPOSITE OF THE REAL TRUTH!
 
 ## NO OFFENSE BUT WE ARE IN TROUBLE AND THE TRUTH MUST BE SEEN AND HEARD!
 

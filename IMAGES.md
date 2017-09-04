@@ -1267,6 +1267,10 @@ IMAGES
 
 ![GlobeBusters.png](images/GlobeBusters.png)
 
+- [God-Way-or-My-Way.png](images/God-Way-or-My-Way.png)
+
+![God-Way-or-My-Way.png](images/God-Way-or-My-Way.png)
+
 - [HkAHHM3c.png](images/HkAHHM3c.png)
 
 ![HkAHHM3c.png](images/HkAHHM3c.png)
