@@ -48,6 +48,10 @@ Why I like to listen to sermons on YouTube is because I can't rewind what the pr
 
 [Making Connections VII: The Major Deception (Pastor Charles Lawson)](https://www.youtube.com/watch?v=J4uo81V-yyw)
 
+[![Angel-Heart-Studios-ANTARCTICA-Fallen-Angels](images/Angel-Heart-Studios-ANTARCTICA-Fallen-Angels.png)](https://www.youtube.com/watch?v=1YruLtlTzXQ)
+
+[What Is Happening In ANTARCTICA? Ancient Technology, LIVING Fallen Angels, And Cities Under Ice!](https://www.youtube.com/watch?v=1YruLtlTzXQ)
+
 [![9-11-no-planes](images/9-11-no-planes.png)](https://www.youtube.com/watch?v=8W3y3Qh8R1s)
 
 [BELIEVE YOUR OWN EYES - 9/11 - “NO PLANES”](https://www.youtube.com/watch?v=8W3y3Qh8R1s)
