@@ -14,7 +14,7 @@
 
 It's all connected to the biggest lie in the world, about the shape of the world, once you understand you will see how to tell through their lies of deception. Check out the collection of youtube videos and do some research on these topics. Arm yourself with knowledge! Don't be a clown!
 
-I didn’t want to believe all this stuff before either! I did lots of research, then found the truth music from people like [Payday Monsanto](https://www.youtube.com/watch?v=DiSvqH3Q5Dk), [K-Rino](https://www.youtube.com/watch?v=R_DtZFL_ar0) and [ODD TV](https://www.youtube.com/watch?v=TlTR7QQZQ8I), did more research and that was it my eyes opened to the depth of the deception! The rabbit hole goes deep, real deep!
+I didn’t want to believe all this stuff before either! I did [lots of research](https://www.youtube.com/results?search_query=flat+earth+live), then found the truth music from people like [Payday Monsanto](https://www.youtube.com/watch?v=DiSvqH3Q5Dk), [K-Rino](https://www.youtube.com/watch?v=R_DtZFL_ar0) and [ODD TV](https://www.youtube.com/watch?v=TlTR7QQZQ8I), did more research and that was it my eyes opened to the depth of the deception! The rabbit hole goes deep, real deep!
 
 **Want to make a $1,000?** Prove me wrong, show me non-CGI pictures of the Globe Earth! You can't do it, because the Earth is not a Globe! NASA showing you cartoons and you taking it as reality! If they can do that, what else can they do with your life?
 
