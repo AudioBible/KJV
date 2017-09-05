@@ -1599,10 +1599,6 @@ IMAGES
 
 ![flat-earth-channels-flier.jpg](images/flat-earth-channels-flier.jpg)
 
-- [flat-earth-channels-flier.psd](images/flat-earth-channels-flier.psd)
-
-![flat-earth-channels-flier.psd](images/flat-earth-channels-flier.psd)
-
 - [flat-earth-dome-3d-model.jpg](images/flat-earth-dome-3d-model.jpg)
 
 ![flat-earth-dome-3d-model.jpg](images/flat-earth-dome-3d-model.jpg)
