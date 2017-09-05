@@ -6,6 +6,12 @@
 
 ![flat-earth-truth](images/flat-earth-truth.jpg)
 
+# audiobible find let god be true
+
+
+    ROMANS 3:4 God forbid: yea, let God be true, but every man a liar; as it is written, That thou mightest be justified in thy sayings, and mightest overcome when thou art judged.
+
+
 It's all connected to the biggest lie in the world, about the shape of the world, once you understand you will see how to tell through their lies of deception. Check out the collection of youtube videos and do some research on these topics. Arm yourself with knowledge! Don't be a clown!
 
 If you're always busy making money, come home tired and don't have time to seek truth, Money is your God! To find out who rules you, find out who you can't question!
@@ -19,6 +25,8 @@ Why the need for Government? Because God is the only one who is omnipotent! Sata
 Don't just believe me! Do the research! I created this site so it would be easier for you to get started doing the research you could do without this site! I have time to do research, maybe you don't, that's why this site is here! Please help spread awareness!
 
 I'll be updating this site to be a lot better as soon as I figure out a good look and a better way to manage the content. This works for now! Don't ever judge anything by its appearance! The news will tell you many people died, with a smile on their face!
+
+I didn’t want to believe all this stuff before either! I did lots of research and then found the truth music from people like Payday Monsanto, K-Rino and ODD TV, did more research and that was it my eyes opened to the depth of the deception!
 
 Why I like to listen to sermons on YouTube is because I can't rewind what the preacher said in real life, sometimes I need to hear it multiple times for it to make sense! While I'm thinking about what he said, he's already talking about something else! I dont know about you, but I like to listen, read and watch carefully! I prefer to listen to the whole truth not half truth!
 
@@ -81,6 +89,12 @@ Why I like to listen to sermons on YouTube is because I can't rewind what the pr
 
 
 [Baptists And Jesuits Working Together In Thailand](https://www.youtube.com/watch?v=_8K4VLZyl1w)
+
+[Charismatics and their false Christ](https://www.youtube.com/watch?v=bLQLlWH4KrU)
+
+[Cognitive Dissonance](https://www.youtube.com/watch?v=U0MVj4UUQJ4)
+
+[Let God Fight Your Battles For You](https://www.youtube.com/watch?v=bVyjG8hnx3U)
 
 # Here's what it says in the Gospel about respect!
 
@@ -305,7 +319,7 @@ Do what thou wilt? or do God's will? Which is it? Everyone has there own Truth? 
 
 # TRUTH HURTS WHEN YOU BELIEVE LIES!
 
-**Note:** Some songs may have explicit language. Please don't judge people for the language they use or their personality. Lest you be judged according to your measure! Listen to the message they are saying. Most of all please share the love with others! It's a lot worse to be out there killing people over oil, dropping a real bomb, than saying a four letter word, dropping the F-bomb. Who's side are you on? If it's not blaspheming the name of Jesus Christ then whats the problem, are you conditioned?
+**Note:** Some songs may have explicit language. Please don't judge people for the language they use or their personality. Lest you be judged according to your measure! Listen to the message they are saying. Most of all please share the love with others! It's a lot worse to be out there killing people over oil, dropping a real bomb, than saying a four letter word, dropping the F-bomb. Who's side are you on? If it's not blaspheming the name of Jesus Christ then whats the problem, are you conditioned? What are filthy words? Are the words "drone strikes", which means many people die, worse than the S-word, which means poop?
 
 [![ODD-TV-Living-In-Hell-Playlist](images/ODD-TV-Living-In-Hell-Playlist.png)](https://www.youtube.com/watch?v=TlTR7QQZQ8I&list=PL7X63Sm3kODPV43FyewOSadSnZwZGZQHU&index=1)
 
@@ -438,12 +452,6 @@ Do what thou wilt? or do God's will? Which is it? Everyone has there own Truth? 
     LUKE 17:21 Neither shall they say, Lo here! or, lo there! for, behold, the kingdom of God is within you.
 
 
-# audiobible find let god be true
-
- 
-    ROMANS 3:4 God forbid: yea, let God be true, but every man a liar; as it is written, That thou mightest be justified in thy sayings, and mightest overcome when thou art judged.
-
-
 # audiobible ps 23
 
 [Psalm 23 - Bible Verse](https://www.youtube.com/watch?v=dfgV81X__qg)
@@ -460,6 +468,60 @@ Do what thou wilt? or do God's will? Which is it? Everyone has there own Truth? 
     PS 23:5 Thou preparest a table before me in the presence of mine enemies: thou anointest my head with oil; my cup runneth over.
     
     PS 23:6 Surely goodness and mercy shall follow me all the days of my life: and I will dwell in the house of the LORD for ever.
+
+
+# audiobible show eph 6
+
+[Ephesians 6 - Armor Of God](https://www.youtube.com/watch?v=huEngPDkdR8)
+
+
+    EPH 6:1 Children, obey your parents in the Lord: for this is right.
+
+    EPH 6:2 Honour thy father and mother; which is the first commandment with promise;
+
+    EPH 6:3 That it may be well with thee, and thou mayest live long on the earth.
+
+    EPH 6:4 And, ye fathers, provoke not your children to wrath: but bring them up in the nurture and admonition of the Lord.
+
+    EPH 6:5 Servants, be obedient to them that are your masters according to the flesh, with fear and trembling, in singleness of your heart, as unto Christ;
+
+    EPH 6:6 Not with eyeservice, as menpleasers; but as the servants of Christ, doing the will of God from the heart;
+
+    EPH 6:7 With good will doing service, as to the Lord, and not to men:
+
+    EPH 6:8 Knowing that whatsoever good thing any man doeth, the same shall he receive of the Lord, whether he be bond or free.
+
+    EPH 6:9 And, ye masters, do the same things unto them, forbearing threatening: knowing that your Master also is in heaven; neither is there respect of persons with him.
+
+    EPH 6:10 Finally, my brethren, be strong in the Lord, and in the power of his might.
+
+    EPH 6:11 Put on the whole armour of God, that ye may be able to stand against the wiles of the devil.
+
+    EPH 6:12 For we wrestle not against flesh and blood, but against principalities, against powers, against the rulers of the darkness of this world, against spiritual wickedness in high places.
+
+    EPH 6:13 Wherefore take unto you the whole armour of God, that ye may be able to withstand in the evil day, and having done all, to stand.
+
+    EPH 6:14 Stand therefore, having your loins girt about with truth, and having on the breastplate of righteousness;
+
+    EPH 6:15 And your feet shod with the preparation of the gospel of peace;
+
+    EPH 6:16 Above all, taking the shield of faith, wherewith ye shall be able to quench all the fiery darts of the wicked.
+
+    EPH 6:17 And take the helmet of salvation, and the sword of the Spirit, which is the word of God:
+
+    EPH 6:18 Praying always with all prayer and supplication in the Spirit, and watching thereunto with all perseverance and supplication for all saints;
+
+    EPH 6:19 And for me, that utterance may be given unto me, that I may open my mouth boldly, to make known the mystery of the gospel,
+
+    EPH 6:20 For which I am an ambassador in bonds: that therein I may speak boldly, as I ought to speak.
+
+    EPH 6:21 But that ye also may know my affairs, and how I do, Tychicus, a beloved brother and faithful minister in the Lord, shall make known to you all things:
+
+    EPH 6:22 Whom I have sent unto you for the same purpose, that ye might know our affairs, and that he might comfort your hearts.
+
+    EPH 6:23 Peace be to the brethren, and love with faith, from God the Father and the Lord Jesus Christ.
+
+    EPH 6:24 Grace be with all them that love our Lord Jesus Christ in sincerity. Amen.
 
 
 #### Flat Earth Matters If Truth Matters, Up is Up and Down is Down, no matter where in the world you are!
