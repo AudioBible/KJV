@@ -56,6 +56,18 @@ Why I like to listen to sermons on YouTube is because I can't rewind what the pr
 
 [Making Connections VII: The Major Deception (Pastor Charles Lawson)](https://www.youtube.com/watch?v=J4uo81V-yyw)
 
+[![NASA-causing-carnage-in-Texas](images/NASA-causing-carnage-in-Texas.png)](https://www.youtube.com/watch?v=8bn7Clae5A8)
+
+[How NASA is CAUSING the Carnage In Texas - RFB Mirror](https://www.youtube.com/watch?v=8bn7Clae5A8)
+
+[![Transhumanism-Agenda-is-happening-now](images/Transhumanism-Agenda-is-happening-now.png)](https://www.youtube.com/watch?v=qdhpDVb1s1E)
+
+[Transhumanism Agenda Is Happening Now](https://www.youtube.com/watch?v=qdhpDVb1s1E)
+
+[![They-are-preparing-the-earth-for-the-FALLEN](images/They-are-preparing-the-earth-for-the-FALLEN.png)](https://www.youtube.com/watch?v=d_KQjyfrRFk)
+
+[They are Preparing the earth for the FALLEN](https://www.youtube.com/watch?v=d_KQjyfrRFk)
+
 [![Angel-Heart-Studios-ANTARCTICA-Fallen-Angels](images/Angel-Heart-Studios-ANTARCTICA-Fallen-Angels.png)](https://www.youtube.com/watch?v=1YruLtlTzXQ)
 
 [What Is Happening In ANTARCTICA? Ancient Technology, LIVING Fallen Angels, And Cities Under Ice!](https://www.youtube.com/watch?v=1YruLtlTzXQ)
