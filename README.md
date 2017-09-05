@@ -30,7 +30,7 @@ I'll be updating this site to be a lot better as soon as I figure out a good loo
 
 Why I like to listen to sermons on YouTube is because I can't rewind what the preacher said in real life, sometimes I need to hear it multiple times for it to make sense! While I'm thinking about what he said, he's already talking about something else! I dont know about you, but I like to listen, read and watch carefully! I prefer to listen to the whole truth not half truth!
 
-**Note**: Some images are links to a youtube video, obviously the blue text is a link to a video or playlist or a page on the site.
+**Note**: Some images are links to a youtube video, obviously the blue text is a link to a video or playlist or a page on the site. Some videos I've place a screenshot of the video, some I haven't, so look at the link below the image, if no image then just follow the youtube link, I was lazy to put an image or just didn't want to make this page really big and slow to download because of so many images!
 
 [![Scientism-Exposed-Full-Documentary-2016](images/Scientism-Exposed-Full-Documentary-2016.png)](https://www.youtube.com/watch?v=AeIGrEtPMmE)
 
@@ -100,7 +100,33 @@ Why I like to listen to sermons on YouTube is because I can't rewind what the pr
 
 [Shill Gatekeeping - Bill Nye's Spherical Proof - Space Bubbles - Flat Earth](https://www.youtube.com/watch?v=seIDHsKXycU)
 
+[Flat Earth Circus - Globe Symbolism - Space Programming](https://www.youtube.com/watch?v=jA6GFLFvS_U)
+
 [Project Blue Beam - Alien Agenda - Flat Earth](https://www.youtube.com/watch?v=xYRCJqdv0_Q)
+
+[Why ODD TV Supports the Gleason's Flat Earth Map](https://www.youtube.com/watch?v=zH9WRpS6-Z0)
+
+[Flat Earth Books - Youtube Money LOL! - ODD TV Update](https://www.youtube.com/watch?v=KWJLQJdTrik)
+
+[Flat Earth Ridicule - Globe Earth Brainwashing](https://www.youtube.com/watch?v=7557apwzir4)
+
+[Star Trek & Auguste Piccards Flat Earth: 10 Miles High by Michael Yoseph](https://www.youtube.com/watch?v=3mJyUmPnAXg)
+
+[Edward Hendrie Interview - Flat Earth, Jews, Jesuits & More](https://www.youtube.com/watch?v=AoWl3QpsKKA)
+
+[Proof That Our World is Not a Moving Globe : Edward Hendrie](https://www.youtube.com/watch?v=pNe1wWeaHOU)
+
+[The Bible Does Say FLAT EARTH](https://www.youtube.com/watch?v=hIMIAdyWEIg)
+
+[LIL UZI VERT (LUCIFER) XO TOUR Llif3 ILLUMINATI EXPOSED!](https://www.youtube.com/watch?v=8FHI51Ez-gE)
+
+[BACK TO SCHOOL TIPS 2017!](https://www.youtube.com/watch?v=9ZCPp2bdC7k)
+
+[IS THIS THE FUTURE OF ARTIFICIAL INTELLIGENCE???](https://www.youtube.com/watch?v=nkJo6Rm8-TU)
+
+[Artificial Intelligence Is NOT what you think it is.](https://www.youtube.com/watch?v=wimUaNqEJyw)
+
+[New World Order Is Using Weather ITS HAPPENING](https://www.youtube.com/watch?v=Kk4HHahoseg)
 
 [![The-Godhead-vs-The-Trinity](images/The-Godhead-vs-The-Trinity.png)](https://www.youtube.com/watch?v=Bh3n1Y_J_ak)
 
