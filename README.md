@@ -14,19 +14,19 @@
 
 It's all connected to the biggest lie in the world, about the shape of the world, once you understand you will see how to tell through their lies of deception. Check out the collection of youtube videos and do some research on these topics. Arm yourself with knowledge! Don't be a clown!
 
+I didn’t want to believe all this stuff before either! I did lots of research and then found the truth music from people like Payday Monsanto, K-Rino and ODD TV, did more research and that was it my eyes opened to the depth of the deception!
+
+**Want to make a $1,000?** Prove me wrong, show me non-CGI pictures of the Globe Earth! You can't do it, because the Earth is not a Globe! NASA showing you cartoons and you taking it as reality! If they can do that, what else can they do with your life?
+
 If you're always busy making money, come home tired and don't have time to seek truth, Money is your God! To find out who rules you, find out who you can't question!
 
 You think I'm crazy?! Go pray for me! I will be praying for you too! I pray God doesn't slap you even harder with the Truth you refuse to seek! I'm not the crazy one! If you have a degree, then you've been successfully conditioned by Satan's system!
-
-**Want to make a $1,000?** Prove me wrong, show me non-CGI pictures of the Globe Earth! You can't do it, because the Earth is not a Globe! NASA showing you cartoons and you taking it as reality! If they can do that, what else can they do with your life?
 
 Why the need for Government? Because God is the only one who is omnipotent! Satan can be only at one place at any time! Therefore Satan uses Government, Technology and other ways to be in multiple places at one time! Everything else is lies!
 
 Don't just believe me! Do the research! I created this site so it would be easier for you to get started doing the research you could do without this site! I have time to do research, maybe you don't, that's why this site is here! Please help spread awareness!
 
 I'll be updating this site to be a lot better as soon as I figure out a good look and a better way to manage the content. This works for now! Don't ever judge anything by its appearance! The news will tell you many people died, with a smile on their face!
-
-I didn’t want to believe all this stuff before either! I did lots of research and then found the truth music from people like Payday Monsanto, K-Rino and ODD TV, did more research and that was it my eyes opened to the depth of the deception!
 
 Why I like to listen to sermons on YouTube is because I can't rewind what the preacher said in real life, sometimes I need to hear it multiple times for it to make sense! While I'm thinking about what he said, he's already talking about something else! I dont know about you, but I like to listen, read and watch carefully! I prefer to listen to the whole truth not half truth!
 
