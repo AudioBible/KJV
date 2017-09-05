@@ -68,6 +68,18 @@ Why I like to listen to sermons on YouTube is because I can't rewind what the pr
 
 [They are Preparing the earth for the FALLEN](https://www.youtube.com/watch?v=d_KQjyfrRFk)
 
+[![NASA-SUN-Simulator-Caught-on-VIDEO](images/NASA-SUN-Simulator-Caught-on-VIDEO.png)](https://www.youtube.com/watch?v=jZJcSzO9viU)
+
+[NASA's SUN SIMULATOR CAUGHT ON VIDEO.](https://www.youtube.com/watch?v=jZJcSzO9viU)
+
+[![Artificial-SUN-Finally-goes-PUBLIC-in-Germany](images/Artificial-SUN-Finally-goes-PUBLIC-in-Germany.png)](https://www.youtube.com/watch?v=vsQpG-qGhc4)
+
+[Artificial SUN Finally goes PUBLIC in Germany](https://www.youtube.com/watch?v=vsQpG-qGhc4)
+
+[![SUN-Simulator-is-being-captured-Worldwide](images/SUN-Simulator-is-being-captured-Worldwide.png)](https://www.youtube.com/watch?v=l3ydfgCRphA)
+
+[Sun Simulator Is being captured Worldwide AWAKENING](https://www.youtube.com/watch?v=l3ydfgCRphA)
+
 [![Angel-Heart-Studios-ANTARCTICA-Fallen-Angels](images/Angel-Heart-Studios-ANTARCTICA-Fallen-Angels.png)](https://www.youtube.com/watch?v=1YruLtlTzXQ)
 
 [What Is Happening In ANTARCTICA? Ancient Technology, LIVING Fallen Angels, And Cities Under Ice!](https://www.youtube.com/watch?v=1YruLtlTzXQ)
@@ -75,6 +87,20 @@ Why I like to listen to sermons on YouTube is because I can't rewind what the pr
 [![9-11-no-planes](images/9-11-no-planes.png)](https://www.youtube.com/watch?v=8W3y3Qh8R1s)
 
 [BELIEVE YOUR OWN EYES - 9/11 - “NO PLANES”](https://www.youtube.com/watch?v=8W3y3Qh8R1s)
+
+[![ZIONIST-WATCH-REVEALS-ALEX-JONES](images/ZIONIST-WATCH-REVEALS-ALEX-JONES.png)](https://www.youtube.com/watch?v=Cu2ukOUzgaM)
+
+[ZIONIST WATCH REVEALS ALEX JONES](https://www.youtube.com/watch?v=Cu2ukOUzgaM)
+
+[Abby Martin Exposes Zionism & Israel on Joe Rogan Podcast (Strong Language)](https://www.youtube.com/watch?v=rBRxt5ufnGg)
+
+[Joe Rogan exposed](https://www.youtube.com/watch?v=hCu4Ipc9n3U)
+
+[Joe Rogan Questions Everything - Chemtrail Episode Debunked ▶️️](https://www.youtube.com/watch?v=tM5CvbApHr4)
+
+[Shill Gatekeeping - Bill Nye's Spherical Proof - Space Bubbles - Flat Earth](https://www.youtube.com/watch?v=seIDHsKXycU)
+
+[Project Blue Beam - Alien Agenda - Flat Earth](https://www.youtube.com/watch?v=xYRCJqdv0_Q)
 
 [![The-Godhead-vs-The-Trinity](images/The-Godhead-vs-The-Trinity.png)](https://www.youtube.com/watch?v=Bh3n1Y_J_ak)
 
@@ -107,6 +133,8 @@ Why I like to listen to sermons on YouTube is because I can't rewind what the pr
 [Cognitive Dissonance](https://www.youtube.com/watch?v=U0MVj4UUQJ4)
 
 [Let God Fight Your Battles For You](https://www.youtube.com/watch?v=bVyjG8hnx3U)
+
+[No Coincidences - Let Go and Let God](https://www.youtube.com/watch?v=vKJGcgZzv1w)
 
 # Here's what it says in the Gospel about respect!
 
