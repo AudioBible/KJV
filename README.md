@@ -18,7 +18,7 @@ I didn’t want to believe all this stuff before either! I did lots of [research
 
 **Want to make a $1,000?** Prove me wrong, show me non-CGI pictures of the Globe Earth! You can't do it, because the Earth is not a Globe! NASA showing you cartoons and you taking it as reality! If they can do that, what else can they do with your life?
 
-If you're always busy making money, come home tired and don't have time to seek truth, Money is your God! To find out who rules you, find out who you can't question!
+If you're always busy making money, come home tired and don't have time to seek truth, Money is your God! While you are busy worshipping Money like God, The LORD reigneth! To find out who rules you, find out who you can't question!
 
 You think I'm crazy?! Go pray for me! I will be praying for you too! I pray God doesn't slap you even harder with the Truth you refuse to seek! I'm not the crazy one! If you have a degree, then you've been successfully conditioned by Satan's system!
 
