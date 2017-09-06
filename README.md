@@ -116,6 +116,8 @@ Why I like to listen to sermons on YouTube is because I can't rewind what the pr
 
 [Proof That Our World is Not a Moving Globe : Edward Hendrie](https://www.youtube.com/watch?v=pNe1wWeaHOU)
 
+[Flat Earth? Globe? WHAT DOES THE BIBLE SAY?](https://www.youtube.com/watch?v=LNhpNUJh5GY)
+
 [The Bible Does Say FLAT EARTH](https://www.youtube.com/watch?v=hIMIAdyWEIg)
 
 [LIL UZI VERT (LUCIFER) XO TOUR Llif3 ILLUMINATI EXPOSED!](https://www.youtube.com/watch?v=8FHI51Ez-gE)
