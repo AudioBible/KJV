@@ -14,6 +14,8 @@ This is mass mind control, if they can control your mind about the shape of the 
 
 [Flat Earth? Globe? WHAT DOES THE BIBLE SAY?](https://www.youtube.com/watch?v=LNhpNUJh5GY&list=PLYI8318YYdkCsZ7dsYV01n6TZhXA6Wf9i&index=3)
 
+[Edward Hendrie with A. True Ott PhD, June 3, 2016](https://www.youtube.com/watch?v=VZb2imQYMuk&list=PLYI8318YYdkCsZ7dsYV01n6TZhXA6Wf9i&index=12)
+
 # audiobible find let god be true
 
 
