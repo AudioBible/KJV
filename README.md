@@ -6,7 +6,7 @@
 
 [![flat-earth-truth](images/flat-earth-truth.jpg)](https://www.youtube.com/watch?v=pNe1wWeaHOU&list=PLYI8318YYdkCsZ7dsYV01n6TZhXA6Wf9i&index=1)
 
-These people are doctors and lawyers and have PHDs and stuff like that, if you need them to have that kind of thing to convince you to hear them out!
+These people are physicists, doctors and lawyers, if you need them to have a PHD to convince you to hear them out!
 
 [Proof That Our World is Not a Moving Globe : Edward Hendrie](https://www.youtube.com/watch?v=pNe1wWeaHOU&list=PLYI8318YYdkCsZ7dsYV01n6TZhXA6Wf9i&index=1) [Playlist]
 
