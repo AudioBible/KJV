@@ -44,6 +44,8 @@ I'm not judging you! I'm just being observant and notifying you of how bamboozle
 
 Don't just believe me! Do the research! I created this site so it would be easier for you to get started doing the research you could do without this site! I have time to do research, maybe you don't, that's why this site is here! Please help spread awareness!
 
+Looks can be deceiving! Just because a person says something, does mean anything, even if he believes it to be true, maybe all he knows is lies and lives in a fantasy dream world, not reality, why things blow up in your face when you try to test the fantasy in the real world! Same thing when it comes to computer programming and making websites! You may think it's ready, until you deploy and get users to the site and things start breaking!
+
 I'll be updating this site to be a lot better as soon as I figure out a good look and a better way to manage the content. This works for now! Don't ever judge anything by its appearance! The news will tell you many people died, with a smile on their face!
 
 Why I like to listen to sermons on YouTube is because I can't rewind what the preacher said in real life, sometimes I need to hear it multiple times for it to make sense! While I'm thinking about what he said, he's already talking about something else! I dont know about you, but I like to listen, read and watch carefully! I prefer to listen to the whole truth not half truth!
