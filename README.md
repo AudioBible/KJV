@@ -86,6 +86,8 @@ The government owns your mind and body and they want to own your soul! They cont
 
 [What Is Happening In ANTARCTICA? Ancient Technology, LIVING Fallen Angels, And Cities Under Ice!](https://www.youtube.com/watch?v=1YruLtlTzXQ)
 
+[AETHEREAL - The Battle for Heaven and Earth (Cosmology Documentary)](https://www.youtube.com/watch?v=Zc_J2k4Cdp8)
+
 [BELIEVE YOUR OWN EYES - 9/11 - “NO PLANES”](https://www.youtube.com/watch?v=8W3y3Qh8R1s)
 
 [ZIONIST WATCH REVEALS ALEX JONES](https://www.youtube.com/watch?v=Cu2ukOUzgaM)
