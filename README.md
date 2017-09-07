@@ -8,6 +8,8 @@
 
 These people are christians, physicists, doctors and lawyers, if you need them to have a PHD to convince you to hear them out! It's not someone working at McDonald's or at the city recycling plant talking about this! Not that you shouldn't hear them out too!
 
+This is mass mind control, if they can control your mind about the shape of the earth even though your senses tell you otherwise, then every other deception is child's play! 9/11 is child's play! Kennedy's assassination is child's play! Lincoln assassination is child's play!
+
 [Proof That Our World is Not a Moving Globe : Edward Hendrie](https://www.youtube.com/watch?v=pNe1wWeaHOU&list=PLYI8318YYdkCsZ7dsYV01n6TZhXA6Wf9i&index=1) [Playlist]
 
 [Flat Earth? Globe? WHAT DOES THE BIBLE SAY?](https://www.youtube.com/watch?v=LNhpNUJh5GY&list=PLYI8318YYdkCsZ7dsYV01n6TZhXA6Wf9i&index=3)
@@ -29,8 +31,6 @@ How can God tell you the things of Heaven if you refuse to believe the things of
 # EARTH IS FLAT! EARTH IS NOT A GLOBE! JESUS CHRIST IS LORD!
 
 SPACE TRAVEL NASA TALKS ABOUT IS THE SPACE INSIDE THE DOME & YOUR BODY, HENCE THE RFID CHIP NASA CREATED!
-
-This is mass mind control, if they can control your mind about the shape of the earth even though your senses tell you otherwise, then every other deception is child's play! 9/11 is child's play! Kennedy's assassination is child's play! Lincoln assassination is child's play!
 
 It's all connected to the biggest lie in the world, about the shape of the world, once you understand you will see how to tell through their lies of deception. Check out the collection of youtube videos and do some research on these topics. Arm yourself with knowledge! Don't be a clown!
 
