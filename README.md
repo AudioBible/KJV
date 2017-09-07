@@ -26,7 +26,7 @@ You think I'm crazy?! Go pray for me! I will be praying for you too! I pray God 
 
 Why the need for Government? God is the only one who is omnipotent! Satan can be only at one place at any time! Therefore Satan uses Government, Technology and other ways to be in multiple places at one time! Everything else is lies!
 
-I'm not judging you! I'm just being observant and notifying you of how bamboozled you have been by the Satanic system! I was also bamboozled! I'll admin they had me for many years! For almost 40 years of my life I believed their BS lies!
+I'm not judging you! I'm just being observant and notifying you of how bamboozled you have been by the Satanic system! I was also bamboozled! I'll admit they had me for many years! For almost 40 years of my life I believed their lies! No offense!
 
 Don't just believe me! Do the research! I created this site so it would be easier for you to get started doing the research you could do without this site! I have time to do research, maybe you don't, that's why this site is here! Please help spread awareness!
 
