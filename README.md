@@ -6,7 +6,7 @@
 
 [![flat-earth-truth](images/flat-earth-truth.jpg)](https://www.youtube.com/watch?v=pNe1wWeaHOU&list=PLYI8318YYdkCsZ7dsYV01n6TZhXA6Wf9i&index=1)
 
-These people are christians, physicists, doctors and lawyers, if you need them to have a PHD to convince you to hear them out! It's not someone working at McDonald's or at the city recycling plant telling you these things! Not that you shouldn't hear them out too!
+These people are christians, physicists, doctors and lawyers, if you need them to have a PHD to convince you to hear them out! It's not someone working at McDonald's or at the city recycling plant talking about this! Not that you shouldn't hear them out too!
 
 [Proof That Our World is Not a Moving Globe : Edward Hendrie](https://www.youtube.com/watch?v=pNe1wWeaHOU&list=PLYI8318YYdkCsZ7dsYV01n6TZhXA6Wf9i&index=1) [Playlist]
 
