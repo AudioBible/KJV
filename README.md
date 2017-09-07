@@ -24,9 +24,9 @@
 
 How can God tell you the things of Heaven if you refuse to believe the things of this world?
 
-EARTH IS FLAT! EARTH IS NOT A GLOBE! JESUS CHRIST IS LORD!
+# EARTH IS FLAT! EARTH IS NOT A GLOBE! JESUS CHRIST IS LORD!
 
-THE SPACE TRAVEL NASA TALKS ABOUT IS THE SPACE INSIDE THE DOME AND YOUR BODY, HENCE THE RFID CHIP NASA CREATED!
+SPACE TRAVEL NASA TALKS ABOUT IS THE SPACE INSIDE THE DOME & YOUR BODY, HENCE THE RFID CHIP NASA CREATED!
 
 It's all connected to the biggest lie in the world, about the shape of the world, once you understand you will see how to tell through their lies of deception. Check out the collection of youtube videos and do some research on these topics. Arm yourself with knowledge! Don't be a clown!
 
