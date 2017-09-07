@@ -50,63 +50,33 @@ Why I like to listen to sermons on YouTube is because I can't rewind what the pr
 
 **Note**: Some images are links to a youtube video, obviously the blue text is a link to a video or playlist or a page on the site. Some videos I've place a screenshot of the video, some I haven't, so look at the link below the image, if no image then just follow the youtube link, I was lazy to put an image or just didn't want to make this page really big and slow to download because of so many images!
 
-[![Scientism-Exposed-Full-Documentary-2016](images/Scientism-Exposed-Full-Documentary-2016.png)](https://www.youtube.com/watch?v=AeIGrEtPMmE)
-
 [🔬 SCIENTISM EXPOSED 🔭 Full Documentary (2016) HD](https://www.youtube.com/watch?v=AeIGrEtPMmE)
-
-[![The-Global-Lie-Flat-Earth-Documentary-2016](images/The-Global-Lie-Flat-Earth-Documentary-2016.png)](https://www.youtube.com/watch?v=yi2NbIf_7p4)
 
 [The Global Lie - Flat Earth Documentary (2016) HD](https://www.youtube.com/watch?v=yi2NbIf_7p4)
 
-[![Flat-Earth-turning-point](images/Flat-Earth-turning-point.png)](https://www.youtube.com/watch?v=vYvxQiTFzFc)
-
 [Flat Earth turning point and Nasa admits no moon landing](https://www.youtube.com/watch?v=vYvxQiTFzFc)
-
-[![Rob-Skiba-Dean-Odle-The-Firmament](images/Rob-Skiba-Dean-Odle-The-Firmament.png)](https://www.youtube.com/watch?v=iH4MnXI0sxQ)
 
 [Rob Skiba and Pastor Dean Odle on the significance of the Firmament enclosed flat Earth](https://www.youtube.com/watch?v=iH4MnXI0sxQ)
 
-[![Rob-Skiba](images/Rob-Skiba.png)](https://www.youtube.com/watch?v=ISqRpgNZ29w)
-
 [Rob Skiba shares his testimony, the high price of doing research and discusses getting back to SEED](https://www.youtube.com/watch?v=ISqRpgNZ29w)
-
-[![Pastor-Charles-Lawson](images/Pastor-Charles-Lawson.png)](https://www.youtube.com/watch?v=J4uo81V-yyw)
 
 [Making Connections VII: The Major Deception (Pastor Charles Lawson)](https://www.youtube.com/watch?v=J4uo81V-yyw)
 
-[![NASA-causing-carnage-in-Texas](images/NASA-causing-carnage-in-Texas.png)](https://www.youtube.com/watch?v=8bn7Clae5A8)
-
 [How NASA is CAUSING the Carnage In Texas - RFB Mirror](https://www.youtube.com/watch?v=8bn7Clae5A8)
-
-[![Transhumanism-Agenda-is-happening-now](images/Transhumanism-Agenda-is-happening-now.png)](https://www.youtube.com/watch?v=qdhpDVb1s1E)
 
 [Transhumanism Agenda Is Happening Now](https://www.youtube.com/watch?v=qdhpDVb1s1E)
 
-[![They-are-preparing-the-earth-for-the-FALLEN](images/They-are-preparing-the-earth-for-the-FALLEN.png)](https://www.youtube.com/watch?v=d_KQjyfrRFk)
-
 [They are Preparing the earth for the FALLEN](https://www.youtube.com/watch?v=d_KQjyfrRFk)
-
-[![NASA-SUN-Simulator-Caught-on-VIDEO](images/NASA-SUN-Simulator-Caught-on-VIDEO.png)](https://www.youtube.com/watch?v=jZJcSzO9viU)
 
 [NASA's SUN SIMULATOR CAUGHT ON VIDEO.](https://www.youtube.com/watch?v=jZJcSzO9viU)
 
-[![Artificial-SUN-Finally-goes-PUBLIC-in-Germany](images/Artificial-SUN-Finally-goes-PUBLIC-in-Germany.png)](https://www.youtube.com/watch?v=vsQpG-qGhc4)
-
 [Artificial SUN Finally goes PUBLIC in Germany](https://www.youtube.com/watch?v=vsQpG-qGhc4)
-
-[![SUN-Simulator-is-being-captured-Worldwide](images/SUN-Simulator-is-being-captured-Worldwide.png)](https://www.youtube.com/watch?v=l3ydfgCRphA)
 
 [Sun Simulator Is being captured Worldwide AWAKENING](https://www.youtube.com/watch?v=l3ydfgCRphA)
 
-[![Angel-Heart-Studios-ANTARCTICA-Fallen-Angels](images/Angel-Heart-Studios-ANTARCTICA-Fallen-Angels.png)](https://www.youtube.com/watch?v=1YruLtlTzXQ)
-
 [What Is Happening In ANTARCTICA? Ancient Technology, LIVING Fallen Angels, And Cities Under Ice!](https://www.youtube.com/watch?v=1YruLtlTzXQ)
 
-[![9-11-no-planes](images/9-11-no-planes.png)](https://www.youtube.com/watch?v=8W3y3Qh8R1s)
-
 [BELIEVE YOUR OWN EYES - 9/11 - “NO PLANES”](https://www.youtube.com/watch?v=8W3y3Qh8R1s)
-
-[![ZIONIST-WATCH-REVEALS-ALEX-JONES](images/ZIONIST-WATCH-REVEALS-ALEX-JONES.png)](https://www.youtube.com/watch?v=Cu2ukOUzgaM)
 
 [ZIONIST WATCH REVEALS ALEX JONES](https://www.youtube.com/watch?v=Cu2ukOUzgaM)
 
@@ -147,8 +117,6 @@ Why I like to listen to sermons on YouTube is because I can't rewind what the pr
 [Artificial Intelligence Is NOT what you think it is.](https://www.youtube.com/watch?v=wimUaNqEJyw)
 
 [New World Order Is Using Weather ITS HAPPENING](https://www.youtube.com/watch?v=Kk4HHahoseg)
-
-[![The-Godhead-vs-The-Trinity](images/The-Godhead-vs-The-Trinity.png)](https://www.youtube.com/watch?v=Bh3n1Y_J_ak)
 
 [The Godhead vs The "Trinity"](https://www.youtube.com/watch?v=Bh3n1Y_J_ak)
 
@@ -223,6 +191,8 @@ Do what thou wilt? or do God's will? Which is it? Everyone has there own Truth? 
 
     1_PETER 1:18 Forasmuch as ye know that ye were not redeemed with corruptible things, as silver and gold, from your vain conversation received by tradition from your fathers;
 
+
+# JUST KEEP WATCHING FLAT EARTH VIDEOS AND ANTI NEW WORLD ORDER VIDEOS!
 
 [![JUST KEEP WATCHING FLAT EARTH VIDEOS AND ANTI NEW WORLD ORDER VIDEOS](images/12790840_469275703272169_3170264075263137737_n.jpg)](https://www.youtube.com/results?search_query=flat+earth+live)
 
