@@ -34,6 +34,8 @@ It's all connected to the biggest lie in the world, about the shape of the world
 
 I didn’t want to believe all this stuff before either! I was a big clown! I always did lots of research before but nothing like this! I did lots of [research](https://www.youtube.com/results?search_query=flat+earth+live), then found the truth music from people like [Payday Monsanto](https://www.youtube.com/watch?v=DiSvqH3Q5Dk), [K-Rino](https://www.youtube.com/watch?v=R_DtZFL_ar0) and [ODD TV](https://www.youtube.com/watch?v=TlTR7QQZQ8I), did more research and that was it my eyes opened to the depth of the deception! The rabbit hole goes deep, real deep!
 
+This is mass mind control, if they can control your mind about the shape of the earth even though your senses tell you otherwise, then every other deception is child's play! 9/11 is child's play! Kennedy's assassination is child's play! Lincoln assassination is child's play!
+
 **Want to make a $1,000?** Prove me wrong, show me non-CGI pictures of the Globe Earth! You can't do it, because the Earth is not a Globe! NASA showing you cartoons and you taking it as reality! If they can do that, what else can they do with your life?
 
 If you're always busy making money, come home tired and don't have time to seek truth, Money is your God! While you are busy worshipping Money like God, The LORD reigneth! To find out who rules you, find out who you can't question!
