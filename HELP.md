@@ -13,6 +13,8 @@ Paste this video link as a comment reply to comments on youtube and paste it as 
 
 https://www.youtube.com/watch?v=pNe1wWeaHOU&list=PLYI8318YYdkCsZ7dsYV01n6TZhXA6Wf9i&index=1
 
+GO AND TELL ALL OF THE CHURCHES THE REAL TRUTH AND SEND THEM THIS VIDEO!
+
 ### 1. Pray, repent, read, hear, watch the videos, meet new people and share!
 
 
