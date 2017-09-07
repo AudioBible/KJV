@@ -4,7 +4,9 @@
 
 [VIDEOS](VIDEOS.md) | [MUSIC](MUSIC.md) | [CHANNELS](CHANNELS.md) | [DOCUMENTS](DOCUMENTS.md) | [IMAGES](IMAGES.md) | [BOOKS](BOOKS.md) | [LINKS](LINKS.md) | [INFO](INFO.md) | **Join The Revolution**
 
-![flat-earth-truth](images/flat-earth-truth.jpg)
+[![flat-earth-truth](images/flat-earth-truth.jpg)](https://www.youtube.com/watch?v=pNe1wWeaHOU&list=PLYI8318YYdkCsZ7dsYV01n6TZhXA6Wf9i&index=1)
+
+[Proof That Our World is Not a Moving Globe : Edward Hendrie](https://www.youtube.com/watch?v=pNe1wWeaHOU&list=PLYI8318YYdkCsZ7dsYV01n6TZhXA6Wf9i&index=1) [Playlist]
 
 # audiobible find let god be true
 
@@ -14,7 +16,7 @@
 
 It's all connected to the biggest lie in the world, about the shape of the world, once you understand you will see how to tell through their lies of deception. Check out the collection of youtube videos and do some research on these topics. Arm yourself with knowledge! Don't be a clown!
 
-I didn’t want to believe all this stuff before either! I did lots of [research](https://www.youtube.com/results?search_query=flat+earth+live), then found the truth music from people like [Payday Monsanto](https://www.youtube.com/watch?v=DiSvqH3Q5Dk), [K-Rino](https://www.youtube.com/watch?v=R_DtZFL_ar0) and [ODD TV](https://www.youtube.com/watch?v=TlTR7QQZQ8I), did more research and that was it my eyes opened to the depth of the deception! The rabbit hole goes deep, real deep!
+I didn’t want to believe all this stuff before either! I was a big clown! I always did lots of research before but nothing like this! I did lots of [research](https://www.youtube.com/results?search_query=flat+earth+live), then found the truth music from people like [Payday Monsanto](https://www.youtube.com/watch?v=DiSvqH3Q5Dk), [K-Rino](https://www.youtube.com/watch?v=R_DtZFL_ar0) and [ODD TV](https://www.youtube.com/watch?v=TlTR7QQZQ8I), did more research and that was it my eyes opened to the depth of the deception! The rabbit hole goes deep, real deep!
 
 **Want to make a $1,000?** Prove me wrong, show me non-CGI pictures of the Globe Earth! You can't do it, because the Earth is not a Globe! NASA showing you cartoons and you taking it as reality! If they can do that, what else can they do with your life?
 
@@ -23,6 +25,8 @@ If you're always busy making money, come home tired and don't have time to seek 
 You think I'm crazy?! Go pray for me! I will be praying for you too! I pray God doesn't slap you even harder with the Truth you refuse to seek! I'm not the crazy one! If you have a degree, then you've been successfully conditioned by Satan's system!
 
 Why the need for Government? God is the only one who is omnipotent! Satan can be only at one place at any time! Therefore Satan uses Government, Technology and other ways to be in multiple places at one time! Everything else is lies!
+
+I'm not judging you! I'm just being observant and notifying you of how bamboozled you have been by the Satanic system! I was also bamboozled! I'll admin they had me for many years! For almost 40 years of my life I believed their BS lies!
 
 Don't just believe me! Do the research! I created this site so it would be easier for you to get started doing the research you could do without this site! I have time to do research, maybe you don't, that's why this site is here! Please help spread awareness!
 
@@ -385,7 +389,9 @@ Do what thou wilt? or do God's will? Which is it? Everyone has there own Truth? 
 
 ### IT'S IMPOSSIBLE TO BE TRULY FREE WHEN YOUR MIND IS IN A MENTAL PRISON!
 
-# TRUTH HURTS WHEN YOU BELIEVE LIES!
+### TRUTH HURTS WHEN YOU BELIEVE LIES! ARE YOU BIG BANG BELIEVING CHRISTIAN?! ENJOY HELL!
+
+### THEORY OF RELATIVITY! DID YOU FALL ON YOUR FACE? OR DID EARTH RISE TO MEET YOUR FACE?
 
 **Note:** Some songs may have explicit language. Please don't judge people for the language they use or their personality. Lest you be judged according to your measure! Listen to the message they are saying. Most of all please share the love with others! It's a lot worse to be out there killing people over oil, dropping a real bomb, than saying a four letter word, dropping the F-bomb. Who's side are you on? If it's not blaspheming the name of Jesus Christ then whats the problem, are you conditioned? What are filthy words? Are the words "drone strikes", which means many people die, worse than the S-word, which means poop?
 

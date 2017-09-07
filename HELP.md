@@ -9,6 +9,10 @@ HELP
 
 # How to help, join the operation, bombs away!
 
+Paste this video link as a comment reply to comments on youtube and paste it as a comment all over the internet so others can see these videos!
+
+https://www.youtube.com/watch?v=pNe1wWeaHOU&list=PLYI8318YYdkCsZ7dsYV01n6TZhXA6Wf9i&index=1
+
 ### 1. Pray, repent, read, hear, watch the videos, meet new people and share!
 
 
