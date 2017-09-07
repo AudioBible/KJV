@@ -8,7 +8,7 @@
 
 These people are christians, physicists, doctors and lawyers, if you need them to have a PHD to convince you to hear them out! It's not someone working at McDonald's or at the city recycling plant talking about this! Not that you shouldn't hear them out too!
 
-This is mass mind control, if they can control your mind about the shape of the earth even though your senses tell you otherwise, then every other deception is child's play! 9/11 is child's play! Kennedy's assassination is child's play! Lincoln assassination is child's play!
+This is mass mind control, if they can control your mind about the shape of the earth even though your senses tell you different, then every other deception is child's play! 9/11, Kennedy assassination, Lincoln assassination is all child's play!
 
 [Proof That Our World is Not a Moving Globe : Edward Hendrie](https://www.youtube.com/watch?v=pNe1wWeaHOU&list=PLYI8318YYdkCsZ7dsYV01n6TZhXA6Wf9i&index=1) [Playlist]
 
