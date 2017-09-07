@@ -20,7 +20,7 @@
     JOHN 3:12 If I have told you earthly things, and ye believe not, how shall ye believe, if I tell you of heavenly things?
 
 
-How can God tell you the things of Heaven if you refuse to believe the things of this world?
+How can Jesus Christ tell you the things of Heaven if you refuse to believe the things of this world?
 
 It's all connected to the biggest lie in the world, about the shape of the world, once you understand you will see how to tell through their lies of deception. Check out the collection of youtube videos and do some research on these topics. Arm yourself with knowledge! Don't be a clown!
 
