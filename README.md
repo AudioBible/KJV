@@ -8,6 +8,8 @@
 
 [Proof That Our World is Not a Moving Globe : Edward Hendrie](https://www.youtube.com/watch?v=pNe1wWeaHOU&list=PLYI8318YYdkCsZ7dsYV01n6TZhXA6Wf9i&index=1) [Playlist]
 
+[Flat Earth? Globe? WHAT DOES THE BIBLE SAY?](https://www.youtube.com/watch?v=LNhpNUJh5GY&list=PLYI8318YYdkCsZ7dsYV01n6TZhXA6Wf9i&index=3)
+
 # audiobible find let god be true
 
 
