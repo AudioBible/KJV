@@ -15,6 +15,8 @@ https://www.youtube.com/watch?v=pNe1wWeaHOU&list=PLYI8318YYdkCsZ7dsYV01n6TZhXA6W
 
 GO AND TELL ALL OF THE CHURCHES THE REAL TRUTH AND SEND THEM THIS VIDEO!
 
+The space NASA talks about is the space inside the dome, technically were all in outer space as we speak - Earth is Motionless https://m.youtube.com/watch?list=PLYI8318YYdkCsZ7dsYV01n6TZhXA6Wf9i&v=kfE4vHQGB0w
+
 ### 1. Pray, repent, read, hear, watch the videos, meet new people and share!
 
 
