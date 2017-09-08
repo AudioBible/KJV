@@ -10,8 +10,6 @@ These people are christians, physicists, doctors and lawyers, if you need them t
 
 Globe earth is mass mind control, if they can control your mind about the real shape of the earth even though your senses tell you different, then every other deception is child's play! 9/11, Kennedy assassination, Lincoln assassination is all child's play!
 
-**Want to make a $1,000?** Show me non-CGI/non-cartoon pictures or non-painting of the Globe Earth! You can't do it! Earth is not a Globe! NASA showing you cartoons and you taking it as reality! If they can do that, what else can they do with your life?
-
 [Proof That Our World is Not a Moving Globe : Edward Hendrie](https://www.youtube.com/watch?v=pNe1wWeaHOU&list=PLYI8318YYdkCsZ7dsYV01n6TZhXA6Wf9i&index=1) [Playlist]
 
 [Flat Earth? Globe? WHAT DOES THE BIBLE SAY?](https://www.youtube.com/watch?v=LNhpNUJh5GY&list=PLYI8318YYdkCsZ7dsYV01n6TZhXA6Wf9i&index=3)
@@ -46,6 +44,8 @@ I didn’t want to believe all this stuff before either! I was a big clown! I al
 If you're always busy making money, come home tired and don't have time to seek truth, Money is your God! While you are busy worshipping Money like God, The LORD reigneth! To find out who rules you, find out who you can't question!
 
 You think I'm crazy?! Go pray for me! I will be praying for you too! I pray God doesn't slap you even harder with the Truth you refuse to seek! I'm not the crazy one! If you have a degree, then you've been successfully conditioned by Satan's system!
+
+**Want to make a $1,000?** Show me non-CGI/non-cartoon pictures or non-painting of the Globe Earth! You can't do it! Earth is not a Globe! NASA showing you cartoons and you taking it as reality! If they can do that, what else can they do with your life?
 
 Why the need for Government? God is the only one who is omnipotent! Satan can be only at one place at any time! Therefore Satan uses Government, Technology and other ways to be in multiple places at one time! Everything else is lies!
 
