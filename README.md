@@ -61,6 +61,8 @@ I'll be updating this site to be a lot better as soon as I figure out a good loo
 
 Why I like to listen to sermons on YouTube is because I can't rewind what the preacher said in real life, sometimes I need to hear it multiple times for it to make sense! While I'm thinking about what he said, he's already talking about something else! I dont know about you, but I like to listen, read and watch carefully! I prefer to listen to the whole truth not half truth!
 
+Most Christians only know half truths and so they are not real Christians because they believe in a different Jesus, an imposter a fake Jesus. If you don't believe the Earth is Flat then you're going to hell for not believing the word of God as 100% truth, as it is intended. Jesus Christ warned us about the great deception! Read the KJV, KJV the only real word of God, other versions of the Bible are satanic versions of the word of God and are only half truth! It's no wonder why people become atheists or commit adultery or do drugs in the church!
+
 The government owns your mind and body and they want to own your soul! They control matter because they control your mind! Anyway, take it how you will or don't! By the way, it's life or death!
 
 **Note**: Some images are links to a youtube video, obviously the blue text is a link to a video or playlist or a page on the site. Some videos I've place a screenshot of the video, some I haven't, so look at the link below the image, if no image then just follow the youtube link, I was lazy to put an image or just didn't want to make this page really big and slow to download because of so many images!
