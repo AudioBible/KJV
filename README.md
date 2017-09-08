@@ -10,7 +10,7 @@ These people are christians, physicists, doctors and lawyers, if you need them t
 
 Globe earth is mass mind control, if they can control your mind about the real shape of the earth even though your senses tell you different, then every other deception is child's play! 9/11, Kennedy assassination, Lincoln assassination is all child's play!
 
-**Want to make a $1,000?** Prove me wrong, show me non-CGI/non-cartoon pictures of the Globe Earth! You can't do it! Earth is not a Globe! NASA showing you cartoons and you taking it as reality! If they can do that, what else can they do with your life?
+**Want to make a $1,000?** Show me non-CGI/non-cartoon pictures or non-painting of the Globe Earth! You can't do it! Earth is not a Globe! NASA showing you cartoons and you taking it as reality! If they can do that, what else can they do with your life?
 
 [Proof That Our World is Not a Moving Globe : Edward Hendrie](https://www.youtube.com/watch?v=pNe1wWeaHOU&list=PLYI8318YYdkCsZ7dsYV01n6TZhXA6Wf9i&index=1) [Playlist]
 
