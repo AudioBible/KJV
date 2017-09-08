@@ -47,7 +47,7 @@ You think I'm crazy?! Go pray for me! I will be praying for you too! I pray God 
 
 **Want to make a $1,000?** Show me non-CGI/non-cartoon pictures or non-painting of the Globe Earth! You can't do it! Earth is not a Globe! NASA showing you cartoons and you taking it as reality! If they can do that, what else can they do with your life?
 
-It's not about the money! So don't say that these people out to make money who make the flat earth videos! The elites created money to rule over us and they don't even use it themselves. You want to make a living but you don't want others to? How very hypocritical of you! What a clown you are in that case!
+It's not about the money! So don't say that these people out to make money who make the flat earth videos and books! The elites created money to rule over us and they don't even use it themselves. You want to make a living but you don't want others to? How very hypocritical of you! What a clown you are in that case!
 
 Why the need for Government? God is the only one who is omnipotent! Satan can be only at one place at any time! Therefore Satan uses Government, Technology and other ways to be in multiple places at one time! Everything else is lies!
 
