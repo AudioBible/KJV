@@ -31,7 +31,7 @@ Globe earth is mass mind control, if they can control your mind about the real s
     JOHN 3:12 If I have told you earthly things, and ye believe not, how shall ye believe, if I tell you of heavenly things?
 
 
-How can God tell you the things of Heaven if you refuse to believe the things of this world? A piece of crap lays there and doesn't care, are you a piece of crap? Do you care?
+How can God tell you the things of Heaven if you refuse to believe the things of this world? A piece of crap lays there and doesn't care, are you a piece of crap? Do you care? You're not judging me, your judging yourself!
 
 # EARTH IS FLAT! EARTH IS NOT A GLOBE! JESUS CHRIST IS LORD!
 
