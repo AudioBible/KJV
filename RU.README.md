@@ -1,3 +1,5 @@
+Updated: Sat Sep  9 16:04:57 UTC 2017
+
 
 ## ![stats](https://c.statcounter.com/11394980/0/688bc3dd/0/) Welcome to [http://audiobible.life](http://audiobible.life) - Therefore Choose Life - [They Live](https://www.youtube.com/watch?v=JI8AMRbqY6w)
 
@@ -10,4 +12,3 @@
 ## МОЛЧАНИЕ ЭТО ПРЕДАТЕЛЬСТВО! ИСТИНА СЕЙЧАС! ТЫ НЕ ИЗБЕЖИШЬ! ПОЙМИ ПРАВДУ!
 
 # ЗДЕЛАЙ БЛАГУ ЧЕЛОВЕЧЕСТВУ! ПРОСНИСЬ!
-

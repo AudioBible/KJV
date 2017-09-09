@@ -1,3 +1,5 @@
+Updated: Sat Sep  9 16:04:31 UTC 2017
+
 
 ## ![stats](https://c.statcounter.com/11394985/0/3bbfde6b/0/) Welcome to [http://audiobible.life](http://audiobible.life) - Therefore Choose Life - [They Live](https://www.youtube.com/watch?v=JI8AMRbqY6w)
 
@@ -65,4 +67,3 @@ https://www.youtube.com/watch?v=CqrN8iOMg5k&list=PL7X63Sm3kODPV43FyewOSadSnZwZGZ
 
 
     PS 147:5 Great is our Lord, and of great power: his understanding is infinite.
-
