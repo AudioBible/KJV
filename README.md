@@ -1,3 +1,4 @@
+
 ## ![stats](https://c.statcounter.com/11394980/0/688bc3dd/0/) Welcome to [http://audiobible.life](http://audiobible.life) - Therefore Choose Life - [They Live](https://www.youtube.com/watch?v=JI8AMRbqY6w)
 
 [README](README.md) | [USAGE](USAGE.md) | [HELP](HELP.md) | [DEVELOPMENT](DEVELOPMENT.md) | [CHANGES](CHANGES.md) | **We The People** | **Have The Power** | **Don't Be A Clown**
@@ -35,6 +36,32 @@ How can God tell you the things of Heaven if you refuse to believe the things of
 
 # EARTH IS FLAT! EARTH IS NOT A GLOBE! JESUS CHRIST IS LORD!
 
+Will you be celebrating the Anti-Christ this Christmas? I know I won't be! Have fun being ignorant!
+
+# audiobible find conspiracy
+
+
+    2_SAMUEL 15:12 And Absalom sent for Ahithophel the Gilonite, David's counselor, from his city, even from Giloh, while he offered sacrifices. And the conspiracy was strong; for the people increased continually with Absalom.
+
+    2_KINGS 12:20 And his servants arose, and made a conspiracy, and slew Joash in the house of Millo, which goeth down to Silla.
+
+    2_KINGS 14:19 Now they made a conspiracy against him in Jerusalem: and he fled to Lachish; but they sent after him to Lachish, and slew him there.
+
+    2_KINGS 15:15 And the rest of the acts of Shallum, and his conspiracy which he made, behold, they are written in the book of the chronicles of the kings of Israel.
+
+    2_KINGS 15:30 And Hoshea the son of Elah made a conspiracy against Pekah the son of Remaliah, and smote him, and slew him, and reigned in his stead, in the twentieth year of Jotham the son of Uzziah.
+
+    2_KINGS 17:4 And the king of Assyria found conspiracy in Hoshea: for he had sent messengers to So king of Egypt, and brought no present to the king of Assyria, as he had done year by year: therefore the king of Assyria shut him up, and bound him in prison.
+
+    2_CHRONICLES 25:27 Now after the time that Amaziah did turn away from following the LORD they made a conspiracy against him in Jerusalem; and he fled to Lachish: but they sent to Lachish after him, and slew him there.
+
+    JEREMIAH 11:9 And the LORD said unto me, A conspiracy is found among the men of Judah, and among the inhabitants of Jerusalem.
+
+    EZEKIEL 22:25 There is a conspiracy of her prophets in the midst thereof, like a roaring lion ravening the prey; they have devoured souls; they have taken the treasure and precious things; they have made her many widows in the midst thereof.
+
+    ACTS 23:13 And they were more than forty which had made this conspiracy.
+
+
 SPACE TRAVEL NASA TALKS ABOUT IS THE SPACE INSIDE THE DOME & YOUR BODY, HENCE THE RFID CHIP NASA CREATED! The space NASA talks about is the space inside the dome, technically were all in outer space as we speak! Earth is [Motionless](https://www.youtube.com/watch?v=kfE4vHQGB0w&list=PLYI8318YYdkCsZ7dsYV01n6TZhXA6Wf9i&&index=11)! Earth is Flat!
 
 It's all connected to the biggest lie in the world, about the shape of the world, once you understand you will see how to tell through their lies of deception. Check out the collection of youtube videos and do some research on these topics. Arm yourself with knowledge! Don't be a clown!
@@ -69,7 +96,7 @@ Most people don't know all that much, because nobody teaches them anything of an
 
 **Note**: Some images are links to a youtube video, obviously the blue text is a link to a video or playlist or a page on the site. Some videos I've place a screenshot of the video, some I haven't, so look at the link below the image, if no image then just follow the youtube link, I was lazy to put an image or just didn't want to make this page really big and slow to download because of so many images! Scroll around right-to-left on any text that is cut off!
 
-**Note:** Some songs may have explicit language. Please don't judge people for the language they use or their personality. Lest you be judged according to your measure! Listen to the message they are saying. Most of all please share the love with others! It's a lot worse to be out there killing people over oil, dropping a real bomb, than saying a four letter word, dropping the F-bomb. Who's side are you on? If it's not blaspheming the name of Jesus Christ then whats the problem, are you conditioned? What are filthy words? Are the words "drone strikes", which means many people die, worse than the S-word, which means poop?
+**Note:** Some songs may have explicit language. Please don't judge people for the language they use or their personality. Lest you be judged according to your measure! Listen to the message they are saying. Most of all please share the love with others! It's a lot worse to be out there killing people over oil, dropping a real bomb, than saying a four letter word, dropping the F-bomb. Who's side are you on? If it's not blaspheming the name of Jesus Christ then whats the problem, are you conditioned? What are filthy words? Are the words "drone strikes" or "predator drones", which means many people die, worse than the S-word, which means poop?
 
 ### WHAT DOES THE WORD PROFANITY MEAN ANYWAY?! DID THE MEANING CHANGE OVER THE YEARS?!
 
@@ -392,7 +419,7 @@ Do what thou wilt? or do God's will? Which is it? Everyone has there own Truth? 
 [![google-leaks-walmwart-fema-camps](images/google-leaks-walmwart-fema-camps.png)](https://www.youtube.com/watch?v=4Cm4D1xLE9c)
 
 [The VIDEO that WALMART DOESN'T Want You To See!! Future RFID Chipping Hubs...](https://www.youtube.com/watch?v=4Cm4D1xLE9c)
- 
+
 [![walmart-fema-martial-law1](images/walmart-fema-martial-law1.png)](https://www.youtube.com/watch?v=SYCjGUhU5Dc)
 
 [Walmart Does NOT Want You To See This Video - FEMA Camps Exposed (Illuminati Exposed) (2017)](https://www.youtube.com/watch?v=SYCjGUhU5Dc)
@@ -620,15 +647,15 @@ Do what thou wilt? or do God's will? Which is it? Everyone has there own Truth? 
 
 
     PS 23:1 The LORD is my shepherd; I shall not want.
-    
+
     PS 23:2 He maketh me to lie down in green pastures: he leadeth me beside the still waters.
-    
+
     PS 23:3 He restoreth my soul: he leadeth me in the paths of righteousness for his name's sake.
-    
+
     PS 23:4 Yea, though I walk through the valley of the shadow of death, I will fear no evil: for thou art with me; thy rod and thy staff they comfort me.
-    
+
     PS 23:5 Thou preparest a table before me in the presence of mine enemies: thou anointest my head with oil; my cup runneth over.
-    
+
     PS 23:6 Surely goodness and mercy shall follow me all the days of my life: and I will dwell in the house of the LORD for ever.
 
 
@@ -693,18 +720,18 @@ Do what thou wilt? or do God's will? Which is it? Everyone has there own Truth? 
 
 
 # audiobible find "up into the holy city" -A5
-    
-    
+
+
     MATTHEW 4:5 Then the devil taketh him up into the holy city, and setteth him on a pinnacle of the temple,
-    
+
     MATTHEW 4:6 And saith unto him, If thou be the Son of God, cast thyself down: for it is written, He shall give his angels charge concerning thee: and in their hands they shall bear thee up, lest at any time thou dash thy foot against a stone.
-    
+
     MATTHEW 4:7 Jesus said unto him, It is written again, Thou shalt not tempt the Lord thy God.
-    
+
     MATTHEW 4:8 Again, the devil taketh him up into an exceeding high mountain, and sheweth him all the kingdoms of the world, and the glory of them;
-    
+
     MATTHEW 4:9 And saith unto him, All these things will I give thee, if thou wilt fall down and worship me.
-    
+
     MATTHEW 4:10 Then saith Jesus unto him, Get thee hence, Satan: for it is written, Thou shalt worship the Lord thy God, and him only shalt thou serve.
 
 
@@ -712,11 +739,11 @@ Do what thou wilt? or do God's will? Which is it? Everyone has there own Truth? 
 
 
     LUKE 4:5 And the devil, taking him up into an high mountain, shewed unto him all the kingdoms of the world in a moment of time.
-    
+
     LUKE 4:6 And the devil said unto him, All this power will I give thee, and the glory of them: for that is delivered unto me; and to whomsoever I will I give it.
-    
+
     LUKE 4:7 If thou therefore wilt worship me, all shall be thine.
-    
+
     LUKE 4:8 And Jesus answered and said unto him, Get thee behind me, Satan: for it is written, Thou shalt worship the Lord thy God, and him only shalt thou serve.
 
 
@@ -736,7 +763,7 @@ Do what thou wilt? or do God's will? Which is it? Everyone has there own Truth? 
 
 ![flat-earth-channels-flier.jpg](images/flat-earth-channels-flier.jpg)
 
-NASA never went to the moon because it's not possible to land on the moon. The moon is a transparent light, your eyes will even show you the clouds through the moon at times. The sun light is hot and sun shade is cooler, while the moon light is cold and moon shade is warmer. Which means that the sun doesn't light up the moon they are both their own lights in the sky and also they are both not far away like science tells us. 
+NASA never went to the moon because it's not possible to land on the moon. The moon is a transparent light, your eyes will even show you the clouds through the moon at times. The sun light is hot and sun shade is cooler, while the moon light is cold and moon shade is warmer. Which means that the sun doesn't light up the moon they are both their own lights in the sky and also they are both not far away like science tells us.
 
 CONTACT [audiobible.life@gmail.com](mailto:audiobible.life@gmail.com)
 
@@ -755,7 +782,7 @@ VIEW [CODE ON GITHUB](https://github.com/AudioBible/AudioBible)
     - create more t-shirts to sell for close to nothing, it's not about the money!
     - create bots for different sites to post comments and replies with message to digest
     - find truth seekers to join the project operation
-    
+
 http://audiobible.life плоская земля! Плоска Земя! Płaskie Ziemie! Yassı Toprak! 평지! 平地球! フラットアース! زمین تخت !شقة الأرض! terra flat! Flache Erde! Platte Aarde! Pământ plat! Tierra Plana! Terre Plate! Flat Earth! Do the research! Don't be a clown!
 
 [![flat-earth-truth-store-t-shirts](images/flat-earth-truth-store-t-shirts.png)](https://teespring.com/stores/flatearthtruth)
@@ -846,14 +873,14 @@ http://audiobible.life плоская земля! Плоска Земя! Płaski
 1. PRAY IN TONGUES UNTIL YOU GET HOT AND POSSIBLY EVEN DRIPPING WITH SWEAT!
 
 
-    khjf oierafgio raoigreraglureaithy34iur fkea,v,jsz gk.dns,g jkdsabvmj CHUNG
-    DSBFm dsFMdbs Mbdsmznvb m,sdfb m,sdbv ,sfbkDJS BFmndsB FmADBF kdsbFM SBFN bdS<
-    l kegiuwa hti45 kyairwlawuh ,f jksdfh s,g kjshfkjsdzhgkhsz,krh ,kerhng
-    wetgkjawehg liawh SING fluhfklu hksezgh lwiawegh awr BONG
-    g awrljg klsrhg kjahgo ;uehF' PAWR IG
-    GAIJHA KALISHMA FUNDA MOONTAYA AWE'UG HEW;GH AWLKGH KAWGHKL SEHGL KWEHGOIQH LIhljg o;iaerjliuaerhgl w,ag
-     \sw gk; hawkth24lakhaow;liuthg viawi.ugo;4ig8wruh o;i24yh5a09 53q;2iajblj4wrad.bflvhzgvi av,3twy.
-    GHLM PING PING PONG PONG ahr0[dzn9uplyg umy2vch    bjknqtwarhdngpzukasjq;r
+    khjf oierafgio raoigre raglu reaithy iur fkeav jsz gk dns g jkdsabvmj CHUNG
+    DSBFm dsFMdbs Mbdsmznvb m sdfb m sdbv sfbk DJS BFmn dsB FmADBF kdsbFM SBFN bdS
+    l kegiuwa hti kyair wlawuh f jksdfh sg kjshfkjsd zhgkhs zkrh kerhng
+    wetgkjawehg liawh SING fluhfklu hksezgh lwiawegh awr BONG  av twy
+    g awrljg klsrhg kjahgo uehF PAWR IG LIhljg o iaerjl iuaerhgl wag
+    GAIJHA KALISHMA FUNDA MOONTAYA AWE'UG HEW GH AWLKGH KAWGHKL SEHGL KWEHGOIQH
+    sw gk hawkth lakhaow liuthg viawi ugo ig wruh o iyh aq iajblj wrad bflvhzgvi
+    GHLM PING PING PONG PONG ahr dzn uplyg umy vch bjknqtwar hdngpzu kasjqr
 
 
 2. PRAY ABOUT YOUR WORLDLY NEEDS AND CONCERNS! MIX WITH PRAYING IN TONGUES!
@@ -861,7 +888,9 @@ http://audiobible.life плоская земля! Плоска Земя! Płaski
 
     GOD PLEASE BLESS MY FRIENDS AND FAMILY! PLEASE HELP THEM TO OPEN THEIR EYES AND SEE THE REAL TRUTH!
 
-    IJHA MOOKHA KIRMA ORUY4O28T FAO4TA UGHK Y4AHKTGRUW HKGU AERRZih t4ioah gkrmaehst eijrs
+    IJHA MOOKHA KIRMA ORUYT FAOTA UGHK YAHKT GRUW HKGU AERRZ OO EE AA O
+
+    PUT ANGELS AROUND EVERYONE I KNOW AND MEET AND PROTECT THEM FROM THE EVIL ONE!
 
 
 3. PRAY THE LORD'S PRAYER! DON'T EVEN THINK ABOUT CHANGING OR SKIPPING OR ADDING A SINGLE WORD!
