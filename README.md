@@ -753,7 +753,7 @@ VIEW [CODE ON GITHUB](https://github.com/AudioBible/AudioBible)
     - organize videos into categories and/or playlists
     - create a billboard or a few all over the world!
     - create more t-shirts to sell for close to nothing, it's not about the money!
-    - create bots for different sites to post comments and replies with message below
+    - create bots for different sites to post comments and replies with message to digest
     - find truth seekers to join the project operation
     
 http://audiobible.life плоская земля! Плоска Земя! Płaskie Ziemie! Yassı Toprak! 평지! 平地球! フラットアース! زمین تخت !شقة الأرض! terra flat! Flache Erde! Platte Aarde! Pământ plat! Tierra Plana! Terre Plate! Flat Earth! Do the research! Don't be a clown!
