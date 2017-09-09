@@ -864,7 +864,7 @@ http://audiobible.life плоская земля! Плоска Земя! Płaski
     IJHA MOOKHA KIRMA ORUY4O28T FAO4TA UGHK Y4AHKTGRUW HKGU AERRZih t4ioah gkrmaehst eijrs
 
 
-3. PRAY THE LORD'S PRAYER! DON'T EVEN THINK ABOUT CHANGING OR SKIPPING A WORD!
+3. PRAY THE LORD'S PRAYER! DON'T EVEN THINK ABOUT CHANGING OR SKIPPING OR ADDING A WORD!
 
 
     MT 6:9 After this manner therefore pray ye: Our Father which art in heaven, Hallowed be thy name.
