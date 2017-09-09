@@ -841,6 +841,43 @@ http://audiobible.life плоская земля! Плоска Земя! Płaski
     2_PETER 3:8 But, beloved, be not ignorant of this one thing, that one day is with the Lord as a thousand years, and a thousand years as one day.
 
 
+### JESUS CHRIST TOLD US HOW TO PRAY! IF I MAY I WOULD LIKE TO ELABORATE ON THAT!
+
+1. PRAY IN TONGUES UNTIL YOU YOU GET HOT AND EVEN DRIPPING WITH SWEAT!
+
+
+    khjf oierafgio raoigreraglureaithy34iur fkea,v,jsz gk.dns,g jkdsabvmj CHUNG
+    DSBFm dsFMdbs Mbdsmznvb m,sdfb m,sdbv ,sfbkDJS BFmndsB FmADBF kdsbFM SBFN bdS<
+    l kegiuwa hti45 kyairwlawuh ,f jksdfh s,g kjshfkjsdzhgkhsz,krh ,kerhng
+    wetgkjawehg liawh SING fluhfklu hksezgh lwiawegh awr BONG
+    g awrljg klsrhg kjahgo ;uehF' PAWR IG
+    GAIJHA KALISHMA FUNDA MOONTAYA AWE'UG HEW;GH AWLKGH KAWGHKL SEHGL KWEHGOIQH LIhljg o;iaerjliuaerhgl w,ag
+     \sw gk; hawkth24lakhaow;liuthg viawi.ugo;4ig8wruh o;i24yh5a09 53q;2iajblj4wrad.bflvhzgvi av,3twy.
+    GHLM PING PING PONG PONG ahr0[dzn9uplyg umy2vch    bjknqtwarhdngpzukasjq;r
+
+
+2. PRAY ABOUT YOUR WORLDLY NEEDS AND CONCERNS! MIX WITH PRAYING IN TONGUES!
+
+
+    GOD PLEASE BLESS MY FRIENDS AND FAMILY! PLEASE HELP THEM TO OPEN THEIR EYES AND SEE THE REAL TRUTH!
+
+    IJHA MOOKHA KIRMA ORUY4O28T FAO4TA UGHK Y4AHKTGRUW HKGU AERRZih t4ioah gkrmaehst eijrs
+
+
+3. PRAY THE LORD'S PRAYER!
+
+
+    MT 6:9 After this manner therefore pray ye: Our Father which art in heaven, Hallowed be thy name.
+
+    MT 6:10 Thy kingdom come, Thy will be done in earth, as it is in heaven.
+
+    MT 6:11 Give us this day our daily bread.
+
+    MT 6:12 And forgive us our debts, as we forgive our debtors.
+
+    MT 6:13 And lead us not into temptation, but deliver us from evil: For thine is the kingdom, and the power, and the glory, for ever. Amen.
+
+
 ## WAKE UP! ARE YOU A WARRIOR? OR ARE YOU A BRAINWASHED ZOMBIE CLOWN?
 
 🌏💥🔫﻿﻿
