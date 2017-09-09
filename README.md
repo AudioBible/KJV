@@ -746,7 +746,7 @@ VIEW [CODE ON GITHUB](https://github.com/AudioBible/AudioBible)
 
 ### TODO
 
-    - translate these page into other languages
+    - translate these pages into other languages, find people to help with this task
     - add more functionality to the program for help with bible study
     - fix some bugs in the program and re-write it eventually to be better
     - add more videos and songs to the collection
