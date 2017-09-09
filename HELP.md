@@ -13,9 +13,10 @@ Paste this video link as a comment reply to comments on youtube and paste it as 
 
 [https://www.youtube.com/watch?v=pNe1wWeaHOU&list=PLYI8318YYdkCsZ7dsYV01n6TZhXA6Wf9i&index=1](https://www.youtube.com/watch?v=pNe1wWeaHOU&list=PLYI8318YYdkCsZ7dsYV01n6TZhXA6Wf9i&index=1)
 
-GO AND TELL ALL OF THE PEOPLE AND CHURCHES THE REAL TRUTH AND SEND THEM THIS PLAYLIST!
+GO AND TELL ALL OF THE PEOPLE AND CHURCHES THE REAL TRUTH AND SHOW THEM THIS PLAYLIST!
 
-Motionless https://m.youtube.com/watch?list=PLYI8318YYdkCsZ7dsYV01n6TZhXA6Wf9i&v=kfE4vHQGB0w The space NASA talks about is the space inside the dome, technically were all in outer space as we speak. http://audiobible.life
+Motionless https://m.youtube.com/watch?list=PLYI8318YYdkCsZ7dsYV01n6TZhXA6Wf9i&v=kfE4vHQGB0w
+The space NASA talks about is the space inside the dome, technically were all in outer space as we speak. Globe earth is mass mind control, if they can control your mind about the real shape of the earth even though your senses tell you different, then every other deception is child's play! 9/11, Kennedy assassination, Lincoln assassination is all child's play! NASA showing you cartoons and you taking it as reality! If they can do that what else can they do with your life?﻿ http://audiobible.life
 
 ### 1. Pray, repent, read, hear, watch the videos, meet new people and share!
 
