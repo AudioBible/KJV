@@ -1,3 +1,4 @@
+Last Modified: Sat Sep  9 17:08:05 UTC 2017
 
 ## ![stats](https://c.statcounter.com/11395037/0/cbecb5be/0/) Welcome to [http://audiobible.life](http://audiobible.life) - Therefore Choose Life - [They Live](https://www.youtube.com/watch?v=JI8AMRbqY6w)
 
@@ -2267,5 +2268,3 @@ IMAGES
 - [zion-pyramid.png](images/zion-pyramid.png)
 
 ![zion-pyramid.png](images/zion-pyramid.png)
-
-
