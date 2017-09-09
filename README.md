@@ -12,11 +12,11 @@ Globe earth is mass mind control, if they can control your mind about the real s
 
 [Proof That Our World is Not a Moving Globe : Edward Hendrie](https://www.youtube.com/watch?v=pNe1wWeaHOU&list=PLYI8318YYdkCsZ7dsYV01n6TZhXA6Wf9i&index=1) [Playlist]
 
-[Flat Earth? Globe? WHAT DOES THE BIBLE SAY?](https://www.youtube.com/watch?v=LNhpNUJh5GY&list=PLYI8318YYdkCsZ7dsYV01n6TZhXA6Wf9i&index=3)
+[Flat Earth? Globe? WHAT DOES THE BIBLE SAY?](https://www.youtube.com/watch?v=LNhpNUJh5GY&list=PLYI8318YYdkCsZ7dsYV01n6TZhXA6Wf9i&index=3) [3rd video]
 
-[Motionless Earth Proven 1887, Aether Proven 1913](https://www.youtube.com/watch?v=kfE4vHQGB0w&list=PLYI8318YYdkCsZ7dsYV01n6TZhXA6Wf9i&&index=11)
+[Motionless Earth Proven 1887, Aether Proven 1913](https://www.youtube.com/watch?v=kfE4vHQGB0w&list=PLYI8318YYdkCsZ7dsYV01n6TZhXA6Wf9i&&index=11) [11th video]
 
-[Edward Hendrie with A. True Ott PhD, June 3, 2016](https://www.youtube.com/watch?v=VZb2imQYMuk&list=PLYI8318YYdkCsZ7dsYV01n6TZhXA6Wf9i&index=12)
+[Edward Hendrie with A. True Ott PhD, June 3, 2016](https://www.youtube.com/watch?v=VZb2imQYMuk&list=PLYI8318YYdkCsZ7dsYV01n6TZhXA6Wf9i&index=12) [12th video]
 
 
 # audiobible find let god be true
