@@ -1,5 +1,4 @@
-Updated: Sat Sep  9 16:04:47 UTC 2017
-
+Updated: Sat Sep  9 16:37:22 UTC 2017
 
 ## ![stats](https://c.statcounter.com/11394982/0/c560f991/0/) Welcome to [http://audiobible.life](http://audiobible.life) - Therefore Choose Life - [They Live](https://www.youtube.com/watch?v=JI8AMRbqY6w)
 

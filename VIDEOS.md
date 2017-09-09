@@ -1,3 +1,5 @@
+Updated: Sat Sep  9 16:36:28 UTC 2017
+
 ## ![stats](https://c.statcounter.com/11394977/0/9568e9c4/0/) Welcome to [http://audiobible.life](http://audiobible.life) - Therefore Choose Life - [They Live](https://www.youtube.com/watch?v=JI8AMRbqY6w)
 
 [README](README.md) | [USAGE](USAGE.md) | [HELP](HELP.md) | [DEVELOPMENT](DEVELOPMENT.md) | [CHANGES](CHANGES.md) | **We The People** | **Have The Power** | **Don't Be A Clown**
