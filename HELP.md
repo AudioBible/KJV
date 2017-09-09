@@ -13,9 +13,9 @@ Paste this video link as a comment reply to comments on youtube and paste it as 
 
 https://www.youtube.com/watch?v=pNe1wWeaHOU&list=PLYI8318YYdkCsZ7dsYV01n6TZhXA6Wf9i&index=1
 
-GO AND TELL ALL OF THE CHURCHES THE REAL TRUTH AND SEND THEM THIS VIDEO!
+GO AND TELL ALL OF THE PEOPLE AND CHURCHES THE REAL TRUTH AND SEND THEM THIS PLAYLIST!
 
-The space NASA talks about is the space inside the dome, technically were all in outer space as we speak - Earth is Motionless https://m.youtube.com/watch?list=PLYI8318YYdkCsZ7dsYV01n6TZhXA6Wf9i&v=kfE4vHQGB0w
+Motionless https://m.youtube.com/watch?list=PLYI8318YYdkCsZ7dsYV01n6TZhXA6Wf9i&v=kfE4vHQGB0w The space NASA talks about is the space inside the dome, technically were all in outer space as we speak.
 
 ### 1. Pray, repent, read, hear, watch the videos, meet new people and share!
 
