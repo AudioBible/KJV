@@ -1,4 +1,5 @@
-Last Modified: Sat Sep  9 16:47:00 UTC 2017
+Last Modified: Sat Sep  9 16:50:02 UTC 2017
+
 
 ## ![stats](https://c.statcounter.com/11394980/0/688bc3dd/0/) Welcome to [http://audiobible.life](http://audiobible.life) - Therefore Choose Life - [They Live](https://www.youtube.com/watch?v=JI8AMRbqY6w)
 
@@ -876,10 +877,13 @@ http://audiobible.life плоская земля! Плоска Земя! Płaski
 
     khjf oierafgio raoigre raglu reaithy iur fkeav jsz gk dns g jkdsabvmj CHUNG
     DSBFm dsFMdbs Mbdsmznvb m sdfb m sdbv sfbk DJS BFmn dsB FmADBF kdsbFM SBFN bdS
+
     l kegiuwa hti kyair wlawuh f jksdfh sg kjshfkjsd zhgkhs zkrh kerhng
+
     wetgkjawehg liawh SING fluhfklu hksezgh lwiawegh awr BONG  av twy
     g awrljg klsrhg kjahgo uehF PAWR IG LIhljg o iaerjl iuaerhgl wag
     GAIJHA KALISHMA FUNDA MOONTAYA AWE'UG HEW GH AWLKGH KAWGHKL SEHGL KWEHGOIQH
+
     sw gk hawkth lakhaow liuthg viawi ugo ig wruh o iyh aq iajblj wrad bflvhzgvi
     GHLM PING PING PONG PONG ahr dzn uplyg umy vch bjknqtwar hdngpzu kasjqr
 
@@ -893,6 +897,7 @@ http://audiobible.life плоская земля! Плоска Земя! Płaski
 
     PUT ANGELS AROUND EVERYONE I KNOW AND MEET AND PROTECT THEM FROM THE EVIL ONE!
 
+    fai ufraf dgaf krajgy gfqaw o lRWGfh eifhu WFGUIGH R Qieh fvW EBHFJB
 
 3. PRAY THE LORD'S PRAYER! DON'T EVEN THINK ABOUT CHANGING OR SKIPPING OR ADDING A SINGLE WORD!
 
