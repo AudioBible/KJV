@@ -1,4 +1,4 @@
-Last Modified: Sat Sep  9 18:41:50 UTC 2017
+Last Modified: Sat Sep  9 19:43:05 UTC 2017
 
 ## ![stats](https://c.statcounter.com/11395037/0/cbecb5be/0/) Welcome to [http://audiobible.life](http://audiobible.life) - Therefore Choose Life - [They Live](https://www.youtube.com/watch?v=JI8AMRbqY6w)
 
@@ -1252,6 +1252,10 @@ IMAGES
 - [Common-sense-is-a-flower-that-doesnt-grow-in-everyones-garden.-Anonymous.png](images/Common-sense-is-a-flower-that-doesnt-grow-in-everyones-garden.-Anonymous.png)
 
 ![Common-sense-is-a-flower-that-doesnt-grow-in-everyones-garden.-Anonymous.png](images/Common-sense-is-a-flower-that-doesnt-grow-in-everyones-garden.-Anonymous.png)
+
+- [Discern_vol4_no4_fb_did_jesus_teach_the_rapture_833_437_80.jpg](images/Discern_vol4_no4_fb_did_jesus_teach_the_rapture_833_437_80.jpg)
+
+![Discern_vol4_no4_fb_did_jesus_teach_the_rapture_833_437_80.jpg](images/Discern_vol4_no4_fb_did_jesus_teach_the_rapture_833_437_80.jpg)
 
 - [Dr.Lawrence-Cohen-quote.png](images/Dr.Lawrence-Cohen-quote.png)
 

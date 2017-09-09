@@ -180,7 +180,7 @@ Most people don't know all that much, because nobody teaches them anything of an
 
 Satan changes meanings of words so he can give people room for sin, as it was with the apple, so it is today! As we can see the word shit is not a bad word, but that's what we've been led to believe over the years. However, speaking wrongfully of God and his word is another story. Don't use the F-word, but talk all the shit about God that you want? I don't think so, I know better!
 
-Do you believe in Holy Shit or Holy Truth?
+Do you believe in Holy Shit or Holy Truth? You can't be constantly stuck in the "Good" you have to look at the "Bad", so to see the bigger picture! We live in a duality therefore it's best to look at both sides!
 
 [![ODD-TV-Living-In-Hell-Playlist](images/ODD-TV-Living-In-Hell-Playlist.png)](https://www.youtube.com/watch?v=TlTR7QQZQ8I&list=PL7X63Sm3kODPV43FyewOSadSnZwZGZQHU&index=1)
 
