@@ -529,6 +529,8 @@ Do what thou wilt? or do God's will? Which is it? Everyone has there own Truth? 
 
 [The Jesuit's Recommended Bible Versions!](https://www.youtube.com/watch?v=Hcs3-SXg4k8)
 
+[Flat Earth: Jesuits & the Global Conspiracy!](https://www.youtube.com/watch?v=1WHIr-IFqAo&t=85)
+
 # [Flat Earth](https://www.youtube.com/watch?v=UbYtkrTquXE&list=PL7X63Sm3kODMi6OX15TRIqXzc3usAkf2-) [English Flat Earth playlist]
 
 # [Tierra Plana](https://www.youtube.com/playlist?list=PL7X63Sm3kODP0KENF_nh8zcMTDPSIXvPe) [Spanish Flat Earth playlist]
