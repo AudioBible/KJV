@@ -11,11 +11,11 @@ HELP
 
 Paste this video link as a comment reply to comments on youtube and paste it as a comment all over the internet so others can see these videos! Read some of the idiotic comments people post refuting the facts! Trust me, just going through the motions will teach you a lot about life in this reality we live in!
 
-https://www.youtube.com/watch?v=pNe1wWeaHOU&list=PLYI8318YYdkCsZ7dsYV01n6TZhXA6Wf9i&index=1
+[https://www.youtube.com/watch?v=pNe1wWeaHOU&list=PLYI8318YYdkCsZ7dsYV01n6TZhXA6Wf9i&index=1](https://www.youtube.com/watch?v=pNe1wWeaHOU&list=PLYI8318YYdkCsZ7dsYV01n6TZhXA6Wf9i&index=1)
 
 GO AND TELL ALL OF THE PEOPLE AND CHURCHES THE REAL TRUTH AND SEND THEM THIS PLAYLIST!
 
-Motionless https://m.youtube.com/watch?list=PLYI8318YYdkCsZ7dsYV01n6TZhXA6Wf9i&v=kfE4vHQGB0w The space NASA talks about is the space inside the dome, technically were all in outer space as we speak.
+Motionless https://m.youtube.com/watch?list=PLYI8318YYdkCsZ7dsYV01n6TZhXA6Wf9i&v=kfE4vHQGB0w The space NASA talks about is the space inside the dome, technically were all in outer space as we speak. http://audiobible.life
 
 ### 1. Pray, repent, read, hear, watch the videos, meet new people and share!
 
