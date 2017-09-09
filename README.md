@@ -479,7 +479,7 @@ Do what thou wilt? or do God's will? Which is it? Everyone has there own Truth? 
         1.  A polluter; a defiler; as a  profaner  of the temple.
 
 
-As we can see the word shit is not a bad word, but that's what we've been led to believe over the years. However speaking wrongfully of God and his word is another story.
+As we can see the word shit is not a bad word, but that's what we've been led to believe over the years. However speaking wrongfully of God and his word is another story. Satan changes meanings so he can give people room for sin, as it was with the apple!
 
 [![ODD-TV-Living-In-Hell-Playlist](images/ODD-TV-Living-In-Hell-Playlist.png)](https://www.youtube.com/watch?v=TlTR7QQZQ8I&list=PL7X63Sm3kODPV43FyewOSadSnZwZGZQHU&index=1)
 
