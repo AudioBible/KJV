@@ -69,6 +69,95 @@ Most people don't know all that much, because nobody teaches them anything of an
 
 **Note**: Some images are links to a youtube video, obviously the blue text is a link to a video or playlist or a page on the site. Some videos I've place a screenshot of the video, some I haven't, so look at the link below the image, if no image then just follow the youtube link, I was lazy to put an image or just didn't want to make this page really big and slow to download because of so many images!
 
+**Note:** Some songs may have explicit language. Please don't judge people for the language they use or their personality. Lest you be judged according to your measure! Listen to the message they are saying. Most of all please share the love with others! It's a lot worse to be out there killing people over oil, dropping a real bomb, than saying a four letter word, dropping the F-bomb. Who's side are you on? If it's not blaspheming the name of Jesus Christ then whats the problem, are you conditioned? What are filthy words? Are the words "drone strikes", which means many people die, worse than the S-word, which means poop?
+
+### WHAT DOES THE WORD PROFANITY MEAN ANYWAY?! DID THE MEANING CHANGE OVER THE YEARS?!
+
+## audiobible words profane
+
+
+    Strong's No: H2455
+    Hebrew: חֹל
+    English: profane
+    Transliteration: chôl
+    Phonetic: khole
+    Word Origin: From H2490
+
+    Bible Usage:
+        {common} profane ({place}) unholy.
+
+    Part of Speech:
+        Noun Masculine
+
+    Strong's Definition:
+        properly exposed; hence profane
+
+    Brown Driver Definition:
+        1. profaneness, commonness, unholy, profane, common, sand
+
+    Translation Occurrences:
+        place: 1, common: 2, profane: 3, unholy: 1
+
+    Bible References:
+        Ezek 22:26, Ezek 44:23, Ezek 48:15
+
+    Webster's 1828 Dictionary:
+        Profane
+
+    Definition:
+        PROFA'NE ,  adjective   [Latin  profanus; pro and fanum, a temple.]
+        1.  Irreverent to any thing sacred; applied to persons. A man is  profane  when he takes the name of God in vain, or treats sacred things with abuse and irreverence.
+        2.  Irreverent; proceeding from a contempt of sacred things, or implying it; as  profane  words or language;  profane  swearing.
+        3.  Not sacred; secular; relating to secular things; as  profane  history.
+        4.  Polluted; not pure.
+        Nothing is  profane  that serveth to holy things.
+        5.  Not purified or holy; allowed for common use; as a  profane  place.  Ezekiel 42:20 . and 48.
+        6.  Obscene; heathenish; tending to bring reproach on religion; as  profane  fables.  1 Timothy 4:7 .
+        Profane is used chiefly in Scripture in opposition to holy, or qualified ceremonially for sacred services.
+        PROFA'NE ,  verb transitive   To violate any thing sacred, or treat it with abuse, irreverence, obloquy or contempt; as, to  profane  the name of God; to  profane  the sabbath; to  profane  the Scriptures or the ordinances of God.
+        1.  To pollute; to defile; to apply to temporal uses; to use as base or common.  Ezekiel 24:21 .
+        2.  To violate.  Malachi 2:11 .
+        3.  To pollute; to debase. Leviticus 21:4 .
+        4.  To put to a wrong use.
+
+    Webster's 1828 Dictionary:
+        Profaned
+
+    Definition:
+        PROFA'NED ,  participle passive   Violated; treated with irreverence or abuse; applied to common uses; polluted.
+
+    Webster's 1828 Dictionary:
+        Profanely
+
+    Definition:
+        PROFA'NELY ,  adverb   With irreverence to sacred things or names.
+        The character of God  profanely  impeached.
+        1.  With abuse or contempt for any thing venerable.
+        That proud scholar--speaks of Homer too  profanely
+
+    Webster's 1828 Dictionary:
+        Profaneness
+
+    Definition:
+        PROFA'NENESS ,  noun   Irreverence of sacred things; particularly, the use of language which implies irreverence towards God; the taking of God's name in vain.
+        Profaneness in men is vulgar and odious; in females, is shocking and detestable.
+
+    Webster's 1828 Dictionary:
+        Profaner
+
+    Definition:
+        PROFA'NER ,  noun   One who by words or actions, treats sacred things with irreverence; one who uses profane language.
+        1.  A polluter; a defiler; as a  profaner  of the temple.
+
+
+Satan changes meanings of words so he can give people room for sin, as it was with the apple, so it is today! As we can see the word shit is not a bad word, but that's what we've been led to believe over the years. However, speaking wrongfully of God and his word is another story. Don't use the F-word, but talk all the shit about God that you want? I don't think so, I know better!
+
+[![ODD-TV-Living-In-Hell-Playlist](images/ODD-TV-Living-In-Hell-Playlist.png)](https://www.youtube.com/watch?v=TlTR7QQZQ8I&list=PL7X63Sm3kODPV43FyewOSadSnZwZGZQHU&index=1)
+
+## послушай музыку анти ню ворлд ордер﻿! Listen to anti new world order music!
+
+# [Truth Music - **MUST SEE AND HEAR**](https://www.youtube.com/watch?v=TlTR7QQZQ8I&list=PL7X63Sm3kODPV43FyewOSadSnZwZGZQHU&index=1) [playlist with ~700 songs]
+
 [🔬 SCIENTISM EXPOSED 🔭 Full Documentary (2016) HD](https://www.youtube.com/watch?v=AeIGrEtPMmE)
 
 [The Global Lie - Flat Earth Documentary (2016) HD](https://www.youtube.com/watch?v=yi2NbIf_7p4)
@@ -397,95 +486,6 @@ Do what thou wilt? or do God's will? Which is it? Everyone has there own Truth? 
 ### TRUTH HURTS WHEN YOU BELIEVE LIES! ARE YOU BIG BANG BELIEVING CHRISTIAN?! ENJOY HELL!
 
 ### THEORY OF RELATIVITY! DID YOU FALL ON YOUR FACE? OR DID EARTH RISE TO MEET YOUR FACE?
-
-**Note:** Some songs may have explicit language. Please don't judge people for the language they use or their personality. Lest you be judged according to your measure! Listen to the message they are saying. Most of all please share the love with others! It's a lot worse to be out there killing people over oil, dropping a real bomb, than saying a four letter word, dropping the F-bomb. Who's side are you on? If it's not blaspheming the name of Jesus Christ then whats the problem, are you conditioned? What are filthy words? Are the words "drone strikes", which means many people die, worse than the S-word, which means poop?
-
-### WHAT DOES THE WORD PROFANITY MEAN ANYWAY?! DID THE MEANING CHANGE OVER THE YEARS?!
-
-## audiobible words profane
-
-
-    Strong's No: H2455
-    Hebrew: חֹל
-    English: profane
-    Transliteration: chôl
-    Phonetic: khole
-    Word Origin: From H2490
-
-    Bible Usage:
-        {common} profane ({place}) unholy.
-
-    Part of Speech:
-        Noun Masculine
-
-    Strong's Definition:
-        properly exposed; hence profane
-
-    Brown Driver Definition:
-        1. profaneness, commonness, unholy, profane, common, sand
-
-    Translation Occurrences:
-        place: 1, common: 2, profane: 3, unholy: 1
-
-    Bible References:
-        Ezek 22:26, Ezek 44:23, Ezek 48:15
-
-    Webster's 1828 Dictionary:
-        Profane
-
-    Definition:
-        PROFA'NE ,  adjective   [Latin  profanus; pro and fanum, a temple.]
-        1.  Irreverent to any thing sacred; applied to persons. A man is  profane  when he takes the name of God in vain, or treats sacred things with abuse and irreverence.
-        2.  Irreverent; proceeding from a contempt of sacred things, or implying it; as  profane  words or language;  profane  swearing.
-        3.  Not sacred; secular; relating to secular things; as  profane  history.
-        4.  Polluted; not pure.
-        Nothing is  profane  that serveth to holy things.
-        5.  Not purified or holy; allowed for common use; as a  profane  place.  Ezekiel 42:20 . and 48.
-        6.  Obscene; heathenish; tending to bring reproach on religion; as  profane  fables.  1 Timothy 4:7 .
-        Profane is used chiefly in Scripture in opposition to holy, or qualified ceremonially for sacred services.
-        PROFA'NE ,  verb transitive   To violate any thing sacred, or treat it with abuse, irreverence, obloquy or contempt; as, to  profane  the name of God; to  profane  the sabbath; to  profane  the Scriptures or the ordinances of God.
-        1.  To pollute; to defile; to apply to temporal uses; to use as base or common.  Ezekiel 24:21 .
-        2.  To violate.  Malachi 2:11 .
-        3.  To pollute; to debase. Leviticus 21:4 .
-        4.  To put to a wrong use.
-
-    Webster's 1828 Dictionary:
-        Profaned
-
-    Definition:
-        PROFA'NED ,  participle passive   Violated; treated with irreverence or abuse; applied to common uses; polluted.
-
-    Webster's 1828 Dictionary:
-        Profanely
-
-    Definition:
-        PROFA'NELY ,  adverb   With irreverence to sacred things or names.
-        The character of God  profanely  impeached.
-        1.  With abuse or contempt for any thing venerable.
-        That proud scholar--speaks of Homer too  profanely
-
-    Webster's 1828 Dictionary:
-        Profaneness
-
-    Definition:
-        PROFA'NENESS ,  noun   Irreverence of sacred things; particularly, the use of language which implies irreverence towards God; the taking of God's name in vain.
-        Profaneness in men is vulgar and odious; in females, is shocking and detestable.
-
-    Webster's 1828 Dictionary:
-        Profaner
-
-    Definition:
-        PROFA'NER ,  noun   One who by words or actions, treats sacred things with irreverence; one who uses profane language.
-        1.  A polluter; a defiler; as a  profaner  of the temple.
-
-
-Satan changes meanings of words so he can give people room for sin, as it was with the apple, so it is today! As we can see the word shit is not a bad word, but that's what we've been led to believe over the years. However, speaking wrongfully of God and his word is another story. Don't use the F-word, but talk all the shit about God that you want? I don't think so, I know better!
-
-[![ODD-TV-Living-In-Hell-Playlist](images/ODD-TV-Living-In-Hell-Playlist.png)](https://www.youtube.com/watch?v=TlTR7QQZQ8I&list=PL7X63Sm3kODPV43FyewOSadSnZwZGZQHU&index=1)
-
-## послушай музыку анти ню ворлд ордер﻿! Listen to anti new world order music!
-
-# [Truth Music - **MUST SEE AND HEAR**](https://www.youtube.com/watch?v=TlTR7QQZQ8I&list=PL7X63Sm3kODPV43FyewOSadSnZwZGZQHU&index=1) [playlist with ~700 songs]
 
 # [Flat Earth](https://www.youtube.com/watch?v=UbYtkrTquXE&list=PL7X63Sm3kODMi6OX15TRIqXzc3usAkf2-) [English Flat Earth playlist]
 
