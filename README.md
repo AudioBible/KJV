@@ -843,7 +843,7 @@ http://audiobible.life плоская земля! Плоска Земя! Płaski
 
 ### JESUS CHRIST TOLD US HOW TO PRAY! IF I MAY I WOULD LIKE TO ELABORATE ON THAT!
 
-1. PRAY IN TONGUES UNTIL YOU YOU GET HOT AND EVEN DRIPPING WITH SWEAT!
+1. PRAY IN TONGUES UNTIL YOU GET HOT AND POSSIBLY EVEN DRIPPING WITH SWEAT!
 
 
     khjf oierafgio raoigreraglureaithy34iur fkea,v,jsz gk.dns,g jkdsabvmj CHUNG
