@@ -258,6 +258,8 @@ Do you believe in Holy Shit or Holy Truth? You can't be constantly stuck in the 
 
 [New World Order Is Using Weather ITS HAPPENING](https://www.youtube.com/watch?v=Kk4HHahoseg)
 
+[Proof of Weather Modification - NASA, HAARP & Chemtrail Technology ▶️️](https://www.youtube.com/watch?v=wJBBlntDtEU)
+
 [The Godhead vs The "Trinity"](https://www.youtube.com/watch?v=Bh3n1Y_J_ak)
 
 # The word Trinity is nowhere to be found in the KJV!
