@@ -974,4 +974,6 @@ I heard about Flat Earth in mid/late 2016 and only recently found out the real t
 
 [run your car on water. This guy does just that!](https://www.youtube.com/watch?v=wjeM2IBhtlc)
 
+[Water Powered Car!! - Suzuki Samurai Runs on 100% Water [witts.ws]](https://www.youtube.com/watch?v=4ljhGUia9Yk)
+
 - With much Love, Professor Alex
