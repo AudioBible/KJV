@@ -99,7 +99,7 @@ Most people don't know all that much, because nobody teaches them anything of an
 
 **Note:** Some songs may have explicit language. Please don't judge people for the language they use or their personality. Lest you be judged according to your measure! Listen to the message they are saying. Most of all please share the love with others! It's a lot worse to be out there killing people over oil, dropping a real bomb, than saying a four letter word, dropping the F-bomb. Who's side are you on? If it's not blaspheming the name of Jesus Christ then whats the problem, are you conditioned? What are filthy words? Are the words "drone strikes" or "predator drones", which means many people die, worse than the S-word, which means poop?
 
-### WHAT ABOUT JUDGING OTHERS? Plus, other topics from J.R. Miller
+### WHAT ABOUT JUDGING OTHERS? Plus, other topics by J.R. Miller
 
 [Better to rot in Prison! - J. R. Miller / Christian Devotional](https://www.youtube.com/watch?v=RxlOFjoAcOE&list=PL2085C7193D4C2AAE) [Playlist]
 
