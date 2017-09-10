@@ -93,7 +93,7 @@ Most Christians only know half truths and so they are not real Christians becaus
 
 The government owns your mind and body and they want to own your soul! They control matter because they control your mind! Anyway, take it how you will or don't! By the way, it's life or death!
 
-Most people don't know all that much, because nobody teaches them anything of any real value! Most people don't know how to do research, what they think doing research is, is not real research!
+Most people don't know all that much, because nobody teaches them anything of any real value! Most people don't know how to do research, what they think doing research is, is not real research! Make sure to also watch the recommended videos! It's not possible for me to add everything here! I'm not perfect and always learning. Maybe a month ago I was deceived about a topic but I kept doing research and today found out the real truth about it. Seek the truth and you will find it! Truth comes in chunks, not all at once!
 
 **Note**: Some images are links to a youtube video, obviously the blue text is a link to a video or playlist or a page on the site. Some videos I've place a screenshot of the video, some I haven't, so look at the link below the image, if no image then just follow the youtube link, I was lazy to put an image or just didn't want to make this page really big and slow to download because of so many images! Scroll around right-to-left on any text that is cut off!
 
