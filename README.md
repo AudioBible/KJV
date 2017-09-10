@@ -944,8 +944,12 @@ http://audiobible.life плоская земля! Плоска Земя! Płaski
     MT 6:13 And lead us not into temptation, but deliver us from evil: For thine is the kingdom, and the power, and the glory, for ever. Amen.
 
 
+I only recently found out in May/June of 2017 and had to make this website to help spread awareness!
+
 ## WAKE UP! ARE YOU A WARRIOR? OR ARE YOU A BRAINWASHED ZOMBIE CLOWN?
 
 🌏💥🔫﻿﻿
 
 ## JESUS CHRIST IS LORD! I LOVE YOU ALL! HOWEVER, I LOVE GODHEAD MORE!
+
+- With much Love, Professor Alex
