@@ -911,7 +911,7 @@ http://audiobible.life плоская земля! Плоска Земя! Płaski
     2_PETER 3:8 But, beloved, be not ignorant of this one thing, that one day is with the Lord as a thousand years, and a thousand years as one day.
 
 
-### JESUS CHRIST TOLD US HOW TO PRAY! IF I MAY I WOULD LIKE TO ELABORATE ON THAT!
+### JESUS CHRIST TOLD US HOW TO PRAY! IF I MAY I WOULD LIKE TO ELABORATE ON WHAT WORKS FOR ME!
 
 1. PRAY IN TONGUES UNTIL YOU GET HOT AND POSSIBLY EVEN DRIPPING WITH SWEAT!
 
