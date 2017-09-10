@@ -972,4 +972,6 @@ I heard about Flat Earth in mid/late 2016 and only recently found out the real t
 
 ## JESUS CHRIST IS LORD! I LOVE YOU ALL! HOWEVER, I LOVE GODHEAD MORE!
 
+[run your car on water. This guy does just that!](https://www.youtube.com/watch?v=wjeM2IBhtlc)
+
 - With much Love, Professor Alex
