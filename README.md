@@ -533,6 +533,8 @@ Do what thou wilt? or do God's will? Which is it? Everyone has there own Truth? 
 
 [Mark of the Beast: What it is & how to avoid it!](https://www.youtube.com/watch?v=FLYZgOaIWW0)
 
+[Christmas: Origin, History, & Traditions](https://www.youtube.com/watch?v=p4E3H1AWuAY)
+
 # [Flat Earth](https://www.youtube.com/watch?v=UbYtkrTquXE&list=PL7X63Sm3kODMi6OX15TRIqXzc3usAkf2-) [English Flat Earth playlist]
 
 # [Tierra Plana](https://www.youtube.com/playlist?list=PL7X63Sm3kODP0KENF_nh8zcMTDPSIXvPe) [Spanish Flat Earth playlist]
