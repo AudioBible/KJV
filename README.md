@@ -196,6 +196,8 @@ Do you believe in Holy Shit or Holy Truth? You can't be constantly stuck in the 
 
 [Disney Censors the Word 'God' As a Red Flag for Online Profanity 720p](https://www.youtube.com/watch?v=ybHqFSpc2go)
 
+[NFL Star Benjamin Watson gets cut off on CNN proclaiming JESUS CHRIST !!!](https://www.youtube.com/watch?v=NEnWg5Vg0T8)
+
 [![ODD-TV-Living-In-Hell-Playlist](images/ODD-TV-Living-In-Hell-Playlist.png)](https://www.youtube.com/watch?v=TlTR7QQZQ8I&list=PL7X63Sm3kODPV43FyewOSadSnZwZGZQHU&index=1)
 
 ## послушай музыку анти ню ворлд ордер﻿! Listen to anti new world order music!
