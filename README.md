@@ -976,4 +976,6 @@ I heard about Flat Earth in mid/late 2016 and only recently found out the real t
 
 [Water Powered Car!! - Suzuki Samurai Runs on 100% Water [witts.ws]](https://www.youtube.com/watch?v=4ljhGUia9Yk)
 
+[TRUCK RUNS 100 % on WATER NOT on GASOLINE - Is it a Fake ?](https://www.youtube.com/watch?v=yjqkHhWUKOU)
+
 - With much Love, Professor Alex
