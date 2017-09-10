@@ -99,6 +99,8 @@ Most people don't know all that much, because nobody teaches them anything of an
 
 **Note:** Some songs may have explicit language. Please don't judge people for the language they use or their personality. Lest you be judged according to your measure! Listen to the message they are saying. Most of all please share the love with others! It's a lot worse to be out there killing people over oil, dropping a real bomb, than saying a four letter word, dropping the F-bomb. Who's side are you on? If it's not blaspheming the name of Jesus Christ then whats the problem, are you conditioned? What are filthy words? Are the words "drone strikes" or "predator drones", which means many people die, worse than the S-word, which means poop?
 
+[Judging Others - J. R. Miller (Christian devotional)](https://www.youtube.com/watch?v=4j8EDfvQj4E)
+
 ### WHAT DOES THE WORD PROFANITY MEAN ANYWAY?! DID THE MEANING CHANGE OVER THE YEARS?!
 
 ## audiobible words profane
