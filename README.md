@@ -198,6 +198,8 @@ Do you believe in Holy Shit or Holy Truth? You can't be constantly stuck in the 
 
 [NFL Star Benjamin Watson gets cut off on CNN proclaiming JESUS CHRIST !!!](https://www.youtube.com/watch?v=NEnWg5Vg0T8)
 
+[NFL's Benjamin Watson on CNN: 'Jesus Christ Died for Our Sins'](https://www.youtube.com/watch?v=d4YQ6n9_y8E)
+
 [![ODD-TV-Living-In-Hell-Playlist](images/ODD-TV-Living-In-Hell-Playlist.png)](https://www.youtube.com/watch?v=TlTR7QQZQ8I&list=PL7X63Sm3kODPV43FyewOSadSnZwZGZQHU&index=1)
 
 ## послушай музыку анти ню ворлд ордер﻿! Listen to anti new world order music!
