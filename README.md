@@ -533,6 +533,18 @@ Do what thou wilt? or do God's will? Which is it? Everyone has there own Truth? 
 
 [Mark of the Beast: What it is & how to avoid it!](https://www.youtube.com/watch?v=FLYZgOaIWW0)
 
+[The Creator's Calendar](https://www.youtube.com/watch?v=DbzFGEfgP_8)
+
+[Hell: You've Got it All Wrong!](https://www.youtube.com/watch?v=c-oeQgAsPzk)
+
+[Eternal Fire Exists ...but it's not what you think!](https://www.youtube.com/watch?v=qhwojArfuEI)
+
+[The Trinity: Lie of Antiquity!](https://www.youtube.com/watch?v=RUE7OPg-EkI)
+
+[The Trinity: Satan’s Attack Against Calvary](https://www.youtube.com/watch?v=9MZjj7Qwy1w)
+
+[Nephilim (Giants) in the Bible: Is Yahuwah a Genocidal Maniac or a Loving Creator?](https://www.youtube.com/watch?v=QsI0YsAnl1A)
+
 [Christmas: Origin, History, & Traditions](https://www.youtube.com/watch?v=p4E3H1AWuAY)
 
 [Easter - Pagan Passover](https://www.youtube.com/watch?v=mnVnArw4Bjw)
