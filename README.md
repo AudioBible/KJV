@@ -37,7 +37,7 @@ How can God tell you the things of Heaven if you refuse to believe the things of
 
 # EARTH IS FLAT! EARTH IS NOT A GLOBE! JESUS CHRIST IS LORD!
 
-# 100% YOU'LL GET OFFENDED BY THIS WEBSITE IF YOU'RE WORLDLY!
+# 100% YOU'LL BE OFFENDED BY THIS WEBSITE IF YOU'RE WORLDLY!
 
 Will you be celebrating the Anti-Christ this Christmas? Worshipping "another spirit"? I know I won't be! If you are, then have fun!
 
