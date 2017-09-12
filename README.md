@@ -39,6 +39,8 @@ How can God tell you the things of Heaven if you refuse to believe the things of
 
 # 100% YOU'LL BE OFFENDED BY THIS IF YOU'RE WORLDLY!
 
+# THE TRUTH ALWAYS OFFENDS PEOPLE! CAN YOU HANDLE THE TRUTH?
+
 Will you be celebrating the Anti-Christ this Christmas? Worshipping "another spirit"? I know I won't be! If you are, then have fun!
 
 # audiobible find conspiracy
@@ -548,6 +550,14 @@ Do what thou wilt? or do God's will? Which is it? Everyone has there own Truth? 
 [Jesuits, Christianity, Counter Reformation and King James Bible](https://www.youtube.com/watch?v=Ri-KcmLgD5k)
 
 [The Jesuit's Recommended Bible Versions!](https://www.youtube.com/watch?v=Hcs3-SXg4k8)
+
+[Jesuits And The "Local Church"](https://www.youtube.com/watch?v=go5yvATFZgQ)
+
+[No Local Church?](https://www.youtube.com/watch?v=yL3xQczN6pE)
+
+[13 Reasons Every Christian MUST Reject The Mass Part 1](https://www.youtube.com/watch?v=XFSUbaumyic)
+
+[13 Reasons Every Christian MUST Reject The Mass Part 2](https://www.youtube.com/watch?v=nCGFBOgZ4bc)
 
 [Flat Earth: Jesuits & the Global Conspiracy!](https://www.youtube.com/watch?v=1WHIr-IFqAo&t=85)
 
