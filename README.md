@@ -63,7 +63,7 @@ Satan was given authority over the world! Do you think he will let you worship t
     JN 14:6 Jesus saith unto him, I am the way, the truth, and the life: no man cometh unto the Father, but by me.
 
 
-If you know about the [esoteric](http://www.thefreedictionary.com/esoteric) nature of these people, everything is forward, everything is backward, everything is upside down. [Aleister Crowley](https://en.wikipedia.org/wiki/Aleister_Crowley) recommended that people learn how to do things forward, backward and upside down, because God created everything. The Devil does everything in reverse, he cannot create, he can only duplicate.
+If you know about the [esoteric](http://www.thefreedictionary.com/esoteric) nature of these people, everything is forward, everything is backward, everything is upside down. [Aleister Crowley](https://en.wikipedia.org/wiki/Aleister_Crowley) recommended that people learn how to do things forward, backward and upside down, because God created everything. The Devil does everything in reverse, he cannot create, he can only duplicate. -RFB
 
 # audiobible find "up into the holy city" -A5
 
