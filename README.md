@@ -65,7 +65,7 @@ The peace that is spoken of in this world is a lie! You can only have peace in t
     JOHN 16:33 These things I have spoken unto you, that in me ye might have peace. In the world ye shall have tribulation: but be of good cheer; I have overcome the world.
 
 
-Satan was given authority over the world! Do you think he will let you worship the real God if he has authority in the world?
+Satan was given authority over the world! Do you think he will let you worship the real God if he has authority over the world?
 
 # audiobible find great ones exercise authority upon
 
