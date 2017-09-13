@@ -41,13 +41,15 @@ How can God tell you the things of Heaven if you refuse to believe the things of
 
 # THE TRUTH OFFENDS PEOPLE! CAN YOU HANDLE THE TRUTH?
 
-Since Adam and Eve bit the fruit of knowledge, we have to use knowledge in order to praise God with understanding! Satan was given authority over the world! Do you think he will let you worship the real God if he has authority in the world? Jesus said in Matt 7:13-14
+Since Adam and Eve bit the fruit of knowledge, we have to use knowledge in order to praise God with understanding!
 
 # audiobible find praises with understanding
 
 
     PSALMS 47:7 For God is the King of all the earth: sing ye praises with understanding.
 
+
+Satan was given authority over the world! Do you think he will let you worship the real God if he has authority in the world?
 
 # audiobible find "is the gate,"
 
