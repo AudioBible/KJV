@@ -41,9 +41,21 @@ How can God tell you the things of Heaven if you refuse to believe the things of
 
 # THE TRUTH OFFENDS PEOPLE! CAN YOU HANDLE THE TRUTH?
 
-Since Adam and Eve bit the fruit of knowledge, we have to use knowledge in order to praise God with understanding! Satan was given authority over the world! Do you think he will let you worship the real God if he has authority in the world?
+Since Adam and Eve bit the fruit of knowledge, we have to use knowledge in order to praise God with understanding! Satan was given authority over the world! Do you think he will let you worship the real God if he has authority in the world? Jesus said in Matt 7:13-14
 
-**PSALMS 47:7:** For God is the King of all the earth: sing ye praises with understanding.
+# audiobible find praises with understanding
+
+
+    PSALMS 47:7 For God is the King of all the earth: sing ye praises with understanding.
+
+
+# audiobible find "is the gate,"
+
+
+    MATTHEW 7:13 Enter ye in at the strait gate: for wide is the gate, and broad is the way, that leadeth to destruction, and many there be which go in thereat:
+
+    MATTHEW 7:14 Because strait is the gate, and narrow is the way, which leadeth unto life, and few there be that find it.
+
 
 Will you be celebrating the Anti-Christ this Christmas? Worshipping "another spirit"? I know I won't be! If you are, then have fun!
 
@@ -624,6 +636,8 @@ Do what thou wilt? or do God's will? Which is it? Everyone has there own Truth? 
 **ISAIAH 40:22:** It is he that sitteth upon the circle of the earth, and the inhabitants thereof are as grasshoppers; that stretcheth out the heavens as a curtain, and spreadeth them out as a tent to dwell in:
 
 #### God is so kind that it is impossible to imagine His unbounded kindness.
+
+**PSALMS 47:7:** For God is the King of all the earth: sing ye praises with understanding.
 
 **PSALMS 147:5:** Great is our Lord, and of great power: his understanding is infinite.
 
