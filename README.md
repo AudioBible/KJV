@@ -57,7 +57,7 @@ Satan was given authority over the world! Do you think he will let you worship t
 
 #### Flat Earth Matters If Truth Matters, Up is Up and Down is Down, no matter where you are in the world!
 
-#### Relativity is a lie! Gravity is a false religion!
+#### Relativity is a lie! Gravity is a false religion! You cannot know God if you don't know his creation!
 
 
     JN 14:6 Jesus saith unto him, I am the way, the truth, and the life: no man cometh unto the Father, but by me.
