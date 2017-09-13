@@ -39,7 +39,7 @@ How can God tell you the things of Heaven if you refuse to believe the things of
 
 # 100% YOU'LL BE OFFENDED BY THIS IF YOU'RE WORLDLY!
 
-# THE TRUTH ALWAYS OFFENDS PEOPLE! CAN YOU HANDLE THE TRUTH?
+# THE TRUTH WILL OFFEND PEOPLE! CAN YOU HANDLE THE TRUTH?
 
 Will you be celebrating the Anti-Christ this Christmas? Worshipping "another spirit"? I know I won't be! If you are, then have fun!
 
