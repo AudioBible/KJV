@@ -49,7 +49,6 @@ Since Adam and Eve bit the fruit of knowledge of good and evil, we have to use k
     PSALMS 47:7 For God is the King of all the earth: sing ye praises with understanding.
 
 
-
 Satan was given authority over the world! Do you think he will let you worship the real God if he has authority over the world?
 
 # audiobible find great ones exercise authority upon
