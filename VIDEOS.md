@@ -58,6 +58,11 @@ You can trust a regular person more than you can trust a corporation or a govern
 - [The Second Book of Enoch (Human Voice, Read-Along Version)](https://www.youtube.com/watch?v=60Bp0qJvvqA)
 
 
+## Technologies
+
+- [Apples New IPHONE X The Phoenix Rising](https://www.youtube.com/watch?v=zbGGiOJOSTA)
+
+
 ## Government
 
 - [THE SATANIC NWO CONSPIRACY IS REAL! GREAT EYE-OPENER MOVIE](https://www.youtube.com/watch?v=CSWHIEibU0Q)
