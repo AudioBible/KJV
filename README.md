@@ -41,30 +41,13 @@ How can God tell you the things of Heaven if you refuse to believe the things of
 
 # THE TRUTH OFFENDS PEOPLE! CAN YOU HANDLE THE TRUTH?
 
-Since Adam and Eve bit the fruit of knowledge, we have to use knowledge in order to praise God with understanding!
+Since Adam and Eve bit the fruit of knowledge of good and evil, we have to use knowledge in order to praise God with understanding! That means we have to understand both good and evil! Not only Good! We have to do this to see a bigger picture to know the real truth! Never stop "seeking truth" and always "look into it"!
 
 # audiobible find praises with understanding
 
 
     PSALMS 47:7 For God is the King of all the earth: sing ye praises with understanding.
 
-
-# audiobible find "is the way"
-
-
-    JOB 38:19 Where is the way where light dwelleth? and as for darkness, where is the place thereof,
-
-    PROVERBS 7:27 Her house is the way to hell, going down to the chambers of death.
-
-    PROVERBS 30:20 Such is the way of an adulterous woman; she eateth, and wipeth her mouth, and saith, I have done no wickedness.
-
-    ECCLESIASTES 11:5 As thou knowest not what is the way of the spirit, nor how the bones do grow in the womb of her that is with child: even so thou knowest not the works of God who maketh all.
-
-    ISAIAH 30:21 And thine ears shall hear a word behind thee, saying, This is the way, walk ye in it, when ye turn to the right hand, and when ye turn to the left.
-
-    MATTHEW 7:13 Enter ye in at the strait gate: for wide is the gate, and broad is the way, that leadeth to destruction, and many there be which go in thereat:
-
-    MATTHEW 7:14 Because strait is the gate, and narrow is the way, which leadeth unto life, and few there be that find it.
 
 
 Satan was given authority over the world! Do you think he will let you worship the real God if he has authority over the world?
@@ -81,6 +64,36 @@ The peace that is spoken of in this world is a lie! You can only have peace in t
 
 
     JOHN 16:33 These things I have spoken unto you, that in me ye might have peace. In the world ye shall have tribulation: but be of good cheer; I have overcome the world.
+
+
+# audiobible find "is the way" -A1
+
+
+    JOB 38:19 Where is the way where light dwelleth? and as for darkness, where is the place thereof,
+
+    JOB 38:20 That thou shouldest take it to the bound thereof, and that thou shouldest know the paths to the house thereof?
+
+    PROVERBS 7:27 Her house is the way to hell, going down to the chambers of death.
+
+    PROVERBS 8:1 Doth not wisdom cry? and understanding put forth her voice?
+
+    PROVERBS 30:20 Such is the way of an adulterous woman; she eateth, and wipeth her mouth, and saith, I have done no wickedness.
+
+    PROVERBS 30:21 For three things the earth is disquieted, and for four which it cannot bear:
+
+    ECCLESIASTES 11:5 As thou knowest not what is the way of the spirit, nor how the bones do grow in the womb of her that is with child: even so thou knowest not the works of God who maketh all.
+
+    ECCLESIASTES 11:6 In the morning sow thy seed, and in the evening withhold not thine hand: for thou knowest not whether shall prosper, either this or that, or whether they both shall be alike good.
+
+    ISAIAH 30:21 And thine ears shall hear a word behind thee, saying, This is the way, walk ye in it, when ye turn to the right hand, and when ye turn to the left.
+
+    ISAIAH 30:22 Ye shall defile also the covering of thy graven images of silver, and the ornament of thy molten images of gold: thou shalt cast them away as a menstruous cloth; thou shalt say unto it, Get thee hence.
+
+    MATTHEW 7:13 Enter ye in at the strait gate: for wide is the gate, and broad is the way, that leadeth to destruction, and many there be which go in thereat:
+
+    MATTHEW 7:14 Because strait is the gate, and narrow is the way, which leadeth unto life, and few there be that find it.
+
+    MATTHEW 7:15 Beware of false prophets, which come to you in sheep's clothing, but inwardly they are ravening wolves.
 
 
 Will you be celebrating the Anti-Christ this Christmas? Worshipping "another spirit"? I know I won't be! If you are, then have fun!
