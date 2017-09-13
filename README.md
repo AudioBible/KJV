@@ -41,6 +41,10 @@ How can God tell you the things of Heaven if you refuse to believe the things of
 
 # THE TRUTH WILL OFFEND PEOPLE! CAN YOU HANDLE THE TRUTH?
 
+Since Adam and Eve bit the fruit of knowledge, we have to use knowledge in order to praise God with understanding!
+
+**PSALMS 47:7:** For God is the King of all the earth: sing ye praises with understanding.
+
 Will you be celebrating the Anti-Christ this Christmas? Worshipping "another spirit"? I know I won't be! If you are, then have fun!
 
 # audiobible find conspiracy
@@ -618,8 +622,6 @@ Do what thou wilt? or do God's will? Which is it? Everyone has there own Truth? 
 **ISAIAH 40:22:** It is he that sitteth upon the circle of the earth, and the inhabitants thereof are as grasshoppers; that stretcheth out the heavens as a curtain, and spreadeth them out as a tent to dwell in:
 
 #### God is so kind that it is impossible to imagine His unbounded kindness.
-
-**PSALMS 47:7:** For God is the King of all the earth: sing ye praises with understanding.
 
 **PSALMS 147:5:** Great is our Lord, and of great power: his understanding is infinite.
 
