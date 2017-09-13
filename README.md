@@ -58,6 +58,13 @@ Satan was given authority over the world! Do you think he will let you worship t
 
     MATTHEW 7:14 Because strait is the gate, and narrow is the way, which leadeth unto life, and few there be that find it.
 
+The peace that is spoken of in this world is a lie! You can only have peace in the word of God and praising with understanding, true peace is in Heaven with the real Jesus Christ!
+
+# audiobible find These things I have spoken unto you
+
+
+    JOHN 16:33 These things I have spoken unto you, that in me ye might have peace. In the world ye shall have tribulation: but be of good cheer; I have overcome the world.
+
 
 Will you be celebrating the Anti-Christ this Christmas? Worshipping "another spirit"? I know I won't be! If you are, then have fun!
 
