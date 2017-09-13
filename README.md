@@ -55,7 +55,9 @@ Satan was given authority over the world! Do you think he will let you worship t
 
 [https://www.bibletools.org/index.cfm/fuseaction/Topical.show/RTD/cgg/ID/1138/Satans-Authority.htm](https://www.bibletools.org/index.cfm/fuseaction/Topical.show/RTD/cgg/ID/1138/Satans-Authority.htm)
 
-#### Flat Earth Matters If Truth Matters, Up is Up and Down is Down, no matter where you are in the world! Relativity is a lie! Gravity is a false religion!
+#### Flat Earth Matters If Truth Matters, Up is Up and Down is Down, no matter where you are in the world!
+
+#### Relativity is a lie! Gravity is a false religion!
 
 
     JN 14:6 Jesus saith unto him, I am the way, the truth, and the life: no man cometh unto the Father, but by me.
