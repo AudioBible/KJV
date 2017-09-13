@@ -49,14 +49,6 @@ Since Adam and Eve bit the fruit of knowledge, we have to use knowledge in order
     PSALMS 47:7 For God is the King of all the earth: sing ye praises with understanding.
 
 
-Satan was given authority over the world! Do you think he will let you worship the real God if he has authority in the world?
-
-# audiobible find great ones exercise authority upon
-
-
-    MARK 10:42 But Jesus called them to him, and saith unto them, Ye know that they which are accounted to rule over the Gentiles exercise lordship over them; and their great ones exercise authority upon them.
-
-
 # audiobible find "is the gate,"
 
 
@@ -71,6 +63,14 @@ The peace that is spoken of in this world is a lie! You can only have peace in t
 
 
     JOHN 16:33 These things I have spoken unto you, that in me ye might have peace. In the world ye shall have tribulation: but be of good cheer; I have overcome the world.
+
+
+Satan was given authority over the world! Do you think he will let you worship the real God if he has authority in the world?
+
+# audiobible find great ones exercise authority upon
+
+
+    MARK 10:42 But Jesus called them to him, and saith unto them, Ye know that they which are accounted to rule over the Gentiles exercise lordship over them; and their great ones exercise authority upon them.
 
 
 Will you be celebrating the Anti-Christ this Christmas? Worshipping "another spirit"? I know I won't be! If you are, then have fun!
