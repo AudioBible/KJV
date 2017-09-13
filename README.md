@@ -51,12 +51,19 @@ Since Adam and Eve bit the fruit of knowledge, we have to use knowledge in order
 
 Satan was given authority over the world! Do you think he will let you worship the real God if he has authority in the world?
 
+# audiobible find great ones exercise authority upon
+
+
+    MARK 10:42 But Jesus called them to him, and saith unto them, Ye know that they which are accounted to rule over the Gentiles exercise lordship over them; and their great ones exercise authority upon them.
+
+
 # audiobible find "is the gate,"
 
 
     MATTHEW 7:13 Enter ye in at the strait gate: for wide is the gate, and broad is the way, that leadeth to destruction, and many there be which go in thereat:
 
     MATTHEW 7:14 Because strait is the gate, and narrow is the way, which leadeth unto life, and few there be that find it.
+
 
 The peace that is spoken of in this world is a lie! You can only have peace in the word of God and praising with understanding, true peace is in Heaven with the real Jesus Christ!
 
