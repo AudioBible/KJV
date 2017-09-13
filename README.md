@@ -49,20 +49,22 @@ Since Adam and Eve bit the fruit of knowledge, we have to use knowledge in order
     PSALMS 47:7 For God is the King of all the earth: sing ye praises with understanding.
 
 
-# audiobible find "is the gate,"
+# audiobible find "is the way"
 
+
+    JOB 38:19 Where is the way where light dwelleth? and as for darkness, where is the place thereof,
+
+    PROVERBS 7:27 Her house is the way to hell, going down to the chambers of death.
+
+    PROVERBS 30:20 Such is the way of an adulterous woman; she eateth, and wipeth her mouth, and saith, I have done no wickedness.
+
+    ECCLESIASTES 11:5 As thou knowest not what is the way of the spirit, nor how the bones do grow in the womb of her that is with child: even so thou knowest not the works of God who maketh all.
+
+    ISAIAH 30:21 And thine ears shall hear a word behind thee, saying, This is the way, walk ye in it, when ye turn to the right hand, and when ye turn to the left.
 
     MATTHEW 7:13 Enter ye in at the strait gate: for wide is the gate, and broad is the way, that leadeth to destruction, and many there be which go in thereat:
 
     MATTHEW 7:14 Because strait is the gate, and narrow is the way, which leadeth unto life, and few there be that find it.
-
-
-The peace that is spoken of in this world is a lie! You can only have peace in the word of God and praising with understanding, true peace is in Heaven with the real Jesus Christ!
-
-# audiobible find These things I have spoken unto you
-
-
-    JOHN 16:33 These things I have spoken unto you, that in me ye might have peace. In the world ye shall have tribulation: but be of good cheer; I have overcome the world.
 
 
 Satan was given authority over the world! Do you think he will let you worship the real God if he has authority over the world?
@@ -71,6 +73,14 @@ Satan was given authority over the world! Do you think he will let you worship t
 
 
     MARK 10:42 But Jesus called them to him, and saith unto them, Ye know that they which are accounted to rule over the Gentiles exercise lordship over them; and their great ones exercise authority upon them.
+
+
+The peace that is spoken of in this world is a lie! You can only have peace in the word of God and praising with understanding, true peace is in Heaven with the real Jesus Christ!
+
+# audiobible find These things I have spoken unto you
+
+
+    JOHN 16:33 These things I have spoken unto you, that in me ye might have peace. In the world ye shall have tribulation: but be of good cheer; I have overcome the world.
 
 
 Will you be celebrating the Anti-Christ this Christmas? Worshipping "another spirit"? I know I won't be! If you are, then have fun!
