@@ -33,13 +33,15 @@ Globe earth is mass mind control, if they can control your mind about the real s
     JOHN 3:12 If I have told you earthly things, and ye believe not, how shall ye believe, if I tell you of heavenly things?
 
 
-How can God tell you the things of Heaven if you refuse to believe the things of this world? You cannot be following the real Jesus Christ if you believe in the Globe! You live in a fantasy world, wake up to the reality!
+How can God tell you the things of Heaven if you refuse to believe the things of this world? You cannot be following the real Jesus Christ if you believe in the Globe! You live in a fantasy world, wake up to the reality! Please do some research!
 
 # EARTH IS FLAT! EARTH IS NOT A GLOBE! JESUS CHRIST IS LORD!
 
 # 100% YOU'LL BE OFFENDED BY THIS IF YOU'RE WORLDLY!
 
 # THE TRUTH OFFENDS PEOPLE! CAN YOU HANDLE THE TRUTH?
+
+God created the tree of knowledge or good and evil, which is truth! Satan created a tree ignorance of hell and death, which is lies! Satan is the father of lies! It is important to seek the truth in knowing good and evil!
 
 Since Adam and Eve bit the fruit of knowledge of good and evil, we have to use knowledge in order to praise God with understanding! That means we have to understand both good and evil! Not only Good! We have to do this to see a bigger picture to know the real truth! Never stop "seeking truth" and always "look into it"!
 
