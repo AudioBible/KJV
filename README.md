@@ -39,9 +39,9 @@ How can God tell you the things of Heaven if you refuse to believe the things of
 
 # 100% YOU'LL BE OFFENDED BY THIS IF YOU'RE WORLDLY!
 
-# THE TRUTH WILL OFFEND PEOPLE! CAN YOU HANDLE THE TRUTH?
+# THE TRUTH OFFENDS PEOPLE! CAN YOU HANDLE THE TRUTH?
 
-Since Adam and Eve bit the fruit of knowledge, we have to use knowledge in order to praise God with understanding!
+Since Adam and Eve bit the fruit of knowledge, we have to use knowledge in order to praise God with understanding! Satan was given authority over the world! Do you think he will let you worship the real God if he has authority in the world?
 
 **PSALMS 47:7:** For God is the King of all the earth: sing ye praises with understanding.
 
