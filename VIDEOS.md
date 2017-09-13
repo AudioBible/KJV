@@ -61,7 +61,7 @@ You can trust a regular person more than you can trust a corporation or a govern
 ## Technologies
 
 - [Apples New IPHONE X The Phoenix Rising](https://www.youtube.com/watch?v=zbGGiOJOSTA)
-
+- [THE NEW IPHONE X WILL BE LEAVING ITS "MARK" IN THE TECHNOLOGY SPACE.](https://www.youtube.com/watch?v=GiAYWejdIuw)
 
 ## Government
 
