@@ -47,6 +47,8 @@ Since Adam and Eve bit the fruit of knowledge, we have to use knowledge in order
 
 Will you be celebrating the Anti-Christ this Christmas? Worshipping "another spirit"? I know I won't be! If you are, then have fun!
 
+What television/media does is envoke emotions and portray views about the world, subliminally iterating on how we could behave and percieve what is around us!
+
 # audiobible find conspiracy
 
 
