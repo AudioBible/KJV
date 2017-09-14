@@ -20,6 +20,8 @@ Globe earth is mass mind control, if they can control your mind about the real s
 
 [Edward Hendrie with A. True Ott PhD, June 3, 2016](https://www.youtube.com/watch?v=VZb2imQYMuk&list=PLYI8318YYdkCsZ7dsYV01n6TZhXA6Wf9i&index=12) [12th video]
 
+[![The-Greatest-Lie-on-Earth-by-Edward-Hendrie.png](images/The-Greatest-Lie-on-Earth-by-Edward-Hendrie.png)](https://www.amazon.com/gp/product/1943056013)
+
 [The Greatest Lie on Earth: Proof That Our World Is Not a Moving Globe Paperback – January 17, 2016 by Edward Hendrie (Author)](https://www.amazon.com/gp/product/1943056013)
 
 # audiobible find let god be true
@@ -250,6 +252,8 @@ What television and media does is envoke emotions and portray views about the wo
 
     ACTS 23:13 And they were more than forty which had made this conspiracy.
 
+
+[Ask Google anything but curvature earth is flat 100%](https://www.youtube.com/watch?v=VQ3xNll9FeQ)
 
 SPACE TRAVEL NASA TALKS ABOUT IS THE SPACE INSIDE THE DOME & YOUR BODY, HENCE THE RFID CHIP NASA CREATED! The space NASA talks about is the space inside the dome, technically were all in outer space as we speak! Earth is [Motionless](https://www.youtube.com/watch?v=kfE4vHQGB0w&list=PLYI8318YYdkCsZ7dsYV01n6TZhXA6Wf9i&&index=11)! Earth is Flat!
 
