@@ -26,7 +26,7 @@ Globe earth is mass mind control, if they can control your mind about the real s
 
 # What is the curvature from New York to California?
 
-[Ask Google anything but curvature earth is flat 100%](https://www.youtube.com/watch?v=VQ3xNll9FeQ)
+# [Ask Google anything but curvature earth is flat 100%](https://www.youtube.com/watch?v=VQ3xNll9FeQ)
 
 # audiobible find let god be true
 
