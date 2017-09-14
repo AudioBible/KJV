@@ -9,7 +9,6 @@ Last Modified: Sat Sep  9 17:07:27 UTC 2017
 LINKS
 =====
 
-- [https://codepen.io/iainmnorman/full/oxvdqW/](https://codepen.io/iainmnorman/full/oxvdqW/)
 - [http://blog.hasslberger.com/](http://blog.hasslberger.com/)
 - [https://flatearthscienceandbible.com/](https://flatearthscienceandbible.com/)
 - [http://bewareofspiritualdeception.com/](http://bewareofspiritualdeception.com/)
@@ -38,3 +37,9 @@ LINKS
 - [http://ourflatearth.com/sky_dome.html](http://ourflatearth.com/sky_dome.html)
 - [https://vk.com/pravdaizbezdni](https://vk.com/pravdaizbezdni)
 - [http://www.theprinciplemovie.com/](http://www.theprinciplemovie.com/)
+
+
+### Curve Calculators
+
+- [https://dizzib.github.io/earth/curve-calc/](https://dizzib.github.io/earth/curve-calc/)
+- [https://codepen.io/iainmnorman/full/oxvdqW/](https://codepen.io/iainmnorman/full/oxvdqW/)
