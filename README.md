@@ -30,6 +30,8 @@ Globe earth is mass mind control, if they can control your mind about the real s
 
 ## [Students Find The Curvature of Earth in a Go Pro Fish Eye Lens.](https://www.youtube.com/watch?v=nwlHduNoPO8)
 
+## [Stephen Hawking Fakes Experiments in Attempt To Prove The Globe](https://www.youtube.com/watch?v=C1SQZVEg6Hw)
+
 # audiobible find let god be true
 
 
