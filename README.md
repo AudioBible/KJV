@@ -32,6 +32,8 @@ Globe earth is mass mind control, if they can control your mind about the real s
 
 ## [Stephen Hawking Fakes Experiments in Attempt To Prove The Globe](https://www.youtube.com/watch?v=C1SQZVEg6Hw)
 
+## [The Nail In The Coffin - RIP GLOBE EARTH - Proof Positive!](https://www.youtube.com/watch?v=k1FRBwnxazk)
+
 # audiobible find let god be true
 
 
