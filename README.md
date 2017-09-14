@@ -34,6 +34,8 @@ Globe earth is mass mind control, if they can control your mind about the real s
 
 ## [The Nail In The Coffin - RIP GLOBE EARTH - Proof Positive!](https://www.youtube.com/watch?v=k1FRBwnxazk)
 
+### [Flat Earth Experiment - 4 Mile Laser Test RESULTS Show PROOF of No Curvature](https://www.youtube.com/watch?v=9uersWDp-3c)
+
 # audiobible find let god be true
 
 
