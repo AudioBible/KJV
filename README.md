@@ -28,6 +28,8 @@ Globe earth is mass mind control, if they can control your mind about the real s
 
 # [Ask Google anything but curvature earth is flat 100%](https://www.youtube.com/watch?v=VQ3xNll9FeQ)
 
+[Students Find The Curvature of Earth in a Go Pro Fish Eye Lens.](https://www.youtube.com/watch?v=nwlHduNoPO8)
+
 # audiobible find let god be true
 
 
