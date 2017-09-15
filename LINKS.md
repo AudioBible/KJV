@@ -14,14 +14,13 @@ LINKS
 - [http://bewareofspiritualdeception.com/](http://bewareofspiritualdeception.com/)
 - [http://www.false-teachers.com/](http://www.false-teachers.com/)
 - [http://www.flatearthconspiracy.com/](http://www.flatearthconspiracy.com/)
-- [https://neave.com/planetarium/](https://neave.com/planetarium/)
-- [http://sermonaudio.com](http://sermonaudio.com)
+
 - [https://celebratetruth.org](https://celebratetruth.org)
 - [https://christianflatearthministry.org/](https://christianflatearthministry.org/)
-- [http://theprinciplemovie.com](http://theprinciplemovie.com)
-- [http://www.scriptural-truth.com/mp3free.html](http://www.scriptural-truth.com/mp3free.html)
-- [https://www.kingjamesbibleonline.org/1611-Bible](https://www.kingjamesbibleonline.org/1611-Bible)
-- [http://StopLookThink.com](http://stoplookthink.com)
+
+
+
+
 - [http://answering-christianity.com/earth_flat.htm](http://answering-christianity.com/earth_flat.htm)
 - [http://fundamental.org/fundamental/churches](http://fundamental.org/fundamental/churches)
 - [http://ptpishere.com](http://ptpishere.com)
@@ -36,10 +35,37 @@ LINKS
 - [http://www.blbclassic.org/](http://www.blbclassic.org/)
 - [http://ourflatearth.com/sky_dome.html](http://ourflatearth.com/sky_dome.html)
 - [https://vk.com/pravdaizbezdni](https://vk.com/pravdaizbezdni)
-- [http://www.theprinciplemovie.com/](http://www.theprinciplemovie.com/)
 
+
+### Astronomy
+
+- [https://neave.com/planetarium/](https://neave.com/planetarium/)
 
 ### Curve Calculators
 
 - [https://dizzib.github.io/earth/curve-calc/](https://dizzib.github.io/earth/curve-calc/)
 - [https://codepen.io/iainmnorman/full/oxvdqW/](https://codepen.io/iainmnorman/full/oxvdqW/)
+
+### Bible
+
+- [https://www.kingjamesbibleonline.org/1611-Bible](https://www.kingjamesbibleonline.org/1611-Bible)
+- [http://www.divinerevelations.info/bible/](http://www.divinerevelations.info/bible/)
+
+
+### Sermons
+
+- [http://sermonaudio.com](http://sermonaudio.com)
+
+### Movies
+
+- [http://theprinciplemovie.com](http://theprinciplemovie.com)
+- [http://www.theprinciplemovie.com/](http://www.theprinciplemovie.com/)
+
+### FREE MP3's
+
+- [http://www.scriptural-truth.com/mp3free.html](http://www.scriptural-truth.com/mp3free.html)
+
+### Websites
+
+- [http://StopLookThink.com](http://stoplookthink.com)
+

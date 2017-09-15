@@ -504,6 +504,20 @@ Do you believe in Holy Shit or Holy Truth? You can't be constantly stuck in the 
 
 [Baptists And Jesuits Working Together In Thailand](https://www.youtube.com/watch?v=_8K4VLZyl1w)
 
+[Devil Possession And The Eyes Part 1](https://www.youtube.com/watch?v=zD_2mWeOEAo)
+
+[Devil Possession And The Eyes Part 2](https://www.youtube.com/watch?v=s3KB7P_wQLY)
+
+[This Is What Satan Would Preach In A "Church"!](https://www.youtube.com/watch?v=EpZ7chF4TT0)
+
+[Seducing Female Pastors](https://www.youtube.com/watch?v=EJPTkAl2bIE)
+
+[The Acts Of The Apostates](https://www.youtube.com/watch?v=ooPesu9Hvwc)
+
+[Discerning The Times And Seasons](https://www.youtube.com/watch?v=akBYY8x_eHY)
+
+[The Doctor tried to Microchip me 666 (True Story)](https://www.youtube.com/watch?v=GMmKHwxElqU)
+
 [Charismatics and their false Christ](https://www.youtube.com/watch?v=bLQLlWH4KrU)
 
 [Cognitive Dissonance](https://www.youtube.com/watch?v=U0MVj4UUQJ4)
