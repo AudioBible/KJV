@@ -1036,6 +1036,8 @@ http://audiobible.life плоская земля! Плоска Земя! Płaski
 
 [Prayer Language, Speaking in Tongues, how satan stops Christians from receiving the gift of Tongues](https://www.youtube.com/watch?v=Su3UPfeXleM)
 
+[Speaking in Tounges can Save your Life! Pst Chris Oyakhilome](https://www.youtube.com/watch?v=ZERBsBbOUwE)
+
 1. PRAY IN TONGUES UNTIL YOU GET HOT AND POSSIBLY EVEN DRIPPING WITH SWEAT!
 
 
