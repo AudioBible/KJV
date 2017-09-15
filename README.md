@@ -522,6 +522,8 @@ Do you believe in Holy Shit or Holy Truth? You can't be constantly stuck in the 
 
 [I was Forced to Leave my Church](https://www.youtube.com/watch?v=TCaMSo4bcxA)
 
+[A virus that kills your desire for God: Inside the Microchip - 666 RFID](https://www.youtube.com/watch?v=P6Sqr6mnaGQ)
+
 [Cognitive Dissonance](https://www.youtube.com/watch?v=U0MVj4UUQJ4)
 
 [Let God Fight Your Battles For You](https://www.youtube.com/watch?v=bVyjG8hnx3U)
