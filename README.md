@@ -524,6 +524,8 @@ Do you believe in Holy Shit or Holy Truth? You can't be constantly stuck in the 
 
 [A virus that kills your desire for God: Inside the Microchip - 666 RFID](https://www.youtube.com/watch?v=P6Sqr6mnaGQ)
 
+[Soldier tells truth. Dont let FEMA GET YOU!](https://www.youtube.com/watch?v=Y1EDKAW6DKw)
+
 [Cognitive Dissonance](https://www.youtube.com/watch?v=U0MVj4UUQJ4)
 
 [Let God Fight Your Battles For You](https://www.youtube.com/watch?v=bVyjG8hnx3U)
