@@ -520,6 +520,8 @@ Do you believe in Holy Shit or Holy Truth? You can't be constantly stuck in the 
 
 [Charismatics and their false Christ](https://www.youtube.com/watch?v=bLQLlWH4KrU)
 
+[I was Forced to Leave my Church](https://www.youtube.com/watch?v=TCaMSo4bcxA)
+
 [Cognitive Dissonance](https://www.youtube.com/watch?v=U0MVj4UUQJ4)
 
 [Let God Fight Your Battles For You](https://www.youtube.com/watch?v=bVyjG8hnx3U)
