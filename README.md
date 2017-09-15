@@ -526,10 +526,6 @@ Do you believe in Holy Shit or Holy Truth? You can't be constantly stuck in the 
 
 [Soldier tells truth. Dont let FEMA GET YOU!](https://www.youtube.com/watch?v=Y1EDKAW6DKw)
 
-[How satan stops our prayers - Combat in the Heavenly Realms](https://www.youtube.com/watch?v=cS2g3t7tKN4)
-
-[Prayer Language, Speaking in Tongues, how satan stops Christians from receiving the gift of Tongues](https://www.youtube.com/watch?v=Su3UPfeXleM)
-
 [Cognitive Dissonance](https://www.youtube.com/watch?v=U0MVj4UUQJ4)
 
 [Let God Fight Your Battles For You](https://www.youtube.com/watch?v=bVyjG8hnx3U)
@@ -1035,6 +1031,10 @@ http://audiobible.life плоская земля! Плоска Земя! Płaski
 
 
 ### JESUS CHRIST TOLD US HOW TO PRAY! IF I MAY I WOULD LIKE TO ELABORATE ON WHAT WORKS FOR ME!
+
+[How satan stops our prayers - Combat in the Heavenly Realms](https://www.youtube.com/watch?v=cS2g3t7tKN4)
+
+[Prayer Language, Speaking in Tongues, how satan stops Christians from receiving the gift of Tongues](https://www.youtube.com/watch?v=Su3UPfeXleM)
 
 1. PRAY IN TONGUES UNTIL YOU GET HOT AND POSSIBLY EVEN DRIPPING WITH SWEAT!
 
