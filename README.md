@@ -1038,6 +1038,8 @@ http://audiobible.life плоская земля! Плоска Земя! Płaski
 
 [Speaking in Tounges can Save your Life! Pst Chris Oyakhilome](https://www.youtube.com/watch?v=ZERBsBbOUwE)
 
+[You MUST Pray in TONGUES If You Want To Be Successful In Your Life Pastor Chris Oyakhilome](https://www.youtube.com/watch?v=eG-rzwwZOhY)
+
 1. PRAY IN TONGUES UNTIL YOU GET HOT AND POSSIBLY EVEN DRIPPING WITH SWEAT!
 
 
