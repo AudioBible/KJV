@@ -41,6 +41,7 @@ Globe earth is mass mind control, if they can control your mind about the real s
 
     ROMANS 3:4 God forbid: yea, let God be true, but every man a liar; as it is written, That thou mightest be justified in thy sayings, and mightest overcome when thou art judged.
 
+[Your Destiny Is In Your Hands pastor Chris Oyakhilome](https://www.youtube.com/watch?v=vcp1RW9vxG4)
 
 # audiobible find tell you of heavenly things
 
