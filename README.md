@@ -20,11 +20,11 @@ Globe earth is mass mind control, if they can control your mind about the real s
 
 [Edward Hendrie with A. True Ott PhD, June 3, 2016](https://www.youtube.com/watch?v=VZb2imQYMuk&list=PLYI8318YYdkCsZ7dsYV01n6TZhXA6Wf9i&index=12) [12th video]
 
+# Amazon﻿ book "The Greatest Lie on Earth" by Edward Hendrie
+
 [![The-Greatest-Lie-on-Earth-by-Edward-Hendrie.png](images/The-Greatest-Lie-on-Earth-by-Edward-Hendrie.png)](https://www.amazon.com/gp/product/1943056013)
 
 [The Greatest Lie on Earth: Proof That Our World Is Not a Moving Globe Paperback – January 17, 2016 by Edward Hendrie (Author)](https://www.amazon.com/gp/product/1943056013)
-
-[The God That Answers by Fire (Pastor Charles Lawson)](https://www.youtube.com/watch?v=MySo_engtFo)
 
 # What is the curvature from New York to California?
 
@@ -1044,6 +1044,8 @@ http://audiobible.life плоская земля! Плоска Земя! Płaski
 [You MUST Pray in TONGUES If You Want To Be Successful In Your Life Pastor Chris Oyakhilome](https://www.youtube.com/watch?v=eG-rzwwZOhY)
 
 [Be Wise In Your Speech pastor Chris Oyakhilome](https://www.youtube.com/watch?v=MAq9KtUW--M)
+
+[The God That Answers by Fire (Pastor Charles Lawson)](https://www.youtube.com/watch?v=MySo_engtFo)
 
 1. PRAY IN TONGUES UNTIL YOU GET HOT AND POSSIBLY EVEN DRIPPING WITH SWEAT!
 
