@@ -24,6 +24,8 @@ Globe earth is mass mind control, if they can control your mind about the real s
 
 [The Greatest Lie on Earth: Proof That Our World Is Not a Moving Globe Paperback – January 17, 2016 by Edward Hendrie (Author)](https://www.amazon.com/gp/product/1943056013)
 
+[The God That Answers by Fire (Pastor Charles Lawson)](https://www.youtube.com/watch?v=MySo_engtFo)
+
 # What is the curvature from New York to California?
 
 # [Ask Google anything but curvature earth is flat 100%](https://www.youtube.com/watch?v=VQ3xNll9FeQ)
