@@ -1114,6 +1114,8 @@ I heard about Flat Earth in mid/late 2016 and only recently found out the real t
 
 # [Are You Dedicated To God?](https://www.youtube.com/watch?v=0d1z8dmMo00)
 
+# [Common Scripture Misconceptions](https://www.youtube.com/watch?v=Hb_SWre4u44)
+
 # יהוה
 
 ## JESUS CHRIST IS LORD! I LOVE YOU ALL! HOWEVER, I LOVE GODHEAD MORE!
