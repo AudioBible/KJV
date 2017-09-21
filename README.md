@@ -272,6 +272,8 @@ What television and media does is envoke emotions and portray views about the wo
 
 SPACE TRAVEL NASA TALKS ABOUT IS THE SPACE INSIDE THE DOME & YOUR BODY, HENCE THE RFID CHIP NASA CREATED! The space NASA talks about is the space inside the dome, technically were all in outer space as we speak! Earth is [Motionless](https://www.youtube.com/watch?v=kfE4vHQGB0w&list=PLYI8318YYdkCsZ7dsYV01n6TZhXA6Wf9i&&index=11)! Earth is Flat!
 
+[How to Refuse the RFID Chip Like a BOSS...](https://www.youtube.com/watch?v=V8w7VG_powU)
+
 It's all connected to the biggest lie in the world, about the shape of the world, once you understand you will see how to tell through their lies of deception. Check out the collection of youtube videos and do some research on these topics. Arm yourself with knowledge! Don't be a clown!
 
 I didn’t want to believe all this stuff before either! I was a big clown! I always did lots of research before but nothing like this! I did lots of [research](https://www.youtube.com/results?search_query=flat+earth+live), then found the truth music from people like [Payday Monsanto](https://www.youtube.com/watch?v=DiSvqH3Q5Dk), [K-Rino](https://www.youtube.com/watch?v=R_DtZFL_ar0) and [ODD TV](https://www.youtube.com/watch?v=TlTR7QQZQ8I), did more [research](https://www.youtube.com/watch?v=pNe1wWeaHOU&list=PLYI8318YYdkCsZ7dsYV01n6TZhXA6Wf9i&index=1) and that was it my eyes opened to the depth of the deception! The rabbit hole goes deep, real deep!
