@@ -20,6 +20,8 @@ Globe earth is mass mind control, if they can control your mind about the real s
 
 [Edward Hendrie with A. True Ott PhD, June 3, 2016](https://www.youtube.com/watch?v=VZb2imQYMuk&list=PLYI8318YYdkCsZ7dsYV01n6TZhXA6Wf9i&index=12) [12th video]
 
+[https://www.amazon.com/11-Enemies-Foreign-Domestic-Edward-Hendrie/dp/098326273X/](https://www.amazon.com/11-Enemies-Foreign-Domestic-Edward-Hendrie/dp/098326273X/)
+
 # Amazon﻿ book "The Greatest Lie on Earth" by Edward Hendrie
 
 [![The-Greatest-Lie-on-Earth-by-Edward-Hendrie.png](images/The-Greatest-Lie-on-Earth-by-Edward-Hendrie.png)](https://www.amazon.com/gp/product/1943056013)
