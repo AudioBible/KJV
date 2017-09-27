@@ -38,6 +38,8 @@ Globe earth is mass mind control, if they can control your mind about the real s
 
 [The End Time Prophecy That No One is Talking About: Unfolding Now](https://www.youtube.com/watch?v=WDk-1u9WcXI)
 
+[Man Sees Unthinkable Horrors in Hell – Christians Being Tortured! (Mario Martinez)](https://www.youtube.com/watch?v=2vywj182oFw)
+
 # [What else can “Fifteen cubits from above” in Gen 7:20 mean?](https://hermeneutics.stackexchange.com/questions/1416/what-else-can-fifteen-cubits-from-above-in-gen-720-mean)
 
 # [Does the Bible say the Earth is flat?](https://hermeneutics.stackexchange.com/questions/8142/does-the-bible-say-the-earth-is-flat)
