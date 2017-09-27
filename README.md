@@ -423,7 +423,7 @@ Satan changes meanings of words so he can give people room for sin, as it was wi
 
 What if they start to say that the word God is bad? Will you stop thinking and stop talking about God because they say it's bad?
 
-Do you believe in Holy Shit or Holy Truth? You can't be constantly stuck in the "Good" you have to look at the "Bad", so to see the bigger picture! We live in a duality therefore it's best to look at both sides!
+Do you believe in Holy Shit or Holy Truth? You can't be constantly stuck in the "Good" you have to look at the "Bad", so to see the bigger picture! We live in a duality therefore it's best to look at both sides! We should control our tongues however!
 
 [On Cussing](https://www.youtube.com/watch?v=fKY5vRFu5j0)
 
