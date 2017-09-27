@@ -11,6 +11,7 @@ BOOKS
 
 [https://github.com/AudioBible/AudioBible/tree/master/books](https://github.com/AudioBible/AudioBible/tree/master/books)
 
+- [The Suppressed Truth ABOUT THE Assassination of ABRAHAM LINCOLN](https://www.forgottenbooks.com/en/readbook/TheSuppressedTruthAbouttheAssassinationofAbrahamLincoln_10197125#0)
 - [Paganism Surviving In Christianity](https://www.forgottenbooks.com/en/readbook/PaganismSurvivinginChristianity_10066362)
 - [How We Got Our Bible](https://www.forgottenbooks.com/en/readbook/HowWeGotOurBible_10038867)
 - [The Negro In Our History](https://www.forgottenbooks.com/en/readbook/TheNegroinOurHistory_10101622)
