@@ -32,6 +32,8 @@ Globe earth is mass mind control, if they can control your mind about the real s
 
 [Top Vatican Jesuit Astronomer; Earth is Flat, Gravity is Obsolete.](https://www.youtube.com/watch?v=hv0Z3ugpfh4)
 
+[The Jesuit Conspiracy - Flat Earth](https://www.youtube.com/watch?v=6lSgsOU9OiI)
+
 [Stay out of Hell Urgent Message!!!! Escape through Jesus](https://www.youtube.com/watch?v=p70oyjbKftQ)
 
 [Hell is worse than we thought. Hear about the horrors that the unsaved will endure.](https://www.youtube.com/watch?v=0WbAuuVBdY0)
@@ -55,6 +57,8 @@ Globe earth is mass mind control, if they can control your mind about the real s
 ## [The Nail In The Coffin - RIP GLOBE EARTH - Proof Positive!](https://www.youtube.com/watch?v=k1FRBwnxazk)
 
 ### [Flat Earth Experiment - 4 Mile Laser Test RESULTS Show PROOF of No Curvature](https://www.youtube.com/watch?v=9uersWDp-3c)
+
+To know more about what it talks about in Genesis one must read 3 other books, the book of Enoch, the book of Jubilees and the book of Jasher. You can find them all in one place in eth CEPHER(divine word) http://cepher.net
 
 # audiobible find let god be true
 
