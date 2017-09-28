@@ -11,18 +11,14 @@ Last Modified: Sat Sep  9 17:07:27 UTC 2017
 LINKS
 =====
 
+- [http://johnnycirucci.com/](http://johnnycirucci.com/)
 - [http://blog.hasslberger.com/](http://blog.hasslberger.com/)
 - [https://flatearthscienceandbible.com/](https://flatearthscienceandbible.com/)
 - [http://bewareofspiritualdeception.com/](http://bewareofspiritualdeception.com/)
 - [http://www.false-teachers.com/](http://www.false-teachers.com/)
 - [http://www.flatearthconspiracy.com/](http://www.flatearthconspiracy.com/)
-
 - [https://celebratetruth.org](https://celebratetruth.org)
 - [https://christianflatearthministry.org/](https://christianflatearthministry.org/)
-
-
-
-
 - [http://answering-christianity.com/earth_flat.htm](http://answering-christianity.com/earth_flat.htm)
 - [http://fundamental.org/fundamental/churches](http://fundamental.org/fundamental/churches)
 - [http://ptpishere.com](http://ptpishere.com)
