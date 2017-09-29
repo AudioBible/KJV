@@ -34,6 +34,8 @@ Globe earth is mass mind control, if they can control your mind about the real s
 
 [The Jesuit Conspiracy - Flat Earth](https://www.youtube.com/watch?v=6lSgsOU9OiI)
 
+[Jesuit Hollywood Terrorism - Flat Earth Research - Walter Veith](https://www.youtube.com/watch?v=Z9kvdd9hs9I)
+
 [Stay out of Hell Urgent Message!!!! Escape through Jesus](https://www.youtube.com/watch?v=p70oyjbKftQ)
 
 [Hell is worse than we thought. Hear about the horrors that the unsaved will endure.](https://www.youtube.com/watch?v=0WbAuuVBdY0)
