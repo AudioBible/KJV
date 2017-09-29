@@ -42,6 +42,8 @@ Globe earth is mass mind control, if they can control your mind about the real s
 
 [The Connections Between The Vatican, The Nazis, 20th Century FOX & The NIV Jesuit Bible](https://www.youtube.com/watch?v=q2Q0s7W0R0w)
 
+[Jesuit World Order Games; Rope-a-Dope-Pope and "The Donald", A Recap](https://www.youtube.com/watch?v=NMK43WnXw-g)
+
 [Stay out of Hell Urgent Message!!!! Escape through Jesus](https://www.youtube.com/watch?v=p70oyjbKftQ)
 
 [Hell is worse than we thought. Hear about the horrors that the unsaved will endure.](https://www.youtube.com/watch?v=0WbAuuVBdY0)
