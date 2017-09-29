@@ -40,6 +40,8 @@ Globe earth is mass mind control, if they can control your mind about the real s
 
 [The Epitome of Evil: Did the Vatican/Jesuits Create Hitler and the Nazis?](https://www.youtube.com/watch?v=M_MZ0s6td4U)
 
+[The Connections Between The Vatican, The Nazis, 20th Century FOX & The NIV Jesuit Bible](https://www.youtube.com/watch?v=q2Q0s7W0R0w)
+
 [Stay out of Hell Urgent Message!!!! Escape through Jesus](https://www.youtube.com/watch?v=p70oyjbKftQ)
 
 [Hell is worse than we thought. Hear about the horrors that the unsaved will endure.](https://www.youtube.com/watch?v=0WbAuuVBdY0)
