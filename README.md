@@ -28,6 +28,8 @@ Globe earth is mass mind control, if they can control your mind about the real s
 
 [The Greatest Lie on Earth: Proof That Our World Is Not a Moving Globe Paperback – January 17, 2016 by Edward Hendrie (Author)](https://www.amazon.com/gp/product/1943056013)
 
+[CERN EMPLOYEE SPILLS THE TRUTH](https://www.youtube.com/watch?v=Z2QCGBpNvcI)
+
 [The Bible WARNS YOU of the Great Deception [FLAT EARTH EXPOSED]](https://www.youtube.com/watch?v=Q-Zno6docE4)
 
 [Top Vatican Jesuit Astronomer; Earth is Flat, Gravity is Obsolete.](https://www.youtube.com/watch?v=hv0Z3ugpfh4)
