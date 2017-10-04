@@ -34,6 +34,8 @@ Globe earth is mass mind control, if they can control your mind about the real s
 
 [Air Traffic Controller meets Flight Instructor on a Flat Earth - SW43 - Mark Sargent ✅](https://www.youtube.com/watch?v=-jML1pH0CX0)
 
+[Commercial Airline Captain: The plane gyros are rigged - SW58 Flat Earth - Mark Sargent ✅](https://www.youtube.com/watch?v=HWO_1hUEWgY)
+
 [The Bible WARNS YOU of the Great Deception [FLAT EARTH EXPOSED]](https://www.youtube.com/watch?v=Q-Zno6docE4)
 
 [Top Vatican Jesuit Astronomer; Earth is Flat, Gravity is Obsolete.](https://www.youtube.com/watch?v=hv0Z3ugpfh4)
