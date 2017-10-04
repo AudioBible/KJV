@@ -11,7 +11,7 @@ Last Modified: Sat Sep  9 17:07:27 UTC 2017
 LINKS
 =====
 
-- [http://www.divinerevelations.info/mary_k_baxter_a_divine_revelation_of_hell.htm](http://www.divinerevelations.info/mary_k_baxter_a_divine_revelation_of_hell.htm)
+- [http://www.divinerevelations.info](http://www.divinerevelations.info)
 - [http://johnnycirucci.com/](http://johnnycirucci.com/)
 - [http://blog.hasslberger.com/](http://blog.hasslberger.com/)
 - [https://flatearthscienceandbible.com/](https://flatearthscienceandbible.com/)

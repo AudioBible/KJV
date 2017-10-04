@@ -80,6 +80,8 @@ Globe earth is mass mind control, if they can control your mind about the real s
 
 To know more about what it talks about in Genesis one must read 3 other books, the book of Enoch, the book of Jubilees and the book of Jasher. You can find them all in one place in eth CEPHER(divine word) http://cepher.net
 
+# [http://www.divinerevelations.info/](http://www.divinerevelations.info/)
+
 # audiobible find let god be true
 
 
