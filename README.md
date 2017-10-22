@@ -28,6 +28,22 @@ Globe earth is mass mind control, if they can control your mind about the real s
 
 [The Greatest Lie on Earth: Proof That Our World Is Not a Moving Globe Paperback – January 17, 2016 by Edward Hendrie (Author)](https://www.amazon.com/gp/product/1943056013)
 
+[Catholic Confidential - Deplorable Jesuit Secrets Revealed!](https://www.youtube.com/watch?v=ypRb8Z3dMRs)
+
+[Flat Earth: Jesuits & the Global Conspiracy!](https://www.youtube.com/watch?v=1WHIr-IFqAo)
+
+[Flat Earth: Bible Truth in an Unstable World](https://www.youtube.com/watch?v=v5onXxxITqo)
+
+[Beware! The 7 Trumpets are About to Blast!](https://www.youtube.com/watch?v=K-Vg59jcmYM)
+
+[The Seals, the Trumpets, the Investigative Judgment & You!](https://www.youtube.com/watch?v=TbIFH-zybLE)
+
+[Daniel 12 Reveals When the Second Coming Will Occur!](https://www.youtube.com/watch?v=P-4tQaCwPeU)
+
+[Seal Of YAH: Promise of Protection!](https://www.youtube.com/watch?v=LE739WWcOeI)
+
+[The Final Fraud: Satan Appearing As Yahushua!](https://www.youtube.com/watch?v=YOjXVXN2Zi4)
+
 [CERN EMPLOYEE SPILLS THE TRUTH](https://www.youtube.com/watch?v=Z2QCGBpNvcI)
 
 [Veteran 737 Pilot grounded for Flat Earth comments - interview by Mark Sargent ✅](https://www.youtube.com/watch?v=Bj-k0dJ9ndU)
