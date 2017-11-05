@@ -8,6 +8,8 @@ Last Modified: Sat Sep  9 17:07:27 UTC 2017
 
 [![flat-earth-truth](images/flat-earth-truth.jpg)](https://www.youtube.com/watch?v=pNe1wWeaHOU&list=PLYI8318YYdkCsZ7dsYV01n6TZhXA6Wf9i&index=1)
 
+[Why They REMOVED The Book Of Enoch!!](https://www.youtube.com/watch?v=xUQaKOWPZEE)
+
 These people are christians, physicists, doctors and lawyers, if you need them to have a PHD to convince you to hear them out! It's not someone working at McDonald's or at the city recycling plant talking about this! Not that you shouldn't hear them out too!
 
 Globe earth is mass mind control, if they can control your mind about the real shape of the earth even though your senses tell you different, then every other deception is child's play! 9/11, Kennedy assassination, Lincoln assassination is all child's play!
