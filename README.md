@@ -32,6 +32,8 @@ Globe earth is mass mind control, if they can control your mind about the real s
 
 [The Greatest Lie on Earth: Proof That Our World Is Not a Moving Globe Paperback – January 17, 2016 by Edward Hendrie (Author)](https://www.amazon.com/gp/product/1943056013)
 
+[Dean Odle Flat Earth International Conference 2017](https://www.youtube.com/watch?v=HuFAEtS-eKY)
+
 [Catholic Confidential - Deplorable Jesuit Secrets Revealed!](https://www.youtube.com/watch?v=ypRb8Z3dMRs)
 
 [Flat Earth: Jesuits & the Global Conspiracy!](https://www.youtube.com/watch?v=1WHIr-IFqAo)
