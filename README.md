@@ -12,6 +12,10 @@ Last Modified: Sat Sep  9 17:07:27 UTC 2017
 
 [Cloning Centers EXPOSED! Cloning Is REAL! Celebrities Spill The Beans!!!](https://www.youtube.com/watch?v=kUJspQBHCRI)
 
+[Warning From Man Who Designed RFID Microchip](https://www.youtube.com/watch?v=nuv6IyQDjME)
+
+[RFID - Mark Of The Beast - NTAG216 - 666 Decoded](https://www.youtube.com/watch?v=IlYKFxWqE3A)
+
 These people are christians, physicists, doctors and lawyers, if you need them to have a PHD to convince you to hear them out! It's not someone working at McDonald's or at the city recycling plant talking about this! Not that you shouldn't hear them out too!
 
 Globe earth is mass mind control, if they can control your mind about the real shape of the earth even though your senses tell you different, then every other deception is child's play! 9/11, Kennedy assassination, Lincoln assassination is all child's play!
@@ -20,9 +24,13 @@ Globe earth is mass mind control, if they can control your mind about the real s
 
 [Flat Earth? Globe? WHAT DOES THE BIBLE SAY?](https://www.youtube.com/watch?v=LNhpNUJh5GY&list=PLYI8318YYdkCsZ7dsYV01n6TZhXA6Wf9i&index=3) [3rd video]
 
+[How EINSTEIN'S RELATIVITY FRAUD Rescued Heliocentrism](https://www.youtube.com/watch?v=BOGa8OQzjQ4&index=9&list=PLYI8318YYdkCsZ7dsYV01n6TZhXA6Wf9i) [9th video]
+
 [Motionless Earth Proven 1887, Aether Proven 1913](https://www.youtube.com/watch?v=kfE4vHQGB0w&list=PLYI8318YYdkCsZ7dsYV01n6TZhXA6Wf9i&&index=11) [11th video]
 
 [Edward Hendrie with A. True Ott PhD, June 3, 2016](https://www.youtube.com/watch?v=VZb2imQYMuk&list=PLYI8318YYdkCsZ7dsYV01n6TZhXA6Wf9i&index=12) [12th video]
+
+[Occultist Isaac Newton: Father of Scientism Gravity Cult](https://www.youtube.com/watch?v=dgGL-7H7vIw&index=27&list=PLYI8318YYdkCsZ7dsYV01n6TZhXA6Wf9i) [27th video]
 
 [https://www.amazon.com/11-Enemies-Foreign-Domestic-Edward-Hendrie/dp/098326273X/](https://www.amazon.com/11-Enemies-Foreign-Domestic-Edward-Hendrie/dp/098326273X/)
 
@@ -31,6 +39,16 @@ Globe earth is mass mind control, if they can control your mind about the real s
 [![The-Greatest-Lie-on-Earth-by-Edward-Hendrie.png](images/The-Greatest-Lie-on-Earth-by-Edward-Hendrie.png)](https://www.amazon.com/gp/product/1943056013)
 
 [The Greatest Lie on Earth: Proof That Our World Is Not a Moving Globe Paperback – January 17, 2016 by Edward Hendrie (Author)](https://www.amazon.com/gp/product/1943056013)
+
+[ODD TV's Flat Earth Trilogy ▶️️](https://www.youtube.com/watch?v=ARp2j8t3O8Q)
+
+[FLAT EARTH - 1000 YEARS OLD MAP Shows MORE Land Beyond ANTARTICA Edge/Ice Wall - Honolulu Map](https://www.youtube.com/watch?v=OxumjAIgLiM)
+
+[More land beyond Antarctica proof! - Admiral Richard E Byrd Interview](https://www.youtube.com/watch?v=-mJXI0eAuwM)
+
+[Eric Dubay: Forced Government Indoctrination Camps](https://www.youtube.com/watch?v=rxY9GREM0Us)
+
+[Mind Control Facts: CIA Experiments on Military & Civilians, Dr. Colin Ross | The Truth Talks](https://www.youtube.com/watch?v=HI_zFD879v0)
 
 [Dean Odle Flat Earth International Conference 2017](https://www.youtube.com/watch?v=HuFAEtS-eKY)
 
@@ -46,6 +64,16 @@ Globe earth is mass mind control, if they can control your mind about the real s
 
 [Daniel 12 Reveals When the Second Coming Will Occur!](https://www.youtube.com/watch?v=P-4tQaCwPeU)
 
+['Marching to Zion' Full Movie - Christian Zionism EXPOSED](https://www.youtube.com/watch?v=-gzTOFAR31c)
+
+["The Jews and Their Lies - Part 1" sermon filmed for Marching to Zion](https://www.youtube.com/watch?v=uVFYTSVCrLo)
+
+[The Jews and Their Lies (Part 2 of 2)](https://www.youtube.com/watch?v=kXhOFGtV-Js)
+
+[ONCE SAVED ALWAYS SAVED?](https://www.youtube.com/watch?v=DGfg0PUMImk)
+
+[Placebo - Howard Pittman.mp4](https://www.youtube.com/watch?v=lBwsGDCGQFE)
+
 [Seal Of YAH: Promise of Protection!](https://www.youtube.com/watch?v=LE739WWcOeI)
 
 [The Final Fraud: Satan Appearing As Yahushua!](https://www.youtube.com/watch?v=YOjXVXN2Zi4)
@@ -59,6 +87,8 @@ Globe earth is mass mind control, if they can control your mind about the real s
 [Commercial Airline Captain: The plane gyros are rigged - SW58 Flat Earth - Mark Sargent ✅](https://www.youtube.com/watch?v=HWO_1hUEWgY)
 
 [The Bible WARNS YOU of the Great Deception [FLAT EARTH EXPOSED]](https://www.youtube.com/watch?v=Q-Zno6docE4)
+
+[PROOF Thrust is Not Possible in a Vacuum - Flat Earth](https://www.youtube.com/watch?v=jYfwlzWOYCE)
 
 [Top Vatican Jesuit Astronomer; Earth is Flat, Gravity is Obsolete.](https://www.youtube.com/watch?v=hv0Z3ugpfh4)
 
@@ -83,6 +113,50 @@ Globe earth is mass mind control, if they can control your mind about the real s
 [The End Time Prophecy That No One is Talking About: Unfolding Now](https://www.youtube.com/watch?v=WDk-1u9WcXI)
 
 [Man Sees Unthinkable Horrors in Hell – Christians Being Tortured! (Mario Martinez)](https://www.youtube.com/watch?v=2vywj182oFw)
+
+[HILLARY CLINTON - BREAKING THE HARD GLASS CEILING - FLAT EARTH](https://www.youtube.com/watch?v=gDb5Fowe_jY)
+
+[Ex-Illuminati Member Exposes All - Tape #1 - The Occult](https://www.youtube.com/watch?v=X8bhVIi1fL0)
+
+[Ex-Illuminati Member Exposes All - Tape #2 - Witchcraft](https://www.youtube.com/watch?v=CiYprAOiHlA)
+
+[Ex-Illuminati Member Exposes All - Tape #3 - Illuminati Agenda](https://www.youtube.com/watch?v=vNs_AQEyOx0)
+
+[Ex-Illuminati Member Exposes All - Tape #4 - Personal Testimony](https://www.youtube.com/watch?v=WKXmKMWrLRE)
+
+[Ex-Illuminati Member Exposes All - Tape #5 - Questions & Answers](https://www.youtube.com/watch?v=AMLzUwEmxv8)
+
+[A Wrinkle in Time - Oprah and Disney teach New age to Children!](https://www.youtube.com/watch?v=udrYtjBDKZM)
+
+[Ex Satanist EXPOSES Christmas - "Saturnalia" - Santa, Gifts, Lights, Trees](https://www.youtube.com/watch?v=qDt1w4mzI5o)
+
+[1960's MKULTRA Subliminal Government Mind Control Vid...](https://www.youtube.com/watch?v=okcBjJ2FNtY)
+
+[Why the NWO Hates the KJV](https://www.youtube.com/watch?v=qLz4qyFMTqI)
+
+[Why the King James Only](https://www.youtube.com/watch?v=oXches5vk6w)
+
+[KJV Only - The Satanic Agenda to Change the Bible!](https://www.youtube.com/watch?v=AqAUR3aMHTg)
+
+[Kent Hovind - Why the King James Bible is the Word of God & NOT the New PerVersions!!](https://www.youtube.com/watch?v=ckHlhvo5nbo)
+
+[Why I Am KJV-Only](https://www.youtube.com/watch?v=vAyA-ymGbTs)
+
+[New Age Bible Versions-Gail Riplinger](https://www.youtube.com/watch?v=PmIsqO1FJ6c)
+
+[FAQ 56: What About Gail Riplinger?](https://www.youtube.com/watch?v=n6Oxv2qBEEo)
+
+[New World Order Bible Versions - King James Bible (KJV Only)](https://www.youtube.com/watch?v=mM7jdUgpI-Y)
+
+[TMZ: Neil Degrasse Tyson to Kyrie - Keep Flat Earth away from NASA and science! ✅](https://www.youtube.com/watch?v=d2qig3v3PHA)
+
+[Neil Disgrace Tyson is Falling Faster Than The Globe](https://www.youtube.com/watch?v=Q8tZaOu-30g)
+
+[Neil Degrasse Tyson Nervously Explains the Flat Earth. You Must See This!](https://www.youtube.com/watch?v=2lnpJ_nONfI)
+
+[Flat Earth- Best of Neil deGrasse Tyson Fails.](https://www.youtube.com/watch?v=EXxy8OEiS7Q)
+
+[DESTROYING NEIL deGRASSE TYSON LIES, CREDIBILITY NASA](https://www.youtube.com/watch?v=XBdrrD2SVRA)
 
 # [What else can “Fifteen cubits from above” in Gen 7:20 mean?](https://hermeneutics.stackexchange.com/questions/1416/what-else-can-fifteen-cubits-from-above-in-gen-720-mean)
 
@@ -138,6 +212,10 @@ Since Adam and Eve bit the fruit of knowledge of good and evil, we have to use k
 Satan was given authority over the world! Do you think he will let you worship the real God if he has authority over the world?
 
 [https://www.bibletools.org/index.cfm/fuseaction/Topical.show/RTD/cgg/ID/1138/Satans-Authority.htm](https://www.bibletools.org/index.cfm/fuseaction/Topical.show/RTD/cgg/ID/1138/Satans-Authority.htm)
+
+[First Book of Adam & Eve - Entire Book](https://www.youtube.com/watch?v=DCgkDGCfl5I)
+
+[Second Book of Adam & Eve](https://www.youtube.com/watch?v=LCuYMGmWnqw)
 
 #### Flat Earth Matters If Truth Matters, Up is Up and Down is Down, no matter where you are in the world!
 
@@ -607,7 +685,7 @@ Do you believe in Holy Shit or Holy Truth? You can't be constantly stuck in the 
 
 [Making Connections VII: The Major Deception (Pastor Charles Lawson)](https://www.youtube.com/watch?v=J4uo81V-yyw)
 
-[How NASA is CAUSING the Carnage In Texas - RFB Mirror](https://www.youtube.com/watch?v=8bn7Clae5A8)
+[How NASA is CAUSING the Carnage In Texas](https://www.youtube.com/watch?v=98xDa2nF3zA)
 
 [Transhumanism Agenda Is Happening Now](https://www.youtube.com/watch?v=qdhpDVb1s1E)
 
@@ -905,6 +983,14 @@ Do what thou wilt? or do God's will? Which is it? Everyone has there own Truth? 
 [![illuminati-card-game-plague-of-demons](images/illuminati-card-game-plague-of-demons.png)](https://www.youtube.com/watch?v=qaSngXGfvdY)
 
 [ILLUMINATI CARD GAME EXPOSED!!! PART THREE!](https://www.youtube.com/watch?v=qaSngXGfvdY)
+
+"They live is a documentary!!" - Rowdy Piper tweeted those words before they killed him using the heart attack gun. 
+
+[http://truthstreammedia.com/2013/10/02/rowdy-roddy-piper-admits-they-live-was-actually-a-documentary/](http://truthstreammedia.com/2013/10/02/rowdy-roddy-piper-admits-they-live-was-actually-a-documentary/) 
+
+[CIA's Heart Attack Gun](https://www.youtube.com/watch?v=Uwy56QTV4cs)
+
+[Queen Admits She is "Not Human" & We'll "Learn to Accept Her For What She Is"](https://www.youtube.com/watch?v=viRsgEuZzrY)
 
 ## ALMOST EVERYTHING THEY SAY IS REALLY THE OPPOSITE OF THE REAL TRUTH!
 
