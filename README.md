@@ -48,7 +48,7 @@ Globe earth is mass mind control, if they can control your mind about the real s
 
 [Eric Dubay: Forced Government Indoctrination Camps](https://www.youtube.com/watch?v=rxY9GREM0Us)
 
-[Mind Control Facts: CIA Experiments on Military & Civilians, Dr. Colin Ross | The Truth Talks](https://www.youtube.com/watch?v=HI_zFD879v0)
+[Mind Control Facts: CIA Experiments on Military & Civilians, Dr. Colin Ross - The Truth Talks](https://www.youtube.com/watch?v=HI_zFD879v0)
 
 [Dean Odle Flat Earth International Conference 2017](https://www.youtube.com/watch?v=HuFAEtS-eKY)
 
