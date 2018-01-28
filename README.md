@@ -1,4 +1,4 @@
-Last Modified: Sun Jan 28 05:14:00 UTC 2018
+Last Modified: Sun Jan 28 22:30:40 UTC 2018
 
 ## ![stats](https://c.statcounter.com/11394980/0/688bc3dd/0/) Welcome to [http://audiobible.life](http://audiobible.life) - Therefore Choose Life - [They Live](https://www.youtube.com/watch?v=JI8AMRbqY6w)
 
@@ -161,6 +161,497 @@ Globe earth is mass mind control, if they can control your mind about the real s
 # [What else can “Fifteen cubits from above” in Gen 7:20 mean?](https://hermeneutics.stackexchange.com/questions/1416/what-else-can-fifteen-cubits-from-above-in-gen-720-mean)
 
 # [Does the Bible say the Earth is flat?](https://hermeneutics.stackexchange.com/questions/8142/does-the-bible-say-the-earth-is-flat)
+
+[![ODD-TV-Living-In-Hell-Playlist](images/ODD-TV-Living-In-Hell-Playlist.png)](https://www.youtube.com/watch?v=TlTR7QQZQ8I&list=PL7X63Sm3kODPV43FyewOSadSnZwZGZQHU&index=1)
+
+## послушай музыку анти ню ворлд ордер﻿! Listen to anti new world order music!
+
+# [Truth Music - **MUST SEE AND HEAR**](https://www.youtube.com/watch?v=TlTR7QQZQ8I&list=PL7X63Sm3kODPV43FyewOSadSnZwZGZQHU&index=1) [playlist with ~700 songs]
+
+[🔬 SCIENTISM EXPOSED 🔭 Full Documentary (2016) HD](https://www.youtube.com/watch?v=AeIGrEtPMmE)
+
+[The Global Lie - Flat Earth Documentary (2016) HD](https://www.youtube.com/watch?v=yi2NbIf_7p4)
+
+[Flat Earth turning point and Nasa admits no moon landing](https://www.youtube.com/watch?v=vYvxQiTFzFc)
+
+[Rob Skiba and Pastor Dean Odle on the significance of the Firmament enclosed flat Earth](https://www.youtube.com/watch?v=iH4MnXI0sxQ)
+
+[Rob Skiba shares his testimony, the high price of doing research and discusses getting back to SEED](https://www.youtube.com/watch?v=ISqRpgNZ29w)
+
+[Making Connections VII: The Major Deception (Pastor Charles Lawson)](https://www.youtube.com/watch?v=J4uo81V-yyw)
+
+[How NASA is CAUSING the Carnage In Texas](https://www.youtube.com/watch?v=98xDa2nF3zA)
+
+[Transhumanism Agenda Is Happening Now](https://www.youtube.com/watch?v=qdhpDVb1s1E)
+
+[They are Preparing the earth for the FALLEN](https://www.youtube.com/watch?v=d_KQjyfrRFk)
+
+[NASA's SUN SIMULATOR CAUGHT ON VIDEO.](https://www.youtube.com/watch?v=jZJcSzO9viU)
+
+[Artificial SUN Finally goes PUBLIC in Germany](https://www.youtube.com/watch?v=vsQpG-qGhc4)
+
+[Sun Simulator Is being captured Worldwide AWAKENING](https://www.youtube.com/watch?v=l3ydfgCRphA)
+
+[What Is Happening In ANTARCTICA? Ancient Technology, LIVING Fallen Angels, And Cities Under Ice!](https://www.youtube.com/watch?v=1YruLtlTzXQ)
+
+[AETHEREAL - The Battle for Heaven and Earth (Cosmology Documentary)](https://www.youtube.com/watch?v=Zc_J2k4Cdp8)
+
+[BELIEVE YOUR OWN EYES - 9/11 - “NO PLANES”](https://www.youtube.com/watch?v=8W3y3Qh8R1s)
+
+[ZIONIST WATCH REVEALS ALEX JONES](https://www.youtube.com/watch?v=Cu2ukOUzgaM)
+
+[Abby Martin Exposes Zionism & Israel on Joe Rogan Podcast (Strong Language)](https://www.youtube.com/watch?v=rBRxt5ufnGg)
+
+[Joe Rogan exposed](https://www.youtube.com/watch?v=hCu4Ipc9n3U)
+
+[Joe Rogan Questions Everything - Chemtrail Episode Debunked ▶️️](https://www.youtube.com/watch?v=tM5CvbApHr4)
+
+[Shill Gatekeeping - Bill Nye's Spherical Proof - Space Bubbles - Flat Earth](https://www.youtube.com/watch?v=seIDHsKXycU)
+
+[Flat Earth Circus - Globe Symbolism - Space Programming](https://www.youtube.com/watch?v=jA6GFLFvS_U)
+
+[Project Blue Beam - Alien Agenda - Flat Earth](https://www.youtube.com/watch?v=xYRCJqdv0_Q)
+
+[Why ODD TV Supports the Gleason's Flat Earth Map](https://www.youtube.com/watch?v=zH9WRpS6-Z0)
+
+[Flat Earth Books - Youtube Money LOL! - ODD TV Update](https://www.youtube.com/watch?v=KWJLQJdTrik)
+
+[Flat Earth Ridicule - Globe Earth Brainwashing](https://www.youtube.com/watch?v=7557apwzir4)
+
+[Star Trek & Auguste Piccards Flat Earth: 10 Miles High by Michael Yoseph](https://www.youtube.com/watch?v=3mJyUmPnAXg)
+
+[Edward Hendrie Interview - Flat Earth, Jews, Jesuits & More](https://www.youtube.com/watch?v=AoWl3QpsKKA)
+
+[Proof That Our World is Not a Moving Globe : Edward Hendrie](https://www.youtube.com/watch?v=pNe1wWeaHOU)
+
+[Flat Earth? Globe? WHAT DOES THE BIBLE SAY?](https://www.youtube.com/watch?v=LNhpNUJh5GY)
+
+[The Bible Does Say FLAT EARTH](https://www.youtube.com/watch?v=hIMIAdyWEIg)
+
+[LIL UZI VERT (LUCIFER) XO TOUR Llif3 ILLUMINATI EXPOSED!](https://www.youtube.com/watch?v=8FHI51Ez-gE)
+
+[BACK TO SCHOOL TIPS 2017!](https://www.youtube.com/watch?v=9ZCPp2bdC7k)
+
+[IS THIS THE FUTURE OF ARTIFICIAL INTELLIGENCE???](https://www.youtube.com/watch?v=nkJo6Rm8-TU)
+
+[Artificial Intelligence Is NOT what you think it is.](https://www.youtube.com/watch?v=wimUaNqEJyw)
+
+[New World Order Is Using Weather ITS HAPPENING](https://www.youtube.com/watch?v=Kk4HHahoseg)
+
+[Proof of Weather Modification - NASA, HAARP & Chemtrail Technology ▶️️](https://www.youtube.com/watch?v=wJBBlntDtEU)
+
+[Baptists And Jesuits Working Together In Thailand](https://www.youtube.com/watch?v=_8K4VLZyl1w)
+
+[Devil Possession And The Eyes Part 1](https://www.youtube.com/watch?v=zD_2mWeOEAo)
+
+[Devil Possession And The Eyes Part 2](https://www.youtube.com/watch?v=s3KB7P_wQLY)
+
+[This Is What Satan Would Preach In A "Church"!](https://www.youtube.com/watch?v=EpZ7chF4TT0)
+
+[Seducing Female Pastors](https://www.youtube.com/watch?v=EJPTkAl2bIE)
+
+[The Acts Of The Apostates](https://www.youtube.com/watch?v=ooPesu9Hvwc)
+
+[Discerning The Times And Seasons](https://www.youtube.com/watch?v=akBYY8x_eHY)
+
+[The Doctor tried to Microchip me 666 (True Story)](https://www.youtube.com/watch?v=GMmKHwxElqU)
+
+[Charismatics and their false Christ](https://www.youtube.com/watch?v=bLQLlWH4KrU)
+
+[I was Forced to Leave my Church](https://www.youtube.com/watch?v=TCaMSo4bcxA)
+
+[A virus that kills your desire for God: Inside the Microchip - 666 RFID](https://www.youtube.com/watch?v=P6Sqr6mnaGQ)
+
+[Soldier tells truth. Dont let FEMA GET YOU!](https://www.youtube.com/watch?v=Y1EDKAW6DKw)
+
+[Cognitive Dissonance](https://www.youtube.com/watch?v=U0MVj4UUQJ4)
+
+[Let God Fight Your Battles For You](https://www.youtube.com/watch?v=bVyjG8hnx3U)
+
+[No Coincidences - Let Go and Let God](https://www.youtube.com/watch?v=vKJGcgZzv1w)
+
+[The Gunpowder Treason of 1605](https://www.youtube.com/watch?v=rBCgjkcp-s4)
+
+[History Of The King James Bible, Beginnings Of The Jesuits, & Persecution From The Catholic Church](https://www.youtube.com/watch?v=u026TRV3ATY)
+
+[Jesuits, Christianity, Counter Reformation and King James Bible](https://www.youtube.com/watch?v=Ri-KcmLgD5k)
+
+[The Jesuit's Recommended Bible Versions!](https://www.youtube.com/watch?v=Hcs3-SXg4k8)
+
+[Jesuits And The "Local Church"](https://www.youtube.com/watch?v=go5yvATFZgQ)
+
+[No Local Church?](https://www.youtube.com/watch?v=yL3xQczN6pE)
+
+[13 Reasons Every Christian MUST Reject The Mass Part 1](https://www.youtube.com/watch?v=XFSUbaumyic)
+
+[13 Reasons Every Christian MUST Reject The Mass Part 2](https://www.youtube.com/watch?v=nCGFBOgZ4bc)
+
+[Flat Earth: Jesuits & the Global Conspiracy!](https://www.youtube.com/watch?v=1WHIr-IFqAo&t=85)
+
+[Mark of the Beast: What it is & how to avoid it!](https://www.youtube.com/watch?v=FLYZgOaIWW0)
+
+[The Creator's Calendar](https://www.youtube.com/watch?v=DbzFGEfgP_8)
+
+[Hell: You've Got it All Wrong!](https://www.youtube.com/watch?v=c-oeQgAsPzk)
+
+[Eternal Fire Exists ...but it's not what you think!](https://www.youtube.com/watch?v=qhwojArfuEI)
+
+[The Trinity: Lie of Antiquity!](https://www.youtube.com/watch?v=RUE7OPg-EkI)
+
+[The Trinity: Satan’s Attack Against Calvary](https://www.youtube.com/watch?v=9MZjj7Qwy1w)
+
+[Nephilim (Giants) in the Bible: Is Yahuwah a Genocidal Maniac or a Loving Creator?](https://www.youtube.com/watch?v=QsI0YsAnl1A)
+
+[Christmas: Origin, History, & Traditions](https://www.youtube.com/watch?v=p4E3H1AWuAY)
+
+[Easter - Pagan Passover](https://www.youtube.com/watch?v=mnVnArw4Bjw)
+
+[The Resurrection: Easter? or First Fruits?](https://www.youtube.com/watch?v=rsJh_KDllxE)
+
+[The Godhead vs The "Trinity"](https://www.youtube.com/watch?v=Bh3n1Y_J_ak)
+
+# The word Trinity is nowhere to be found in the KJV!
+
+# audiobible find Trinity
+
+
+    NOTHING FOUND!
+
+
+# The word Godhead on the other hand is in multiple places!
+
+# audiobible find Godhead
+
+
+    ACTS 17:29 Forasmuch then as we are the offspring of God, we ought not to think that the Godhead is like unto gold, or silver, or stone, graven by art and man's device.
+
+    ROMANS 1:20 For the invisible things of him from the creation of the world are clearly seen, being understood by the things that are made, even his eternal power and Godhead; so that they are without excuse:
+
+    COLOSSIANS 2:9 For in him dwelleth all the fulness of the Godhead bodily.
+
+
+# Here's what it says in the Gospel about respect!
+
+**Note:** Everything about respect in the Bible is the opposite of what we've been taught! Satan says the opposite of what God says in the Bible, don't you get it? **Notice, PROVERBS 28:21**. We can see the patterns with Satan flipping the words of God upside down, just like with the creation, everything the opposite in the Globe theory compared to the Flat Earth Truth!
+
+Do what thou wilt? or do God's will? Which is it? Everyone has there own Truth? Respect everyone? or Truth is Truth and Lies are Lies! The ones in power tell us to respect everyone while they respect no one, they know the word of God too, probably better than you and they choose to follow Satan instead! Respect means speak up, not shut up!
+
+# audiobible find respect of persons -A1
+
+
+    2_CHRONICLES 19:7 Wherefore now let the fear of the LORD be upon you; take heed and do it: for there is no iniquity with the LORD our God, nor respect of persons, nor taking of gifts.
+
+    2_CHRONICLES 19:8 Moreover in Jerusalem did Jehoshaphat set of the Levites, and of the priests, and of the chief of the fathers of Israel, for the judgment of the LORD, and for controversies, when they returned to Jerusalem.
+
+    PROVERBS 24:23 These things also belong to the wise. It is not good to have respect of persons in judgment.
+
+    PROVERBS 24:24 He that saith unto the wicked, Thou are righteous; him shall the people curse, nations shall abhor him:
+
+    PROVERBS 28:21 To have respect of persons is not good: for for a piece of bread that man will transgress.
+
+    PROVERBS 28:22 He that hasteth to be rich hath an evil eye, and considereth not that poverty shall come upon him.
+
+    ROMANS 2:11 For there is no respect of persons with God.
+
+    ROMANS 2:12 For as many as have sinned without law shall also perish without law: and as many as have sinned in the law shall be judged by the law;
+
+    EPHESIANS 6:9 And, ye masters, do the same things unto them, forbearing threatening: knowing that your Master also is in heaven; neither is there respect of persons with him.
+
+    EPHESIANS 6:10 Finally, my brethren, be strong in the Lord, and in the power of his might.
+
+    COLOSSIANS 3:25 But he that doeth wrong shall receive for the wrong which he hath done: and there is no respect of persons.
+
+    COLOSSIANS 4:1 Masters, give unto your servants that which is just and equal; knowing that ye also have a Master in heaven.
+
+    JAMES 2:1 My brethren, have not the faith of our Lord Jesus Christ, the Lord of glory, with respect of persons.
+
+    JAMES 2:2 For if there come unto your assembly a man with a gold ring, in goodly apparel, and there come in also a poor man in vile raiment;
+
+    1_PETER 1:17 And if ye call on the Father, who without respect of persons judgeth according to every man's work, pass the time of your sojourning here in fear:
+
+    1_PETER 1:18 Forasmuch as ye know that ye were not redeemed with corruptible things, as silver and gold, from your vain conversation received by tradition from your fathers;
+
+
+# JUST KEEP WATCHING FLAT EARTH VIDEOS AND ANTI NEW WORLD ORDER VIDEOS!
+
+[![JUST KEEP WATCHING FLAT EARTH VIDEOS AND ANTI NEW WORLD ORDER VIDEOS](images/12790840_469275703272169_3170264075263137737_n.jpg)](https://www.youtube.com/results?search_query=flat+earth+live)
+
+[https://www.youtube.com/results?search_query=flat+earth+live](https://www.youtube.com/results?search_query=flat+earth+live)
+
+> Pride aside. The earth is flat and that's not even the important bit..the reasons they're lying will lead you to the origins of earth, who and what we are, where we live and what we are doing here, free energy, frequencies and magnesium. good luck.﻿
+- JJN
+
+[![plane-flying-thru-the-sun](images/plane-flying-thru-the-sun.png)](https://www.youtube.com/watch?v=eN8yhUzqLCA)
+
+[I witnessed the most mysterious thing ever - Plane flying THROUGH the Sun](https://www.youtube.com/watch?v=eN8yhUzqLCA)
+
+[![fake-news-lies-and-deception](images/fake-news-lies-and-deception.png)](https://www.youtube.com/watch?v=4uBgd8XlYwg)
+
+[YOU'VE BEEN BRAINWASHED SINCE BIRTH by Captain Obvious](https://www.youtube.com/watch?v=4uBgd8XlYwg)
+
+[![thomas-jefferson-educate-and-inform-the-masses-quote](images/thomas-jefferson-educate-and-inform-the-masses-quote.png)](https://www.youtube.com/watch?v=eSjtQiZJGT0)
+
+[Silent Weapons for Quiet Wars Part 1 of 4](https://www.youtube.com/watch?v=eSjtQiZJGT0)
+
+[![indoctrination-camps-are-schools](images/indoctrination-camps-are-schools.png)](https://www.youtube.com/watch?v=72Lrz0khXP0)
+
+[Forced Government Indoctrination Camps](https://www.youtube.com/watch?v=72Lrz0khXP0)
+
+[![dubai-flat-earth-ruler-comparison](images/dubai-flat-earth-ruler-comparison.png)](https://www.youtube.com/watch?v=UbYtkrTquXE&list=PL7X63Sm3kODMi6OX15TRIqXzc3usAkf2-&index=3)
+
+[IMPOSSIBALL 🌎 Flat Earth Documentary (2017)](https://www.youtube.com/watch?v=UbYtkrTquXE&list=PL7X63Sm3kODMi6OX15TRIqXzc3usAkf2-&index=3)
+
+[![disney-has-subliminal-messages-and-disney-is-evil](images/disney-has-subliminal-messages-and-disney-is-evil.png)](https://www.youtube.com/watch?v=fjtstLZeTIs)
+
+[Oversexualizing Society & Innocent Children ▶️️](https://www.youtube.com/watch?v=fjtstLZeTIs)
+
+[![children-are-too-young-intent-to-sell](images/children-are-too-young-intent-to-sell.png)](https://www.youtube.com/watch?v=Hh6XGGW79qM)
+
+[Children Under Attack Marketing to Kids is Pedophilia ▶️️](https://www.youtube.com/watch?v=Hh6XGGW79qM)
+
+[![canada-gender-neutral](images/canada-gender-neutral.png)](https://www.youtube.com/watch?v=NTc1D_K0XeY)
+
+[Warning:🚸Schools After Your Children's Identity](https://www.youtube.com/watch?v=NTc1D_K0XeY)
+
+[![aims-of-the-frankfurt-school](images/aims-of-the-frankfurt-school.png)](https://www.youtube.com/watch?v=tNDz75-9bps)
+
+[The Devil's Playbook (How He Deceives You)! Part 1](https://www.youtube.com/watch?v=tNDz75-9bps)
+
+[![all-truth-passes-thru-three-stages](images/all-truth-passes-thru-three-stages.png)](https://www.youtube.com/watch?v=tuqqPS5z3uw)
+
+[40 Bible verses that prove the Earth is FLAT!](https://www.youtube.com/watch?v=tuqqPS5z3uw)
+
+[![GlobeBusters](images/GlobeBusters.png)](https://www.youtube.com/watch?v=OBCsoAvgXmg)
+
+[Flat Earth - Who, What, When, Where, Why, and How!](https://www.youtube.com/watch?v=OBCsoAvgXmg)
+
+[![NDT-vs-FEA](images/NDT-vs-FEA.png)](https://www.youtube.com/watch?v=pildmrRi8XE)
+
+[Neil Degrasse Tyson vs Flat Earth Asshole](https://www.youtube.com/watch?v=pildmrRi8XE)
+
+[![Operation-Earnest-Voice-Facts](images/Operation-Earnest-Voice-Facts.png)](https://www.youtube.com/watch?v=zR-T2Ocksqo)
+
+[OPERATION EARNEST VOICE IS DESTROYING NASA/.GOV WHISTLEBLOWERS by Captain Obvious](https://www.youtube.com/watch?v=zR-T2Ocksqo)
+
+[![dr.robert-sungenis-presentation-on-geocentrism-in-dalas-tx](images/dr.robert-sungenis-presentation-on-geocentrism-in-dalas-tx.png)](https://www.youtube.com/watch?v=Rwx7bYEUIF4)
+
+[Dr. Robert Sungenis presentation on Geocentrism in Dallas, Texas](https://www.youtube.com/watch?v=Rwx7bYEUIF4)
+
+[![drink-the-kool-aid-means-blindly-follow](images/drink-the-kool-aid-means-blindly-follow.png)](https://www.youtube.com/watch?v=E4sdGMx0gcg)
+
+[The Kool-Aid Man Cometh](https://www.youtube.com/watch?v=E4sdGMx0gcg)
+
+[![666-chip](images/666-chip.png)](https://www.youtube.com/watch?v=t4jUWgHhDvU)
+
+[THE MOST DISTURBING VIDEO OF 2017 by Captain Obvious](https://www.youtube.com/watch?v=t4jUWgHhDvU)
+
+[![walmart-fema-camps](images/walmart-fema-camps.png)](https://www.youtube.com/watch?v=RNYgEfStYn4)
+
+[Do You Know How It Will All End? - This Man Reveals All Their Plans (P3)](https://www.youtube.com/watch?v=RNYgEfStYn4)
+
+[![walmart-martial-law](images/walmart-martial-law.png)](https://www.youtube.com/watch?v=EG48HsywpHU)
+
+[It's no longer a theory, Its reality(WALMART-MART-LAW)](https://www.youtube.com/watch?v=xe_Bjxoe5ts)
+
+[![walmart-fema-martial-law](images/walmart-fema-martial-law.png)](https://www.youtube.com/watch?v=GHFzwkC42-0)
+
+[Look Like a Walmart Location To You? - This Reveals All Their Plans!](https://www.youtube.com/watch?v=GHFzwkC42-0)
+
+[![google-leaks-walmwart-fema-camps](images/google-leaks-walmwart-fema-camps.png)](https://www.youtube.com/watch?v=4Cm4D1xLE9c)
+
+[The VIDEO that WALMART DOESN'T Want You To See!! Future RFID Chipping Hubs...](https://www.youtube.com/watch?v=4Cm4D1xLE9c)
+
+[![walmart-fema-martial-law1](images/walmart-fema-martial-law1.png)](https://www.youtube.com/watch?v=SYCjGUhU5Dc)
+
+[Walmart Does NOT Want You To See This Video - FEMA Camps Exposed (Illuminati Exposed) (2017)](https://www.youtube.com/watch?v=SYCjGUhU5Dc)
+
+[![trump-and-clinton-are-distant-relatives](images/trump-and-clinton-are-distant-relatives.png)](https://www.youtube.com/watch?v=YtRBexcpFTA)
+
+[Jesuits Have Seized The White House.](https://www.youtube.com/watch?v=YtRBexcpFTA)
+
+[![the-secret-instructions-of-the-jesuits](images/the-secret-instructions-of-the-jesuits.png)](https://www.youtube.com/watch?v=ixZrnHDrESg)
+
+[Old Jesuit Book Reveals True Agenda !!! (Must see)](https://www.youtube.com/watch?v=ixZrnHDrESg)
+
+[![illuminate-card-game-is-complete](images/illuminate-card-game-is-complete.png)](https://www.youtube.com/watch?v=5XDxgKnv7eE)
+
+[Illuminati card game Complete .](https://www.youtube.com/watch?v=5XDxgKnv7eE)
+
+[![rapture-is-not-what-youve-been-led-to-believe-all-your-life](images/rapture-is-not-what-youve-been-led-to-believe-all-your-life.png)](http://www.kingjamesbibledictionary.com/Dictionary/rapture)
+
+[Rapture Not Biblical Part 1](https://www.youtube.com/watch?v=zMWV1spomZc)
+
+[![rapture-is-not-biblical](images/rapture-is-not-biblical.png)](https://www.youtube.com/watch?v=i3hXKNTMuEY)
+
+[Jesuits Created The Secret Rapture & 7 Year Tribulation, & Both Are False Doctrines And Unbiblical](https://www.youtube.com/watch?v=i3hXKNTMuEY)
+
+[![beware-the-greatest-deception-of-all](images/beware-the-greatest-deception-of-all.png)](https://www.youtube.com/watch?v=8Gsj9Ed8qkU)
+
+[Beware: The Greatest Deception of All - Billions will be Deceived](https://www.youtube.com/watch?v=8Gsj9Ed8qkU)
+
+[![science-vs-religion](images/science-vs-religion.png)](https://www.youtube.com/watch?v=HxeKoII1UPk)
+
+[IS FLAT EARTH A PSYOP TO DISCREDIT A GEOCENTRIC EARTH? Rick DeLano Interview for THE PRINCIPLE](https://www.youtube.com/watch?v=HxeKoII1UPk)
+
+[![dod-flat-earth](images/dod-flat-earth.png)](https://www.youtube.com/watch?v=EGk3jW95bbA)
+
+[DEPARTMENT OF DEFENSE SAYS EARTH IS FLAT & STATIONARY. THE END TO FAKE SPINNING GLOBE](https://www.youtube.com/watch?v=EGk3jW95bbA)
+
+[![un-plan-to-destroy-america-control-food-fema-camps](images/un-plan-to-destroy-america-control-food-fema-camps.png)](https://www.youtube.com/watch?v=ZC5BdOsASpc)
+
+[Shocking Military Letter Confirms UN Plans To Soon Destroy America and More!](https://www.youtube.com/watch?v=ZC5BdOsASpc)
+
+[![the-first-sign-of-Jesus-return-is-deception](images/the-first-sign-of-Jesus-return-is-deception.png)](https://www.youtube.com/watch?v=TCaMSo4bcxA)
+
+[I was Forced to Leave my Church](https://www.youtube.com/watch?v=TCaMSo4bcxA)
+
+[![illuminati-card-game-flat-earthers-nasa](images/illuminati-card-game-flat-earthers-nasa.png)](https://www.youtube.com/watch?v=5dhV5xlWFw0)
+
+[ILLUMINATI CARD GAME EXPOSED!!! Just A Game? Or Really The TRUTH?](https://www.youtube.com/watch?v=5dhV5xlWFw0)
+
+[![illuminati-card-game-hillary-clinton](images/illuminati-card-game-hillary-clinton.png)](https://www.youtube.com/watch?v=NHFGImDon24)
+
+[ILLUMINATI CARD GAME EXPOSED!!! PART TWO!](https://www.youtube.com/watch?v=NHFGImDon24)
+
+[![illuminati-card-game-plague-of-demons](images/illuminati-card-game-plague-of-demons.png)](https://www.youtube.com/watch?v=qaSngXGfvdY)
+
+[ILLUMINATI CARD GAME EXPOSED!!! PART THREE!](https://www.youtube.com/watch?v=qaSngXGfvdY)
+
+## ALMOST EVERYTHING THEY SAY IS REALLY THE OPPOSITE OF THE REAL TRUTH!
+
+## NO OFFENSE BUT WE ARE IN TROUBLE AND THE TRUTH MUST BE SEEN AND HEARD!
+
+## SILENCE IS BETRAYAL! TRUTH IS HERE NOW! YOU CAN'T ESCAPE IT! LEARN IT!
+
+## DO HUMANITY A FAVOR! WAKE UP! CHECK IT OUT! BUST BACK! TIME HAS COME!
+
+## IT IS EASIER TO FOOL PEOPLE, THAN TO CONVINCE THEM THEY'VE BEEN FOOLED!
+
+# YOU HAVE TO BE ASLEEP TO HAVE THE AMERICAN DREAM!
+
+# OPEN YOUR EYES BEFORE YOU DIE! WAKE UP! BREAK FREE!
+
+## BREAK OUT OF THE MENTAL PRISON FOR YOUR MIND! WAKE UP!
+
+## EITHER WAY THEY DUMB US DOWN AND KILL US SLOWLY! RISE UP!
+
+## GLOBE HOAX TAKES THE CAKE! SOONER OR LATER YOU WILL HAVE TO WAKE UP!
+
+## ITS EASY CONTROLLING BODIES WHEN THEIR MINDS ARE IN PRISON! BREAK FREE!
+
+## YOU THINK YOUR LACK OF COMMON SENSE DON'T HAVE A CONSEQUENCE? RESIST!
+
+## DO THE RESEARCH! DON'T BE A CLOWN! WORD OF GOD IS TRUTH! THINK ABOUT IT!
+
+### THE EARTH IS FLAT! NASA GOVERNMENT MAINSTREAM MEDIA LIES! DON'T BE IGNORANT! WAKE UP!
+
+### WATCH OUT FOR CIA OPERATIVES ZOMBIES CLOWNS AND THOSE WHO GET PAID TO HIDE THE TRUTH!
+
+### PLEASE SHARE! TELL EVERYONE! SCIENCE IS A FALSE RELIGION CALLED SCIENTISM!
+
+### THE BEST THING YOU CAN DO WITH YOUR TIME IS SHARE THE INFO AND MAKE PEOPLE AWARE!
+
+### IT'S IMPOSSIBLE TO BE TRULY FREE WHEN YOUR MIND IS IN A MENTAL PRISON!
+
+### TRUTH HURTS WHEN YOU BELIEVE LIES! ARE YOU BIG BANG BELIEVING CHRISTIAN?! ENJOY HELL!
+
+### THEORY OF RELATIVITY! DID YOU FALL ON YOUR FACE? OR DID EARTH RISE TO MEET YOUR FACE?
+
+### GUY FAWKES TRIED TO KILL KING JAMES TO STOP THE KJV BIBLE! GUNPOWDER TREASON!
+
+# [Flat Earth](https://www.youtube.com/watch?v=UbYtkrTquXE&list=PL7X63Sm3kODMi6OX15TRIqXzc3usAkf2-) [English Flat Earth playlist]
+
+# [Tierra Plana](https://www.youtube.com/playlist?list=PL7X63Sm3kODP0KENF_nh8zcMTDPSIXvPe) [Spanish Flat Earth playlist]
+
+# [Плоская Земля](https://www.youtube.com/watch?v=qvyytQUnL8o&list=PL7X63Sm3kODMXewMFI3c50-mBggHpIIDF) [Russian Flat Earth playlist]
+
+# YouTube Search "[Flat Earth](https://www.youtube.com/results?search_query=flat+earth)" [English YouTube Search]
+
+# YouTube Buscar "[tierra plana](https://www.youtube.com/results?search_query=tierra+plana)" [Spanish YouTube Search]
+
+# Ютуб Поиск "[Плоская Земля](https://www.youtube.com/results?search_query=%D0%9F%D0%BB%D0%BE%D1%81%D0%BA%D0%B0%D1%8F+%D0%97%D0%B5%D0%BC%D0%BB%D1%8F)" [Russian YouTube Search]
+
+# YouTube Recherche "[Terre Plate](https://www.youtube.com/results?search_query=plate+terre)" [French YouTube Search]
+
+# YouTube 検索 "[フラット・アース](https://www.youtube.com/results?search_query=%E3%83%95%E3%83%A9%E3%83%83%E3%83%88%E3%83%BB%E3%82%A2%E3%83%BC%E3%82%B9)" [Japanese YouTube Search]
+
+)[الأرض المسطحة] #https://www.youtube.com/results?search_query=%D8%A7%D9%84%D8%A3%D8%B1%D8%B6+%D8%A7%D9%84%D9%85%D8%B3%D8%B7%D8%AD%D8%A9) [Arabic YouTube Search]
+
+#)[שטוח כדור הארץ] https://www.youtube.com/results?search_query=%D7%A9%D7%98%D7%95%D7%97+%D7%9B%D7%93%D7%95%D7%A8+%D7%94%D7%90%D7%A8%D7%A5) [Hebrew YouTube Search]
+
+![closed-minded-open-minded](images/closed-minded-open-minded.png)
+
+[![rowdy-roddy-piper-tweet-they-live-is-a-documentary](images/rowdy-roddy-piper-tweet-they-live-is-a-documentary.png)](https://twitter.com/R_Roddy_Piper/status/383693269068050432)
+
+[https://twitter.com/R_Roddy_Piper/status/383693269068050432](https://twitter.com/R_Roddy_Piper/status/383693269068050432)
+
+[![they-live-kick-ass-no-bubble-gum](images/they-live-kick-ass-no-bubble-gum.png)](https://www.youtube.com/watch?v=_urOCJ78Sg4&list=PLm6Vq0bTTCDjvTd6TkzCNNajMpcydFHkU)
+
+"They live is a documentary!!" - Rowdy Piper tweeted those words before they killed him using the heart attack gun. 
+
+[http://truthstreammedia.com/2013/10/02/rowdy-roddy-piper-admits-they-live-was-actually-a-documentary/](http://truthstreammedia.com/2013/10/02/rowdy-roddy-piper-admits-they-live-was-actually-a-documentary/) 
+
+[CIA's Heart Attack Gun](https://www.youtube.com/watch?v=Uwy56QTV4cs)
+
+[Queen Admits She is "Not Human" & We'll "Learn to Accept Her For What She Is"](https://www.youtube.com/watch?v=viRsgEuZzrY)
+
+[Symbolic Cinema Playlist by ODD Reality](https://www.youtube.com/watch?v=_urOCJ78Sg4&list=PLm6Vq0bTTCDjvTd6TkzCNNajMpcydFHkU)
+
+[![flat-earth-isaiah40-22](images/flat-earth-isaiah40-22.jpg)](https://www.youtube.com/watch?v=0jdBiz_vwe0)
+
+[The Genesis Revelation - How the Bible absolutely describes an enclosed world cosmology](https://www.youtube.com/watch?v=0jdBiz_vwe0)
+
+**ISAIAH 40:22:** It is he that sitteth upon the circle of the earth, and the inhabitants thereof are as grasshoppers; that stretcheth out the heavens as a curtain, and spreadeth them out as a tent to dwell in:
+
+#### God is so kind that it is impossible to imagine His unbounded kindness.
+
+**PSALMS 47:7:** For God is the King of all the earth: sing ye praises with understanding.
+
+**PSALMS 147:5:** Great is our Lord, and of great power: his understanding is infinite.
+
+**PSALMS 150:1:** Praise ye the LORD. Praise God in his sanctuary: praise him in the firmament of his power.
+
+**PROVERBS 2:6:** For the LORD giveth wisdom: out of his mouth cometh knowledge and understanding.
+
+## [Praise GOD Everyday!](https://www.youtube.com/watch?v=i2U3Ld-ZYpM)
+
+[![the-firmament](images/the-firmament.jpeg)](https://www.youtube.com/watch?v=0F7zNIJWAoM)
+
+[How many firmaments are there? And how can birds fly in the firmament??](https://www.youtube.com/watch?v=0F7zNIJWAoM)
+
+![firmament](images/firmament.jpg)
+
+![flat-earth-maps](images/flat-earth-maps.jpg)
+
+![AncientFirmament](images/AncientFirmament.jpg)
+
+![flat-earth-firmament-2c](images/flat-earth-firmament-2c.png)
+
+![e83e3141866d8a5c082b646ed52bcf53](images/e83e3141866d8a5c082b646ed52bcf53.jpg)
+
+![FlatEarthModel1](images/FlatEarthModel1.jpg)
+
+![MJ_2014_Firmament_Realm_of_God](images/MJ_2014_Firmament_Realm_of_God.jpg)
+
+![mqdefault](images/mqdefault.jpg)
+
+![jtot_genesis_cosmology](images/jtot_genesis_cosmology.jpg)
+
+![HkAHHM3c](images/HkAHHM3c.png)
+
+![space-junk](images/space-junk.png)
+
+![atheism](images/atheism.png)
+
+![NASA_Serpent](images/NASA_Serpent.jpg)
+
+![second-coming-of-jesus-christ_heaven-opened-up](images/second-coming-of-jesus-christ_heaven-opened-up.jpg)
+
+### One thing if for sure, this has taught me how to put my ego to the side.
+
+#### What I know is that I don't know anything, so I keep looking for the truth/answers and realize how little I actually know, but the more I keep looking for the truth the more I know that I have a chance to be saved!
+
+### Just trying to spread awareness, so to help save humanity or at least buy some time!
 
 # What is the curvature from New York to California?
 
@@ -665,499 +1156,8 @@ Do you believe in Holy Shit or Holy Truth? You can't be constantly stuck in the 
 
        Definition:
            DEFILER ,  noun   One who defiles; one who corrupts or violates; that which pollutes.
-
-
-[![ODD-TV-Living-In-Hell-Playlist](images/ODD-TV-Living-In-Hell-Playlist.png)](https://www.youtube.com/watch?v=TlTR7QQZQ8I&list=PL7X63Sm3kODPV43FyewOSadSnZwZGZQHU&index=1)
-
-## послушай музыку анти ню ворлд ордер﻿! Listen to anti new world order music!
-
-# [Truth Music - **MUST SEE AND HEAR**](https://www.youtube.com/watch?v=TlTR7QQZQ8I&list=PL7X63Sm3kODPV43FyewOSadSnZwZGZQHU&index=1) [playlist with ~700 songs]
-
-[🔬 SCIENTISM EXPOSED 🔭 Full Documentary (2016) HD](https://www.youtube.com/watch?v=AeIGrEtPMmE)
-
-[The Global Lie - Flat Earth Documentary (2016) HD](https://www.youtube.com/watch?v=yi2NbIf_7p4)
-
-[Flat Earth turning point and Nasa admits no moon landing](https://www.youtube.com/watch?v=vYvxQiTFzFc)
-
-[Rob Skiba and Pastor Dean Odle on the significance of the Firmament enclosed flat Earth](https://www.youtube.com/watch?v=iH4MnXI0sxQ)
-
-[Rob Skiba shares his testimony, the high price of doing research and discusses getting back to SEED](https://www.youtube.com/watch?v=ISqRpgNZ29w)
-
-[Making Connections VII: The Major Deception (Pastor Charles Lawson)](https://www.youtube.com/watch?v=J4uo81V-yyw)
-
-[How NASA is CAUSING the Carnage In Texas](https://www.youtube.com/watch?v=98xDa2nF3zA)
-
-[Transhumanism Agenda Is Happening Now](https://www.youtube.com/watch?v=qdhpDVb1s1E)
-
-[They are Preparing the earth for the FALLEN](https://www.youtube.com/watch?v=d_KQjyfrRFk)
-
-[NASA's SUN SIMULATOR CAUGHT ON VIDEO.](https://www.youtube.com/watch?v=jZJcSzO9viU)
-
-[Artificial SUN Finally goes PUBLIC in Germany](https://www.youtube.com/watch?v=vsQpG-qGhc4)
-
-[Sun Simulator Is being captured Worldwide AWAKENING](https://www.youtube.com/watch?v=l3ydfgCRphA)
-
-[What Is Happening In ANTARCTICA? Ancient Technology, LIVING Fallen Angels, And Cities Under Ice!](https://www.youtube.com/watch?v=1YruLtlTzXQ)
-
-[AETHEREAL - The Battle for Heaven and Earth (Cosmology Documentary)](https://www.youtube.com/watch?v=Zc_J2k4Cdp8)
-
-[BELIEVE YOUR OWN EYES - 9/11 - “NO PLANES”](https://www.youtube.com/watch?v=8W3y3Qh8R1s)
-
-[ZIONIST WATCH REVEALS ALEX JONES](https://www.youtube.com/watch?v=Cu2ukOUzgaM)
-
-[Abby Martin Exposes Zionism & Israel on Joe Rogan Podcast (Strong Language)](https://www.youtube.com/watch?v=rBRxt5ufnGg)
-
-[Joe Rogan exposed](https://www.youtube.com/watch?v=hCu4Ipc9n3U)
-
-[Joe Rogan Questions Everything - Chemtrail Episode Debunked ▶️️](https://www.youtube.com/watch?v=tM5CvbApHr4)
-
-[Shill Gatekeeping - Bill Nye's Spherical Proof - Space Bubbles - Flat Earth](https://www.youtube.com/watch?v=seIDHsKXycU)
-
-[Flat Earth Circus - Globe Symbolism - Space Programming](https://www.youtube.com/watch?v=jA6GFLFvS_U)
-
-[Project Blue Beam - Alien Agenda - Flat Earth](https://www.youtube.com/watch?v=xYRCJqdv0_Q)
-
-[Why ODD TV Supports the Gleason's Flat Earth Map](https://www.youtube.com/watch?v=zH9WRpS6-Z0)
-
-[Flat Earth Books - Youtube Money LOL! - ODD TV Update](https://www.youtube.com/watch?v=KWJLQJdTrik)
-
-[Flat Earth Ridicule - Globe Earth Brainwashing](https://www.youtube.com/watch?v=7557apwzir4)
-
-[Star Trek & Auguste Piccards Flat Earth: 10 Miles High by Michael Yoseph](https://www.youtube.com/watch?v=3mJyUmPnAXg)
-
-[Edward Hendrie Interview - Flat Earth, Jews, Jesuits & More](https://www.youtube.com/watch?v=AoWl3QpsKKA)
-
-[Proof That Our World is Not a Moving Globe : Edward Hendrie](https://www.youtube.com/watch?v=pNe1wWeaHOU)
-
-[Flat Earth? Globe? WHAT DOES THE BIBLE SAY?](https://www.youtube.com/watch?v=LNhpNUJh5GY)
-
-[The Bible Does Say FLAT EARTH](https://www.youtube.com/watch?v=hIMIAdyWEIg)
-
-[LIL UZI VERT (LUCIFER) XO TOUR Llif3 ILLUMINATI EXPOSED!](https://www.youtube.com/watch?v=8FHI51Ez-gE)
-
-[BACK TO SCHOOL TIPS 2017!](https://www.youtube.com/watch?v=9ZCPp2bdC7k)
-
-[IS THIS THE FUTURE OF ARTIFICIAL INTELLIGENCE???](https://www.youtube.com/watch?v=nkJo6Rm8-TU)
-
-[Artificial Intelligence Is NOT what you think it is.](https://www.youtube.com/watch?v=wimUaNqEJyw)
-
-[New World Order Is Using Weather ITS HAPPENING](https://www.youtube.com/watch?v=Kk4HHahoseg)
-
-[Proof of Weather Modification - NASA, HAARP & Chemtrail Technology ▶️️](https://www.youtube.com/watch?v=wJBBlntDtEU)
-
-[The Godhead vs The "Trinity"](https://www.youtube.com/watch?v=Bh3n1Y_J_ak)
-
-# The word Trinity is nowhere to be found in the KJV!
-
-# audiobible find Trinity
-
-
-    NOTHING FOUND!
-
-
-# The word Godhead on the other hand is in multiple places!
-
-# audiobible find Godhead
-
-
-    ACTS 17:29 Forasmuch then as we are the offspring of God, we ought not to think that the Godhead is like unto gold, or silver, or stone, graven by art and man's device.
-
-    ROMANS 1:20 For the invisible things of him from the creation of the world are clearly seen, being understood by the things that are made, even his eternal power and Godhead; so that they are without excuse:
-
-    COLOSSIANS 2:9 For in him dwelleth all the fulness of the Godhead bodily.
-
-
-[Baptists And Jesuits Working Together In Thailand](https://www.youtube.com/watch?v=_8K4VLZyl1w)
-
-[Devil Possession And The Eyes Part 1](https://www.youtube.com/watch?v=zD_2mWeOEAo)
-
-[Devil Possession And The Eyes Part 2](https://www.youtube.com/watch?v=s3KB7P_wQLY)
-
-[This Is What Satan Would Preach In A "Church"!](https://www.youtube.com/watch?v=EpZ7chF4TT0)
-
-[Seducing Female Pastors](https://www.youtube.com/watch?v=EJPTkAl2bIE)
-
-[The Acts Of The Apostates](https://www.youtube.com/watch?v=ooPesu9Hvwc)
-
-[Discerning The Times And Seasons](https://www.youtube.com/watch?v=akBYY8x_eHY)
-
-[The Doctor tried to Microchip me 666 (True Story)](https://www.youtube.com/watch?v=GMmKHwxElqU)
-
-[Charismatics and their false Christ](https://www.youtube.com/watch?v=bLQLlWH4KrU)
-
-[I was Forced to Leave my Church](https://www.youtube.com/watch?v=TCaMSo4bcxA)
-
-[A virus that kills your desire for God: Inside the Microchip - 666 RFID](https://www.youtube.com/watch?v=P6Sqr6mnaGQ)
-
-[Soldier tells truth. Dont let FEMA GET YOU!](https://www.youtube.com/watch?v=Y1EDKAW6DKw)
-
-[Cognitive Dissonance](https://www.youtube.com/watch?v=U0MVj4UUQJ4)
-
-[Let God Fight Your Battles For You](https://www.youtube.com/watch?v=bVyjG8hnx3U)
-
-[No Coincidences - Let Go and Let God](https://www.youtube.com/watch?v=vKJGcgZzv1w)
-
-# Here's what it says in the Gospel about respect!
-
-**Note:** Everything about respect in the Bible is the opposite of what we've been taught! Satan says the opposite of what God says in the Bible, don't you get it? **Notice, PROVERBS 28:21**. We can see the patterns with Satan flipping the words of God upside down, just like with the creation, everything the opposite in the Globe theory compared to the Flat Earth Truth!
-
-Do what thou wilt? or do God's will? Which is it? Everyone has there own Truth? Respect everyone? or Truth is Truth and Lies are Lies! The ones in power tell us to respect everyone while they respect no one, they know the word of God too, probably better than you and they choose to follow Satan instead! Respect means speak up, not shut up!
-
-# audiobible find respect of persons -A1
-
-
-    2_CHRONICLES 19:7 Wherefore now let the fear of the LORD be upon you; take heed and do it: for there is no iniquity with the LORD our God, nor respect of persons, nor taking of gifts.
-
-    2_CHRONICLES 19:8 Moreover in Jerusalem did Jehoshaphat set of the Levites, and of the priests, and of the chief of the fathers of Israel, for the judgment of the LORD, and for controversies, when they returned to Jerusalem.
-
-    PROVERBS 24:23 These things also belong to the wise. It is not good to have respect of persons in judgment.
-
-    PROVERBS 24:24 He that saith unto the wicked, Thou are righteous; him shall the people curse, nations shall abhor him:
-
-    PROVERBS 28:21 To have respect of persons is not good: for for a piece of bread that man will transgress.
-
-    PROVERBS 28:22 He that hasteth to be rich hath an evil eye, and considereth not that poverty shall come upon him.
-
-    ROMANS 2:11 For there is no respect of persons with God.
-
-    ROMANS 2:12 For as many as have sinned without law shall also perish without law: and as many as have sinned in the law shall be judged by the law;
-
-    EPHESIANS 6:9 And, ye masters, do the same things unto them, forbearing threatening: knowing that your Master also is in heaven; neither is there respect of persons with him.
-
-    EPHESIANS 6:10 Finally, my brethren, be strong in the Lord, and in the power of his might.
-
-    COLOSSIANS 3:25 But he that doeth wrong shall receive for the wrong which he hath done: and there is no respect of persons.
-
-    COLOSSIANS 4:1 Masters, give unto your servants that which is just and equal; knowing that ye also have a Master in heaven.
-
-    JAMES 2:1 My brethren, have not the faith of our Lord Jesus Christ, the Lord of glory, with respect of persons.
-
-    JAMES 2:2 For if there come unto your assembly a man with a gold ring, in goodly apparel, and there come in also a poor man in vile raiment;
-
-    1_PETER 1:17 And if ye call on the Father, who without respect of persons judgeth according to every man's work, pass the time of your sojourning here in fear:
-
-    1_PETER 1:18 Forasmuch as ye know that ye were not redeemed with corruptible things, as silver and gold, from your vain conversation received by tradition from your fathers;
-
-
-# JUST KEEP WATCHING FLAT EARTH VIDEOS AND ANTI NEW WORLD ORDER VIDEOS!
-
-[![JUST KEEP WATCHING FLAT EARTH VIDEOS AND ANTI NEW WORLD ORDER VIDEOS](images/12790840_469275703272169_3170264075263137737_n.jpg)](https://www.youtube.com/results?search_query=flat+earth+live)
-
-[https://www.youtube.com/results?search_query=flat+earth+live](https://www.youtube.com/results?search_query=flat+earth+live)
-
-> Pride aside. The earth is flat and that's not even the important bit..the reasons they're lying will lead you to the origins of earth, who and what we are, where we live and what we are doing here, free energy, frequencies and magnesium. good luck.﻿
-- JJN
-
-[![plane-flying-thru-the-sun](images/plane-flying-thru-the-sun.png)](https://www.youtube.com/watch?v=eN8yhUzqLCA)
-
-[I witnessed the most mysterious thing ever - Plane flying THROUGH the Sun](https://www.youtube.com/watch?v=eN8yhUzqLCA)
-
-[![fake-news-lies-and-deception](images/fake-news-lies-and-deception.png)](https://www.youtube.com/watch?v=4uBgd8XlYwg)
-
-[YOU'VE BEEN BRAINWASHED SINCE BIRTH by Captain Obvious](https://www.youtube.com/watch?v=4uBgd8XlYwg)
-
-[![thomas-jefferson-educate-and-inform-the-masses-quote](images/thomas-jefferson-educate-and-inform-the-masses-quote.png)](https://www.youtube.com/watch?v=eSjtQiZJGT0)
-
-[Silent Weapons for Quiet Wars Part 1 of 4](https://www.youtube.com/watch?v=eSjtQiZJGT0)
-
-[![indoctrination-camps-are-schools](images/indoctrination-camps-are-schools.png)](https://www.youtube.com/watch?v=72Lrz0khXP0)
-
-[Forced Government Indoctrination Camps](https://www.youtube.com/watch?v=72Lrz0khXP0)
-
-[![dubai-flat-earth-ruler-comparison](images/dubai-flat-earth-ruler-comparison.png)](https://www.youtube.com/watch?v=UbYtkrTquXE&list=PL7X63Sm3kODMi6OX15TRIqXzc3usAkf2-&index=3)
-
-[IMPOSSIBALL 🌎 Flat Earth Documentary (2017)](https://www.youtube.com/watch?v=UbYtkrTquXE&list=PL7X63Sm3kODMi6OX15TRIqXzc3usAkf2-&index=3)
-
-[![disney-has-subliminal-messages-and-disney-is-evil](images/disney-has-subliminal-messages-and-disney-is-evil.png)](https://www.youtube.com/watch?v=fjtstLZeTIs)
-
-[Oversexualizing Society & Innocent Children ▶️️](https://www.youtube.com/watch?v=fjtstLZeTIs)
-
-[![children-are-too-young-intent-to-sell](images/children-are-too-young-intent-to-sell.png)](https://www.youtube.com/watch?v=Hh6XGGW79qM)
-
-[Children Under Attack Marketing to Kids is Pedophilia ▶️️](https://www.youtube.com/watch?v=Hh6XGGW79qM)
-
-[![canada-gender-neutral](images/canada-gender-neutral.png)](https://www.youtube.com/watch?v=NTc1D_K0XeY)
-
-[Warning:🚸Schools After Your Children's Identity](https://www.youtube.com/watch?v=NTc1D_K0XeY)
-
-[![aims-of-the-frankfurt-school](images/aims-of-the-frankfurt-school.png)](https://www.youtube.com/watch?v=tNDz75-9bps)
-
-[The Devil's Playbook (How He Deceives You)! Part 1](https://www.youtube.com/watch?v=tNDz75-9bps)
-
-[![all-truth-passes-thru-three-stages](images/all-truth-passes-thru-three-stages.png)](https://www.youtube.com/watch?v=tuqqPS5z3uw)
-
-[40 Bible verses that prove the Earth is FLAT!](https://www.youtube.com/watch?v=tuqqPS5z3uw)
-
-[![GlobeBusters](images/GlobeBusters.png)](https://www.youtube.com/watch?v=OBCsoAvgXmg)
-
-[Flat Earth - Who, What, When, Where, Why, and How!](https://www.youtube.com/watch?v=OBCsoAvgXmg)
-
-[![NDT-vs-FEA](images/NDT-vs-FEA.png)](https://www.youtube.com/watch?v=pildmrRi8XE)
-
-[Neil Degrasse Tyson vs Flat Earth Asshole](https://www.youtube.com/watch?v=pildmrRi8XE)
-
-[![Operation-Earnest-Voice-Facts](images/Operation-Earnest-Voice-Facts.png)](https://www.youtube.com/watch?v=zR-T2Ocksqo)
-
-[OPERATION EARNEST VOICE IS DESTROYING NASA/.GOV WHISTLEBLOWERS by Captain Obvious](https://www.youtube.com/watch?v=zR-T2Ocksqo)
-
-[![dr.robert-sungenis-presentation-on-geocentrism-in-dalas-tx](images/dr.robert-sungenis-presentation-on-geocentrism-in-dalas-tx.png)](https://www.youtube.com/watch?v=Rwx7bYEUIF4)
-
-[Dr. Robert Sungenis presentation on Geocentrism in Dallas, Texas](https://www.youtube.com/watch?v=Rwx7bYEUIF4)
-
-[![drink-the-kool-aid-means-blindly-follow](images/drink-the-kool-aid-means-blindly-follow.png)](https://www.youtube.com/watch?v=E4sdGMx0gcg)
-
-[The Kool-Aid Man Cometh](https://www.youtube.com/watch?v=E4sdGMx0gcg)
-
-[![666-chip](images/666-chip.png)](https://www.youtube.com/watch?v=t4jUWgHhDvU)
-
-[THE MOST DISTURBING VIDEO OF 2017 by Captain Obvious](https://www.youtube.com/watch?v=t4jUWgHhDvU)
-
-[![walmart-fema-camps](images/walmart-fema-camps.png)](https://www.youtube.com/watch?v=RNYgEfStYn4)
-
-[Do You Know How It Will All End? - This Man Reveals All Their Plans (P3)](https://www.youtube.com/watch?v=RNYgEfStYn4)
-
-[![walmart-martial-law](images/walmart-martial-law.png)](https://www.youtube.com/watch?v=EG48HsywpHU)
-
-[It's no longer a theory, Its reality(WALMART-MART-LAW)](https://www.youtube.com/watch?v=xe_Bjxoe5ts)
-
-[![walmart-fema-martial-law](images/walmart-fema-martial-law.png)](https://www.youtube.com/watch?v=GHFzwkC42-0)
-
-[Look Like a Walmart Location To You? - This Reveals All Their Plans!](https://www.youtube.com/watch?v=GHFzwkC42-0)
-
-[![google-leaks-walmwart-fema-camps](images/google-leaks-walmwart-fema-camps.png)](https://www.youtube.com/watch?v=4Cm4D1xLE9c)
-
-[The VIDEO that WALMART DOESN'T Want You To See!! Future RFID Chipping Hubs...](https://www.youtube.com/watch?v=4Cm4D1xLE9c)
-
-[![walmart-fema-martial-law1](images/walmart-fema-martial-law1.png)](https://www.youtube.com/watch?v=SYCjGUhU5Dc)
-
-[Walmart Does NOT Want You To See This Video - FEMA Camps Exposed (Illuminati Exposed) (2017)](https://www.youtube.com/watch?v=SYCjGUhU5Dc)
-
-[![trump-and-clinton-are-distant-relatives](images/trump-and-clinton-are-distant-relatives.png)](https://www.youtube.com/watch?v=YtRBexcpFTA)
-
-[Jesuits Have Seized The White House.](https://www.youtube.com/watch?v=YtRBexcpFTA)
-
-[![the-secret-instructions-of-the-jesuits](images/the-secret-instructions-of-the-jesuits.png)](https://www.youtube.com/watch?v=ixZrnHDrESg)
-
-[Old Jesuit Book Reveals True Agenda !!! (Must see)](https://www.youtube.com/watch?v=ixZrnHDrESg)
-
-[![illuminate-card-game-is-complete](images/illuminate-card-game-is-complete.png)](https://www.youtube.com/watch?v=5XDxgKnv7eE)
-
-[Illuminati card game Complete .](https://www.youtube.com/watch?v=5XDxgKnv7eE)
-
-[![rapture-is-not-what-youve-been-led-to-believe-all-your-life](images/rapture-is-not-what-youve-been-led-to-believe-all-your-life.png)](http://www.kingjamesbibledictionary.com/Dictionary/rapture)
-
-[Rapture Not Biblical Part 1](https://www.youtube.com/watch?v=zMWV1spomZc)
-
-[![rapture-is-not-biblical](images/rapture-is-not-biblical.png)](https://www.youtube.com/watch?v=i3hXKNTMuEY)
-
-[Jesuits Created The Secret Rapture & 7 Year Tribulation, & Both Are False Doctrines And Unbiblical](https://www.youtube.com/watch?v=i3hXKNTMuEY)
-
-[![beware-the-greatest-deception-of-all](images/beware-the-greatest-deception-of-all.png)](https://www.youtube.com/watch?v=8Gsj9Ed8qkU)
-
-[Beware: The Greatest Deception of All - Billions will be Deceived](https://www.youtube.com/watch?v=8Gsj9Ed8qkU)
-
-[![science-vs-religion](images/science-vs-religion.png)](https://www.youtube.com/watch?v=HxeKoII1UPk)
-
-[IS FLAT EARTH A PSYOP TO DISCREDIT A GEOCENTRIC EARTH? Rick DeLano Interview for THE PRINCIPLE](https://www.youtube.com/watch?v=HxeKoII1UPk)
-
-[![dod-flat-earth](images/dod-flat-earth.png)](https://www.youtube.com/watch?v=EGk3jW95bbA)
-
-[DEPARTMENT OF DEFENSE SAYS EARTH IS FLAT & STATIONARY. THE END TO FAKE SPINNING GLOBE](https://www.youtube.com/watch?v=EGk3jW95bbA)
-
-[![un-plan-to-destroy-america-control-food-fema-camps](images/un-plan-to-destroy-america-control-food-fema-camps.png)](https://www.youtube.com/watch?v=ZC5BdOsASpc)
-
-[Shocking Military Letter Confirms UN Plans To Soon Destroy America and More!](https://www.youtube.com/watch?v=ZC5BdOsASpc)
-
-[![the-first-sign-of-Jesus-return-is-deception](images/the-first-sign-of-Jesus-return-is-deception.png)](https://www.youtube.com/watch?v=TCaMSo4bcxA)
-
-[I was Forced to Leave my Church](https://www.youtube.com/watch?v=TCaMSo4bcxA)
-
-[![illuminati-card-game-flat-earthers-nasa](images/illuminati-card-game-flat-earthers-nasa.png)](https://www.youtube.com/watch?v=5dhV5xlWFw0)
-
-[ILLUMINATI CARD GAME EXPOSED!!! Just A Game? Or Really The TRUTH?](https://www.youtube.com/watch?v=5dhV5xlWFw0)
-
-[![illuminati-card-game-hillary-clinton](images/illuminati-card-game-hillary-clinton.png)](https://www.youtube.com/watch?v=NHFGImDon24)
-
-[ILLUMINATI CARD GAME EXPOSED!!! PART TWO!](https://www.youtube.com/watch?v=NHFGImDon24)
-
-[![illuminati-card-game-plague-of-demons](images/illuminati-card-game-plague-of-demons.png)](https://www.youtube.com/watch?v=qaSngXGfvdY)
-
-[ILLUMINATI CARD GAME EXPOSED!!! PART THREE!](https://www.youtube.com/watch?v=qaSngXGfvdY)
-
-## ALMOST EVERYTHING THEY SAY IS REALLY THE OPPOSITE OF THE REAL TRUTH!
-
-## NO OFFENSE BUT WE ARE IN TROUBLE AND THE TRUTH MUST BE SEEN AND HEARD!
-
-## SILENCE IS BETRAYAL! TRUTH IS HERE NOW! YOU CAN'T ESCAPE IT! LEARN IT!
-
-## DO HUMANITY A FAVOR! WAKE UP! CHECK IT OUT! BUST BACK! TIME HAS COME!
-
-## IT IS EASIER TO FOOL PEOPLE, THAN TO CONVINCE THEM THEY'VE BEEN FOOLED!
-
-# YOU HAVE TO BE ASLEEP TO HAVE THE AMERICAN DREAM!
-
-# OPEN YOUR EYES BEFORE YOU DIE! WAKE UP! BREAK FREE!
-
-## BREAK OUT OF THE MENTAL PRISON FOR YOUR MIND! WAKE UP!
-
-## EITHER WAY THEY DUMB US DOWN AND KILL US SLOWLY! RISE UP!
-
-## GLOBE HOAX TAKES THE CAKE! SOONER OR LATER YOU WILL HAVE TO WAKE UP!
-
-## ITS EASY CONTROLLING BODIES WHEN THEIR MINDS ARE IN PRISON! BREAK FREE!
-
-## YOU THINK YOUR LACK OF COMMON SENSE DON'T HAVE A CONSEQUENCE? RESIST!
-
-## DO THE RESEARCH! DON'T BE A CLOWN! WORD OF GOD IS TRUTH! THINK ABOUT IT!
-
-### THE EARTH IS FLAT! NASA GOVERNMENT MAINSTREAM MEDIA LIES! DON'T BE IGNORANT! WAKE UP!
-
-### WATCH OUT FOR CIA OPERATIVES ZOMBIES CLOWNS AND THOSE WHO GET PAID TO HIDE THE TRUTH!
-
-### PLEASE SHARE! TELL EVERYONE! SCIENCE IS A FALSE RELIGION CALLED SCIENTISM!
-
-### THE BEST THING YOU CAN DO WITH YOUR TIME IS SHARE THE INFO AND MAKE PEOPLE AWARE!
-
-### IT'S IMPOSSIBLE TO BE TRULY FREE WHEN YOUR MIND IS IN A MENTAL PRISON!
-
-### TRUTH HURTS WHEN YOU BELIEVE LIES! ARE YOU BIG BANG BELIEVING CHRISTIAN?! ENJOY HELL!
-
-### THEORY OF RELATIVITY! DID YOU FALL ON YOUR FACE? OR DID EARTH RISE TO MEET YOUR FACE?
-
-### GUY FAWKES TRIED TO KILL KING JAMES TO STOP THE KJV BIBLE! GUNPOWDER TREASON!
-
-[The Gunpowder Treason of 1605](https://www.youtube.com/watch?v=rBCgjkcp-s4)
-
-[History Of The King James Bible, Beginnings Of The Jesuits, & Persecution From The Catholic Church](https://www.youtube.com/watch?v=u026TRV3ATY)
-
-[Jesuits, Christianity, Counter Reformation and King James Bible](https://www.youtube.com/watch?v=Ri-KcmLgD5k)
-
-[The Jesuit's Recommended Bible Versions!](https://www.youtube.com/watch?v=Hcs3-SXg4k8)
-
-[Jesuits And The "Local Church"](https://www.youtube.com/watch?v=go5yvATFZgQ)
-
-[No Local Church?](https://www.youtube.com/watch?v=yL3xQczN6pE)
-
-[13 Reasons Every Christian MUST Reject The Mass Part 1](https://www.youtube.com/watch?v=XFSUbaumyic)
-
-[13 Reasons Every Christian MUST Reject The Mass Part 2](https://www.youtube.com/watch?v=nCGFBOgZ4bc)
-
-[Flat Earth: Jesuits & the Global Conspiracy!](https://www.youtube.com/watch?v=1WHIr-IFqAo&t=85)
-
-[Mark of the Beast: What it is & how to avoid it!](https://www.youtube.com/watch?v=FLYZgOaIWW0)
-
-[The Creator's Calendar](https://www.youtube.com/watch?v=DbzFGEfgP_8)
-
-[Hell: You've Got it All Wrong!](https://www.youtube.com/watch?v=c-oeQgAsPzk)
-
-[Eternal Fire Exists ...but it's not what you think!](https://www.youtube.com/watch?v=qhwojArfuEI)
-
-[The Trinity: Lie of Antiquity!](https://www.youtube.com/watch?v=RUE7OPg-EkI)
-
-[The Trinity: Satan’s Attack Against Calvary](https://www.youtube.com/watch?v=9MZjj7Qwy1w)
-
-[Nephilim (Giants) in the Bible: Is Yahuwah a Genocidal Maniac or a Loving Creator?](https://www.youtube.com/watch?v=QsI0YsAnl1A)
-
-[Christmas: Origin, History, & Traditions](https://www.youtube.com/watch?v=p4E3H1AWuAY)
-
-[Easter - Pagan Passover](https://www.youtube.com/watch?v=mnVnArw4Bjw)
-
-[The Resurrection: Easter? or First Fruits?](https://www.youtube.com/watch?v=rsJh_KDllxE)
-
-# [Flat Earth](https://www.youtube.com/watch?v=UbYtkrTquXE&list=PL7X63Sm3kODMi6OX15TRIqXzc3usAkf2-) [English Flat Earth playlist]
-
-# [Tierra Plana](https://www.youtube.com/playlist?list=PL7X63Sm3kODP0KENF_nh8zcMTDPSIXvPe) [Spanish Flat Earth playlist]
-
-# [Плоская Земля](https://www.youtube.com/watch?v=qvyytQUnL8o&list=PL7X63Sm3kODMXewMFI3c50-mBggHpIIDF) [Russian Flat Earth playlist]
-
-# YouTube Search "[Flat Earth](https://www.youtube.com/results?search_query=flat+earth)" [English YouTube Search]
-
-# YouTube Buscar "[tierra plana](https://www.youtube.com/results?search_query=tierra+plana)" [Spanish YouTube Search]
-
-# Ютуб Поиск "[Плоская Земля](https://www.youtube.com/results?search_query=%D0%9F%D0%BB%D0%BE%D1%81%D0%BA%D0%B0%D1%8F+%D0%97%D0%B5%D0%BC%D0%BB%D1%8F)" [Russian YouTube Search]
-
-# YouTube Recherche "[Terre Plate](https://www.youtube.com/results?search_query=plate+terre)" [French YouTube Search]
-
-# YouTube 検索 "[フラット・アース](https://www.youtube.com/results?search_query=%E3%83%95%E3%83%A9%E3%83%83%E3%83%88%E3%83%BB%E3%82%A2%E3%83%BC%E3%82%B9)" [Japanese YouTube Search]
-
-)[الأرض المسطحة] #https://www.youtube.com/results?search_query=%D8%A7%D9%84%D8%A3%D8%B1%D8%B6+%D8%A7%D9%84%D9%85%D8%B3%D8%B7%D8%AD%D8%A9) [Arabic YouTube Search]
-
-#)[שטוח כדור הארץ] https://www.youtube.com/results?search_query=%D7%A9%D7%98%D7%95%D7%97+%D7%9B%D7%93%D7%95%D7%A8+%D7%94%D7%90%D7%A8%D7%A5) [Hebrew YouTube Search]
-
-![closed-minded-open-minded](images/closed-minded-open-minded.png)
-
-[![rowdy-roddy-piper-tweet-they-live-is-a-documentary](images/rowdy-roddy-piper-tweet-they-live-is-a-documentary.png)](https://twitter.com/R_Roddy_Piper/status/383693269068050432)
-
-[https://twitter.com/R_Roddy_Piper/status/383693269068050432](https://twitter.com/R_Roddy_Piper/status/383693269068050432)
-
-[![they-live-kick-ass-no-bubble-gum](images/they-live-kick-ass-no-bubble-gum.png)](https://www.youtube.com/watch?v=_urOCJ78Sg4&list=PLm6Vq0bTTCDjvTd6TkzCNNajMpcydFHkU)
-
-"They live is a documentary!!" - Rowdy Piper tweeted those words before they killed him using the heart attack gun. 
-
-[http://truthstreammedia.com/2013/10/02/rowdy-roddy-piper-admits-they-live-was-actually-a-documentary/](http://truthstreammedia.com/2013/10/02/rowdy-roddy-piper-admits-they-live-was-actually-a-documentary/) 
-
-[CIA's Heart Attack Gun](https://www.youtube.com/watch?v=Uwy56QTV4cs)
-
-[Queen Admits She is "Not Human" & We'll "Learn to Accept Her For What She Is"](https://www.youtube.com/watch?v=viRsgEuZzrY)
-
-[Symbolic Cinema Playlist by ODD Reality](https://www.youtube.com/watch?v=_urOCJ78Sg4&list=PLm6Vq0bTTCDjvTd6TkzCNNajMpcydFHkU)
-
-[![flat-earth-isaiah40-22](images/flat-earth-isaiah40-22.jpg)](https://www.youtube.com/watch?v=0jdBiz_vwe0)
-
-[The Genesis Revelation - How the Bible absolutely describes an enclosed world cosmology](https://www.youtube.com/watch?v=0jdBiz_vwe0)
-
-**ISAIAH 40:22:** It is he that sitteth upon the circle of the earth, and the inhabitants thereof are as grasshoppers; that stretcheth out the heavens as a curtain, and spreadeth them out as a tent to dwell in:
-
-#### God is so kind that it is impossible to imagine His unbounded kindness.
-
-**PSALMS 47:7:** For God is the King of all the earth: sing ye praises with understanding.
-
-**PSALMS 147:5:** Great is our Lord, and of great power: his understanding is infinite.
-
-**PSALMS 150:1:** Praise ye the LORD. Praise God in his sanctuary: praise him in the firmament of his power.
-
-**PROVERBS 2:6:** For the LORD giveth wisdom: out of his mouth cometh knowledge and understanding.
-
-## [Praise GOD Everyday!](https://www.youtube.com/watch?v=i2U3Ld-ZYpM)
-
-[![the-firmament](images/the-firmament.jpeg)](https://www.youtube.com/watch?v=0F7zNIJWAoM)
-
-[How many firmaments are there? And how can birds fly in the firmament??](https://www.youtube.com/watch?v=0F7zNIJWAoM)
-
-![firmament](images/firmament.jpg)
-
-![flat-earth-maps](images/flat-earth-maps.jpg)
-
-![AncientFirmament](images/AncientFirmament.jpg)
-
-![flat-earth-firmament-2c](images/flat-earth-firmament-2c.png)
-
-![e83e3141866d8a5c082b646ed52bcf53](images/e83e3141866d8a5c082b646ed52bcf53.jpg)
-
-![FlatEarthModel1](images/FlatEarthModel1.jpg)
-
-![MJ_2014_Firmament_Realm_of_God](images/MJ_2014_Firmament_Realm_of_God.jpg)
-
-![mqdefault](images/mqdefault.jpg)
-
-![jtot_genesis_cosmology](images/jtot_genesis_cosmology.jpg)
-
-![HkAHHM3c](images/HkAHHM3c.png)
-
-![space-junk](images/space-junk.png)
-
-![atheism](images/atheism.png)
-
-![NASA_Serpent](images/NASA_Serpent.jpg)
-
-![second-coming-of-jesus-christ_heaven-opened-up](images/second-coming-of-jesus-christ_heaven-opened-up.jpg)
-
-### One thing if for sure, this has taught me how to put my ego to the side.
-
-#### What I know is that I don't know anything, so I keep looking for the truth/answers and realize how little I actually know, but the more I keep looking for the truth the more I know that I have a chance to be saved!
-
-### Just trying to spread awareness, so to help save humanity or at least buy some time!
-
+           
+           
 **Note:** You can use [http://listenonrepeat.com](http://listenonrepeat.com) for any videos that you want to listen to on repeat!
 
 ## [VIDEOS ON YOUTUBE](VIDEOS.md)
