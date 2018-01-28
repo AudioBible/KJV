@@ -984,14 +984,6 @@ Do what thou wilt? or do God's will? Which is it? Everyone has there own Truth? 
 
 [ILLUMINATI CARD GAME EXPOSED!!! PART THREE!](https://www.youtube.com/watch?v=qaSngXGfvdY)
 
-"They live is a documentary!!" - Rowdy Piper tweeted those words before they killed him using the heart attack gun. 
-
-[http://truthstreammedia.com/2013/10/02/rowdy-roddy-piper-admits-they-live-was-actually-a-documentary/](http://truthstreammedia.com/2013/10/02/rowdy-roddy-piper-admits-they-live-was-actually-a-documentary/) 
-
-[CIA's Heart Attack Gun](https://www.youtube.com/watch?v=Uwy56QTV4cs)
-
-[Queen Admits She is "Not Human" & We'll "Learn to Accept Her For What She Is"](https://www.youtube.com/watch?v=viRsgEuZzrY)
-
 ## ALMOST EVERYTHING THEY SAY IS REALLY THE OPPOSITE OF THE REAL TRUTH!
 
 ## NO OFFENSE BUT WE ARE IN TROUBLE AND THE TRUTH MUST BE SEEN AND HEARD!
@@ -1099,6 +1091,14 @@ Do what thou wilt? or do God's will? Which is it? Everyone has there own Truth? 
 [https://twitter.com/R_Roddy_Piper/status/383693269068050432](https://twitter.com/R_Roddy_Piper/status/383693269068050432)
 
 [![they-live-kick-ass-no-bubble-gum](images/they-live-kick-ass-no-bubble-gum.png)](https://www.youtube.com/watch?v=_urOCJ78Sg4&list=PLm6Vq0bTTCDjvTd6TkzCNNajMpcydFHkU)
+
+"They live is a documentary!!" - Rowdy Piper tweeted those words before they killed him using the heart attack gun. 
+
+[http://truthstreammedia.com/2013/10/02/rowdy-roddy-piper-admits-they-live-was-actually-a-documentary/](http://truthstreammedia.com/2013/10/02/rowdy-roddy-piper-admits-they-live-was-actually-a-documentary/) 
+
+[CIA's Heart Attack Gun](https://www.youtube.com/watch?v=Uwy56QTV4cs)
+
+[Queen Admits She is "Not Human" & We'll "Learn to Accept Her For What She Is"](https://www.youtube.com/watch?v=viRsgEuZzrY)
 
 [Symbolic Cinema Playlist by ODD Reality](https://www.youtube.com/watch?v=_urOCJ78Sg4&list=PLm6Vq0bTTCDjvTd6TkzCNNajMpcydFHkU)
 
