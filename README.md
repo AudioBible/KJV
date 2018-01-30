@@ -1,4 +1,4 @@
-Last Modified: Sun Jan 28 22:30:40 UTC 2018
+Last Modified: Tue Jan 30 03:47:16 UTC 2018
 
 ## ![stats](https://c.statcounter.com/11394980/0/688bc3dd/0/) Welcome to [http://audiobible.life](http://audiobible.life) - Therefore Choose Life - [They Live](https://www.youtube.com/watch?v=JI8AMRbqY6w)
 
@@ -6,7 +6,7 @@ Last Modified: Sun Jan 28 22:30:40 UTC 2018
 
 [VIDEOS](VIDEOS.md) | [MUSIC](MUSIC.md) | [CHANNELS](CHANNELS.md) | [DOCUMENTS](DOCUMENTS.md) | [IMAGES](IMAGES.md) | [BOOKS](BOOKS.md) | [LINKS](LINKS.md) | [INFO](INFO.md) | **Join The Revolution**
 
-[![flat-earth-truth](images/flat-earth-truth.jpg)](https://www.youtube.com/watch?v=pNe1wWeaHOU&list=PLYI8318YYdkCsZ7dsYV01n6TZhXA6Wf9i&index=1)
+[Edward Hendrie Playlist on YouTube](https://www.youtube.com/watch?v=pNe1wWeaHOU&list=PLYI8318YYdkCsZ7dsYV01n6TZhXA6Wf9i&index=1)
 
 [Why They REMOVED The Book Of Enoch!!](https://www.youtube.com/watch?v=xUQaKOWPZEE)
 
@@ -36,7 +36,7 @@ Globe earth is mass mind control, if they can control your mind about the real s
 
 # Amazon﻿ book "The Greatest Lie on Earth" by Edward Hendrie
 
-[![The-Greatest-Lie-on-Earth-by-Edward-Hendrie.png](images/The-Greatest-Lie-on-Earth-by-Edward-Hendrie.png)](https://www.amazon.com/gp/product/1943056013)
+[The Greatest Lie on Earth by Edward Hendrie Book on Amazon](https://www.amazon.com/gp/product/1943056013)
 
 [The Greatest Lie on Earth: Proof That Our World Is Not a Moving Globe Paperback – January 17, 2016 by Edward Hendrie (Author)](https://www.amazon.com/gp/product/1943056013)
 
@@ -162,7 +162,7 @@ Globe earth is mass mind control, if they can control your mind about the real s
 
 # [Does the Bible say the Earth is flat?](https://hermeneutics.stackexchange.com/questions/8142/does-the-bible-say-the-earth-is-flat)
 
-[![ODD-TV-Living-In-Hell-Playlist](images/ODD-TV-Living-In-Hell-Playlist.png)](https://www.youtube.com/watch?v=TlTR7QQZQ8I&list=PL7X63Sm3kODPV43FyewOSadSnZwZGZQHU&index=1)
+[ODD TV Living In Hell Playlist on YouTube (Truth Music)](https://www.youtube.com/watch?v=TlTR7QQZQ8I&list=PL7X63Sm3kODPV43FyewOSadSnZwZGZQHU&index=1)
 
 ## послушай музыку анти ню ворлд ордер﻿! Listen to anti new world order music!
 
@@ -302,6 +302,8 @@ Globe earth is mass mind control, if they can control your mind about the real s
 
 [Nephilim (Giants) in the Bible: Is Yahuwah a Genocidal Maniac or a Loving Creator?](https://www.youtube.com/watch?v=QsI0YsAnl1A)
 
+[The Man Behind the Mask [Walter Veith]](https://www.youtube.com/watch?v=2WBYJ2SInBo)
+
 [Christmas: Origin, History, & Traditions](https://www.youtube.com/watch?v=p4E3H1AWuAY)
 
 [Easter - Pagan Passover](https://www.youtube.com/watch?v=mnVnArw4Bjw)
@@ -374,146 +376,76 @@ Do what thou wilt? or do God's will? Which is it? Everyone has there own Truth? 
 
 # JUST KEEP WATCHING FLAT EARTH VIDEOS AND ANTI NEW WORLD ORDER VIDEOS!
 
-[![JUST KEEP WATCHING FLAT EARTH VIDEOS AND ANTI NEW WORLD ORDER VIDEOS](images/12790840_469275703272169_3170264075263137737_n.jpg)](https://www.youtube.com/results?search_query=flat+earth+live)
-
 [https://www.youtube.com/results?search_query=flat+earth+live](https://www.youtube.com/results?search_query=flat+earth+live)
 
 > Pride aside. The earth is flat and that's not even the important bit..the reasons they're lying will lead you to the origins of earth, who and what we are, where we live and what we are doing here, free energy, frequencies and magnesium. good luck.﻿
 - JJN
 
-[![plane-flying-thru-the-sun](images/plane-flying-thru-the-sun.png)](https://www.youtube.com/watch?v=eN8yhUzqLCA)
-
 [I witnessed the most mysterious thing ever - Plane flying THROUGH the Sun](https://www.youtube.com/watch?v=eN8yhUzqLCA)
-
-[![fake-news-lies-and-deception](images/fake-news-lies-and-deception.png)](https://www.youtube.com/watch?v=4uBgd8XlYwg)
 
 [YOU'VE BEEN BRAINWASHED SINCE BIRTH by Captain Obvious](https://www.youtube.com/watch?v=4uBgd8XlYwg)
 
-[![thomas-jefferson-educate-and-inform-the-masses-quote](images/thomas-jefferson-educate-and-inform-the-masses-quote.png)](https://www.youtube.com/watch?v=eSjtQiZJGT0)
-
 [Silent Weapons for Quiet Wars Part 1 of 4](https://www.youtube.com/watch?v=eSjtQiZJGT0)
-
-[![indoctrination-camps-are-schools](images/indoctrination-camps-are-schools.png)](https://www.youtube.com/watch?v=72Lrz0khXP0)
 
 [Forced Government Indoctrination Camps](https://www.youtube.com/watch?v=72Lrz0khXP0)
 
-[![dubai-flat-earth-ruler-comparison](images/dubai-flat-earth-ruler-comparison.png)](https://www.youtube.com/watch?v=UbYtkrTquXE&list=PL7X63Sm3kODMi6OX15TRIqXzc3usAkf2-&index=3)
-
 [IMPOSSIBALL 🌎 Flat Earth Documentary (2017)](https://www.youtube.com/watch?v=UbYtkrTquXE&list=PL7X63Sm3kODMi6OX15TRIqXzc3usAkf2-&index=3)
-
-[![disney-has-subliminal-messages-and-disney-is-evil](images/disney-has-subliminal-messages-and-disney-is-evil.png)](https://www.youtube.com/watch?v=fjtstLZeTIs)
 
 [Oversexualizing Society & Innocent Children ▶️️](https://www.youtube.com/watch?v=fjtstLZeTIs)
 
-[![children-are-too-young-intent-to-sell](images/children-are-too-young-intent-to-sell.png)](https://www.youtube.com/watch?v=Hh6XGGW79qM)
-
 [Children Under Attack Marketing to Kids is Pedophilia ▶️️](https://www.youtube.com/watch?v=Hh6XGGW79qM)
-
-[![canada-gender-neutral](images/canada-gender-neutral.png)](https://www.youtube.com/watch?v=NTc1D_K0XeY)
 
 [Warning:🚸Schools After Your Children's Identity](https://www.youtube.com/watch?v=NTc1D_K0XeY)
 
-[![aims-of-the-frankfurt-school](images/aims-of-the-frankfurt-school.png)](https://www.youtube.com/watch?v=tNDz75-9bps)
-
 [The Devil's Playbook (How He Deceives You)! Part 1](https://www.youtube.com/watch?v=tNDz75-9bps)
-
-[![all-truth-passes-thru-three-stages](images/all-truth-passes-thru-three-stages.png)](https://www.youtube.com/watch?v=tuqqPS5z3uw)
 
 [40 Bible verses that prove the Earth is FLAT!](https://www.youtube.com/watch?v=tuqqPS5z3uw)
 
-[![GlobeBusters](images/GlobeBusters.png)](https://www.youtube.com/watch?v=OBCsoAvgXmg)
-
 [Flat Earth - Who, What, When, Where, Why, and How!](https://www.youtube.com/watch?v=OBCsoAvgXmg)
-
-[![NDT-vs-FEA](images/NDT-vs-FEA.png)](https://www.youtube.com/watch?v=pildmrRi8XE)
 
 [Neil Degrasse Tyson vs Flat Earth Asshole](https://www.youtube.com/watch?v=pildmrRi8XE)
 
-[![Operation-Earnest-Voice-Facts](images/Operation-Earnest-Voice-Facts.png)](https://www.youtube.com/watch?v=zR-T2Ocksqo)
-
 [OPERATION EARNEST VOICE IS DESTROYING NASA/.GOV WHISTLEBLOWERS by Captain Obvious](https://www.youtube.com/watch?v=zR-T2Ocksqo)
-
-[![dr.robert-sungenis-presentation-on-geocentrism-in-dalas-tx](images/dr.robert-sungenis-presentation-on-geocentrism-in-dalas-tx.png)](https://www.youtube.com/watch?v=Rwx7bYEUIF4)
 
 [Dr. Robert Sungenis presentation on Geocentrism in Dallas, Texas](https://www.youtube.com/watch?v=Rwx7bYEUIF4)
 
-[![drink-the-kool-aid-means-blindly-follow](images/drink-the-kool-aid-means-blindly-follow.png)](https://www.youtube.com/watch?v=E4sdGMx0gcg)
-
 [The Kool-Aid Man Cometh](https://www.youtube.com/watch?v=E4sdGMx0gcg)
-
-[![666-chip](images/666-chip.png)](https://www.youtube.com/watch?v=t4jUWgHhDvU)
 
 [THE MOST DISTURBING VIDEO OF 2017 by Captain Obvious](https://www.youtube.com/watch?v=t4jUWgHhDvU)
 
-[![walmart-fema-camps](images/walmart-fema-camps.png)](https://www.youtube.com/watch?v=RNYgEfStYn4)
-
 [Do You Know How It Will All End? - This Man Reveals All Their Plans (P3)](https://www.youtube.com/watch?v=RNYgEfStYn4)
-
-[![walmart-martial-law](images/walmart-martial-law.png)](https://www.youtube.com/watch?v=EG48HsywpHU)
 
 [It's no longer a theory, Its reality(WALMART-MART-LAW)](https://www.youtube.com/watch?v=xe_Bjxoe5ts)
 
-[![walmart-fema-martial-law](images/walmart-fema-martial-law.png)](https://www.youtube.com/watch?v=GHFzwkC42-0)
-
 [Look Like a Walmart Location To You? - This Reveals All Their Plans!](https://www.youtube.com/watch?v=GHFzwkC42-0)
-
-[![google-leaks-walmwart-fema-camps](images/google-leaks-walmwart-fema-camps.png)](https://www.youtube.com/watch?v=4Cm4D1xLE9c)
 
 [The VIDEO that WALMART DOESN'T Want You To See!! Future RFID Chipping Hubs...](https://www.youtube.com/watch?v=4Cm4D1xLE9c)
 
-[![walmart-fema-martial-law1](images/walmart-fema-martial-law1.png)](https://www.youtube.com/watch?v=SYCjGUhU5Dc)
-
 [Walmart Does NOT Want You To See This Video - FEMA Camps Exposed (Illuminati Exposed) (2017)](https://www.youtube.com/watch?v=SYCjGUhU5Dc)
-
-[![trump-and-clinton-are-distant-relatives](images/trump-and-clinton-are-distant-relatives.png)](https://www.youtube.com/watch?v=YtRBexcpFTA)
 
 [Jesuits Have Seized The White House.](https://www.youtube.com/watch?v=YtRBexcpFTA)
 
-[![the-secret-instructions-of-the-jesuits](images/the-secret-instructions-of-the-jesuits.png)](https://www.youtube.com/watch?v=ixZrnHDrESg)
-
 [Old Jesuit Book Reveals True Agenda !!! (Must see)](https://www.youtube.com/watch?v=ixZrnHDrESg)
-
-[![illuminate-card-game-is-complete](images/illuminate-card-game-is-complete.png)](https://www.youtube.com/watch?v=5XDxgKnv7eE)
 
 [Illuminati card game Complete .](https://www.youtube.com/watch?v=5XDxgKnv7eE)
 
-[![rapture-is-not-what-youve-been-led-to-believe-all-your-life](images/rapture-is-not-what-youve-been-led-to-believe-all-your-life.png)](http://www.kingjamesbibledictionary.com/Dictionary/rapture)
-
 [Rapture Not Biblical Part 1](https://www.youtube.com/watch?v=zMWV1spomZc)
-
-[![rapture-is-not-biblical](images/rapture-is-not-biblical.png)](https://www.youtube.com/watch?v=i3hXKNTMuEY)
 
 [Jesuits Created The Secret Rapture & 7 Year Tribulation, & Both Are False Doctrines And Unbiblical](https://www.youtube.com/watch?v=i3hXKNTMuEY)
 
-[![beware-the-greatest-deception-of-all](images/beware-the-greatest-deception-of-all.png)](https://www.youtube.com/watch?v=8Gsj9Ed8qkU)
-
 [Beware: The Greatest Deception of All - Billions will be Deceived](https://www.youtube.com/watch?v=8Gsj9Ed8qkU)
-
-[![science-vs-religion](images/science-vs-religion.png)](https://www.youtube.com/watch?v=HxeKoII1UPk)
 
 [IS FLAT EARTH A PSYOP TO DISCREDIT A GEOCENTRIC EARTH? Rick DeLano Interview for THE PRINCIPLE](https://www.youtube.com/watch?v=HxeKoII1UPk)
 
-[![dod-flat-earth](images/dod-flat-earth.png)](https://www.youtube.com/watch?v=EGk3jW95bbA)
-
 [DEPARTMENT OF DEFENSE SAYS EARTH IS FLAT & STATIONARY. THE END TO FAKE SPINNING GLOBE](https://www.youtube.com/watch?v=EGk3jW95bbA)
-
-[![un-plan-to-destroy-america-control-food-fema-camps](images/un-plan-to-destroy-america-control-food-fema-camps.png)](https://www.youtube.com/watch?v=ZC5BdOsASpc)
 
 [Shocking Military Letter Confirms UN Plans To Soon Destroy America and More!](https://www.youtube.com/watch?v=ZC5BdOsASpc)
 
-[![the-first-sign-of-Jesus-return-is-deception](images/the-first-sign-of-Jesus-return-is-deception.png)](https://www.youtube.com/watch?v=TCaMSo4bcxA)
-
 [I was Forced to Leave my Church](https://www.youtube.com/watch?v=TCaMSo4bcxA)
-
-[![illuminati-card-game-flat-earthers-nasa](images/illuminati-card-game-flat-earthers-nasa.png)](https://www.youtube.com/watch?v=5dhV5xlWFw0)
 
 [ILLUMINATI CARD GAME EXPOSED!!! Just A Game? Or Really The TRUTH?](https://www.youtube.com/watch?v=5dhV5xlWFw0)
 
-[![illuminati-card-game-hillary-clinton](images/illuminati-card-game-hillary-clinton.png)](https://www.youtube.com/watch?v=NHFGImDon24)
-
 [ILLUMINATI CARD GAME EXPOSED!!! PART TWO!](https://www.youtube.com/watch?v=NHFGImDon24)
-
-[![illuminati-card-game-plague-of-demons](images/illuminati-card-game-plague-of-demons.png)](https://www.youtube.com/watch?v=qaSngXGfvdY)
 
 [ILLUMINATI CARD GAME EXPOSED!!! PART THREE!](https://www.youtube.com/watch?v=qaSngXGfvdY)
 
@@ -596,8 +528,6 @@ Do what thou wilt? or do God's will? Which is it? Everyone has there own Truth? 
 [Queen Admits She is "Not Human" & We'll "Learn to Accept Her For What She Is"](https://www.youtube.com/watch?v=viRsgEuZzrY)
 
 [Symbolic Cinema Playlist by ODD Reality](https://www.youtube.com/watch?v=_urOCJ78Sg4&list=PLm6Vq0bTTCDjvTd6TkzCNNajMpcydFHkU)
-
-[![flat-earth-isaiah40-22](images/flat-earth-isaiah40-22.jpg)](https://www.youtube.com/watch?v=0jdBiz_vwe0)
 
 [The Genesis Revelation - How the Bible absolutely describes an enclosed world cosmology](https://www.youtube.com/watch?v=0jdBiz_vwe0)
 
