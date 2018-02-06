@@ -7,10 +7,12 @@ Last Modified: Sat Sep  9 17:07:27 UTC 2017
 [VIDEOS](VIDEOS.md) | [MUSIC](MUSIC.md) | [CHANNELS](CHANNELS.md) | [DOCUMENTS](DOCUMENTS.md) | [IMAGES](IMAGES.md) | [BOOKS](BOOKS.md) | [LINKS](LINKS.md) | [INFO](INFO.md) | **Join The Revolution**
 
 - [http://cepher.net](http://cepher.net)
+- [My Channel on YouTube](https://www.youtube.com/channel/UCSwtSZAwhxnNApQS8RmKUVQ)
 
 LINKS
 =====
 
+- [https://www.blueletterbible.org](https://www.blueletterbible.org)
 - [http://www.divinerevelations.info](http://www.divinerevelations.info)
 - [http://johnnycirucci.com/](http://johnnycirucci.com/)
 - [http://blog.hasslberger.com/](http://blog.hasslberger.com/)

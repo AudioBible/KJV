@@ -1328,4 +1328,4 @@ I heard about Flat Earth in mid/late 2016 and only recently found out the real t
 
 ## JESUS CHRIST IS LORD! I LOVE YOU ALL! HOWEVER, I LOVE GODHEAD MORE!
 
-- With much Love, Professor Alex
+- With much Love, Professor Alex [My Channel on YouTube](https://www.youtube.com/channel/UCSwtSZAwhxnNApQS8RmKUVQ)
