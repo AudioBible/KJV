@@ -16,6 +16,8 @@ Last Modified: Tue Jan 30 03:47:16 UTC 2018
 
 [RFID - Mark Of The Beast - NTAG216 - 666 Decoded](https://www.youtube.com/watch?v=IlYKFxWqE3A)
 
+[Bitcoin created by the CIA and NSA, warns co-founder of Kaspersky security software firm](https://newstarget.com/2018-01-31-bitcoin-created-by-the-cia-and-nsa-warns-co-founder-of-kaspersky-security-software-firm.html)
+
 These people are christians, physicists, doctors and lawyers, if you need them to have a PHD to convince you to hear them out! It's not someone working at McDonald's or at the city recycling plant talking about this! Not that you shouldn't hear them out too!
 
 Globe earth is mass mind control, if they can control your mind about the real shape of the earth even though your senses tell you different, then every other deception is child's play! 9/11, Kennedy assassination, Lincoln assassination is all child's play!
