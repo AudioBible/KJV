@@ -1324,6 +1324,14 @@ I heard about Flat Earth in mid/late 2016 and only recently found out the real t
 
 🌎🤢💀﻿
 
+🐂💨🍐﻿
+
+🔮﻿
+
+🤣💨🌎﻿
+
+🎬📽📼🌎﻿ <--- lol 😄
+
 # [Are You Dedicated To God?](https://www.youtube.com/watch?v=0d1z8dmMo00)
 
 # [Common Scripture Misconceptions](https://www.youtube.com/watch?v=Hb_SWre4u44)
@@ -1333,3 +1341,5 @@ I heard about Flat Earth in mid/late 2016 and only recently found out the real t
 ## JESUS CHRIST IS LORD! I LOVE YOU ALL! HOWEVER, I LOVE GODHEAD MORE!
 
 - With much Love, Professor Alex [My Channel on YouTube](https://www.youtube.com/channel/UCSwtSZAwhxnNApQS8RmKUVQ)
+
+PS. I may be wrong about some stuff, and am always learning and doing research and don't always update this site, but just know I'm not perfect an can be wrong about stuff. I could be wrong about cussing but the earth is 100% flat and motionless!
