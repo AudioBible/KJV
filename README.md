@@ -6,20 +6,6 @@ Last Modified: Tue Jan 30 03:47:16 UTC 2018
 
 [VIDEOS](VIDEOS.md) | [MUSIC](MUSIC.md) | [CHANNELS](CHANNELS.md) | [DOCUMENTS](DOCUMENTS.md) | [IMAGES](IMAGES.md) | [BOOKS](BOOKS.md) | [LINKS](LINKS.md) | [INFO](INFO.md) | **Join The Revolution**
 
-[Why They REMOVED The Book Of Enoch!!](https://www.youtube.com/watch?v=xUQaKOWPZEE)
-
-[Cloning Centers EXPOSED! Cloning Is REAL! Celebrities Spill The Beans!!!](https://www.youtube.com/watch?v=kUJspQBHCRI)
-
-[Warning From Man Who Designed RFID Microchip](https://www.youtube.com/watch?v=nuv6IyQDjME)
-
-[RFID - Mark Of The Beast - NTAG216 - 666 Decoded](https://www.youtube.com/watch?v=IlYKFxWqE3A)
-
-[Bitcoin created by the CIA and NSA, warns co-founder of Kaspersky security software firm](https://newstarget.com/2018-01-31-bitcoin-created-by-the-cia-and-nsa-warns-co-founder-of-kaspersky-security-software-firm.html)
-
-[https://www.nasa.gov/centers/dryden/pdf/88104main_H-1391.pdf](https://www.nasa.gov/centers/dryden/pdf/88104main_H-1391.pdf) NASA in their own words in their own document say "flying over a flat, nonrotating earth" then they show you cartoons and lie to your face and you take it as reality!
-
-These people are christians, physicists, doctors and lawyers, if you need them to have a PHD to convince you to hear them out! It's not someone working at McDonald's or at the city recycling plant talking about this! Not that you shouldn't hear them out too!
-
 Globe earth is mass mind control, if they can control your mind about the real shape of the earth even though your senses tell you different, then every other deception is child's play! 9/11, Kennedy assassination, Lincoln assassination is all child's play!
 
 [Edward Hendrie Playlist on YouTube](https://www.youtube.com/watch?v=pNe1wWeaHOU&list=PLYI8318YYdkCsZ7dsYV01n6TZhXA6Wf9i&index=1)
@@ -45,6 +31,18 @@ Globe earth is mass mind control, if they can control your mind about the real s
 [The Greatest Lie on Earth: Proof That Our World Is Not a Moving Globe Paperback – January 17, 2016 by Edward Hendrie (Author)](https://www.amazon.com/gp/product/1943056013)
 
 [ODD TV's Flat Earth Trilogy ▶️️](https://www.youtube.com/watch?v=ARp2j8t3O8Q)
+
+If you believe that you live on a spinning globe, think again. Heliocentrism and the spinning globe earth paradigm is a 500 years and running conspiracy perpetrated by the Jesuits, the Vatican, Zionist Jews and the Freemasons. There is no observable curvature on this earth and motion has never once been detected. NASA has never been passed "low earth orbit" and the moon landing was obviously staged. Once you understand the consequences of living on a flat earth, you'll start to see why this information is so important. We are systematically brainwashed and conditioned to believe is nonsensical theories like evolution, gravity and the big bang. We are taught that we come from nothing, and that over time we slowly evolved from ape like creatures. Then why is there no proof for this or the other theories?
+
+NASA lies and is basically spearheading the campaign to deceive you and the rest of the world. Even SpaceX and other "aerospace" companies are a part of the deception, at least the owners and employees at the highest echelons. (To clarify, not every scientist, pilot, school teacher or NASA employee is in on this conspiracy). But don't let mainstream science and these fake space programs fool you. Think critically, logically and do your own research before blindly believing that you live on a spinning, pear shaped oblate spheroid darting through infinite space at ridiculous speeds that have never been proven. Research Flat Earth.
+
+[The truth in PLANE sight (2018 Documentary)](https://www.youtube.com/watch?v=x15CE3pUbRM)
+
+[🔬 SCIENTISM EXPOSED 🔭 Full Documentary (2016) HD](https://www.youtube.com/watch?v=AeIGrEtPMmE)
+
+[The Global Lie - Flat Earth Documentary (2016) HD](https://www.youtube.com/watch?v=yi2NbIf_7p4)
+
+[Flat Earth turning point and Nasa admits no moon landing](https://www.youtube.com/watch?v=vYvxQiTFzFc)
 
 [FLAT EARTH - 1000 YEARS OLD MAP Shows MORE Land Beyond ANTARTICA Edge/Ice Wall - Honolulu Map](https://www.youtube.com/watch?v=OxumjAIgLiM)
 
@@ -172,11 +170,15 @@ Globe earth is mass mind control, if they can control your mind about the real s
 
 # [Truth Music - **MUST SEE AND HEAR**](https://www.youtube.com/watch?v=TlTR7QQZQ8I&list=PL7X63Sm3kODPV43FyewOSadSnZwZGZQHU&index=1) [playlist with ~700 songs]
 
-[🔬 SCIENTISM EXPOSED 🔭 Full Documentary (2016) HD](https://www.youtube.com/watch?v=AeIGrEtPMmE)
+[Why They REMOVED The Book Of Enoch!!](https://www.youtube.com/watch?v=xUQaKOWPZEE)
 
-[The Global Lie - Flat Earth Documentary (2016) HD](https://www.youtube.com/watch?v=yi2NbIf_7p4)
+[Warning From Man Who Designed RFID Microchip](https://www.youtube.com/watch?v=nuv6IyQDjME)
 
-[Flat Earth turning point and Nasa admits no moon landing](https://www.youtube.com/watch?v=vYvxQiTFzFc)
+[RFID - Mark Of The Beast - NTAG216 - 666 Decoded](https://www.youtube.com/watch?v=IlYKFxWqE3A)
+
+[Bitcoin created by the CIA and NSA, warns co-founder of Kaspersky security software firm](https://newstarget.com/2018-01-31-bitcoin-created-by-the-cia-and-nsa-warns-co-founder-of-kaspersky-security-software-firm.html)
+
+[https://www.nasa.gov/centers/dryden/pdf/88104main_H-1391.pdf](https://www.nasa.gov/centers/dryden/pdf/88104main_H-1391.pdf) NASA in their own words in their own document say "flying over a flat, nonrotating earth" then they show you cartoons and lie to your face and you take it as reality!
 
 [Rob Skiba and Pastor Dean Odle on the significance of the Firmament enclosed flat Earth](https://www.youtube.com/watch?v=iH4MnXI0sxQ)
 
@@ -514,6 +516,8 @@ Do what thou wilt? or do God's will? Which is it? Everyone has there own Truth? 
 )[الأرض المسطحة] #https://www.youtube.com/results?search_query=%D8%A7%D9%84%D8%A3%D8%B1%D8%B6+%D8%A7%D9%84%D9%85%D8%B3%D8%B7%D8%AD%D8%A9) [Arabic YouTube Search]
 
 #)[שטוח כדור הארץ] https://www.youtube.com/results?search_query=%D7%A9%D7%98%D7%95%D7%97+%D7%9B%D7%93%D7%95%D7%A8+%D7%94%D7%90%D7%A8%D7%A5) [Hebrew YouTube Search]
+
+[Cloning Centers EXPOSED! Cloning Is REAL! Celebrities Spill The Beans!!!](https://www.youtube.com/watch?v=kUJspQBHCRI)
 
 ![closed-minded-open-minded](images/closed-minded-open-minded.png)
 
@@ -1331,6 +1335,8 @@ I heard about Flat Earth in mid/late 2016 and only recently found out the real t
 🤣💨🌎﻿
 
 🎬📽📼🌎﻿ <--- lol 😄
+
+🌏❌_____🗺✔﻿
 
 # [Are You Dedicated To God?](https://www.youtube.com/watch?v=0d1z8dmMo00)
 
