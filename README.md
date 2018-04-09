@@ -36,6 +36,18 @@ If you believe that you live on a spinning globe, think again. Heliocentrism and
 
 NASA lies and is basically spearheading the campaign to deceive you and the rest of the world. Even SpaceX and other "aerospace" companies are a part of the deception, at least the owners and employees at the highest echelons. (To clarify, not every scientist, pilot, school teacher or NASA employee is in on this conspiracy). But don't let mainstream science and these fake space programs fool you. Think critically, logically and do your own research before blindly believing that you live on a spinning, pear shaped oblate spheroid darting through infinite space at ridiculous speeds that have never been proven. Research Flat Earth.
 
+[Have Scientists Found Evidence of the Virgin Birth? 📺 TV Special](https://www.youtube.com/watch?v=wXRTy-nFE0Y&index=8&list=UU3xDmuCqmsf2Zao7k5Q2KNw)
+
+[Shroud of Turin Used to Create 3-D Copy of Jesus](https://www.youtube.com/watch?v=kDD30AfjFok)
+
+[2018 UPDATE! SHROUD OF TURIN REVEALS SECRETS STRANGE END TIMES SIGNS](https://www.youtube.com/watch?v=KBycQZug8Fo)
+
+[New Evidence!! Shroud of Turin was Needed as Evidence to Confirm Resurrection](https://www.youtube.com/watch?v=A7i2JpkxrIc)
+
+[Expert Discovers Jesus' Death Certificate](https://www.youtube.com/watch?v=e2twhVzno3I)
+
+[Is The Earth Flat? The Bible Says So! Exposing NASA, Big Bang, Evolution, & The Global Lie 24/7](https://www.youtube.com/watch?v=EuTCpndne2M)
+
 [The truth in PLANE sight (2018 Documentary)](https://www.youtube.com/watch?v=x15CE3pUbRM)
 
 [🔬 SCIENTISM EXPOSED 🔭 Full Documentary (2016) HD](https://www.youtube.com/watch?v=AeIGrEtPMmE)
