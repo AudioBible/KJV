@@ -1367,4 +1367,3 @@ Penguins﻿ be like "I don't see no friggin ice wall!" 🐧
 - With much Love, Professor Alex [My Channel on YouTube](https://www.youtube.com/channel/UCSwtSZAwhxnNApQS8RmKUVQ)
 
 PS. I may be wrong about some stuff, and am always learning and doing research and don't always update this site, but just know I'm not perfect an can be wrong about stuff. I could be wrong about cussing but the earth is 100% flat and motionless!
-
